@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8963
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Vip 👑 ━━━╮
+
+vless://a34b5e88-cf0d-4c01-8199-2d1002d3c787@95.85.229.112:443?security=reality&encryption=none&pbk=HKpd1sbrhBds8SJSL0d22MAq_QyTR6EP6y5b5DYol3U&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=www.wikihow.com#%F0%9F%87%B8%F0%9F%87%AA%40TASIYANC%F0%9F%94%A5
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%94%A5
+
+vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
+
+vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?path=%2Ffdip&security=tls&encryption=none&insecure=0&host=learn00.evany.de5.net&type=ws&allowInsecure=0&sni=learn00.evany.de5.net#%F0%9F%87%AF%F0%9F%87%B5%40TASIYANC%F0%9F%94%A5
+
+⚡️Location 🇬🇧 🇸🇪 🇯🇵
+
+📱@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8962
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مرندی از تیم مذاکره کننده:ایران هیچ قصدی برای مذاکره با رژیم ترامپ ندارد. هرگونه اقدام تجاوزکارانه با پاسخ کوبنده و قاطع جمهوری اسلامی مواجه خواهد شد
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
+
+پروکسی | پروکسی | پروکسی
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8960
+
+<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
+جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
+📍
+
+آموزش اتصال 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 8957
 
@@ -219,66 +291,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 🔴 مذاکرات بعد از ظهر دوشنبه به وقت واشنگتن، با توجه به اختلاف هفت و نیم ساعت، مبنا اگر ۲ بعد از ظهر باشد، ۹:۳۰ شب تهران، تا ۴ بعد از ظهر، ۱۱:۳۰ شب تهران خواهد بود.
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8940
-
-<div align="center"><video src="files/post_8940_tasiyanc_8940.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8940_tasiyanc_8940.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💼ترامپ درباره ایران:
-
-ما حمله‌ای را آماده کرده بودیم که بزرگترین حمله از زمان جنگ جهانی دوم می‌بود.
-این برای آن‌ها فاجعه‌بار می‌بود و آن‌ها نمی‌خواستند که ما این کار را انجام دهیم.
-راستش عربستان سعودی هم نمی‌خواست این اتفاق بیفتد. آن‌ها فکر می‌کردند که یک توافق در شرف وقوع است.
-👹 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8939
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 3 August, روز جهانیِ عشق اوله 
-😞
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نتتون بگید؟
-</div>
-
-## tasiyanc — post 8937
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
-
-vless://70df38ff-5a22-4ffc-a3f9-1725515e0ea5@205.237.109.211:448?security=reality&encryption=none&pbk=IuB1jsALd-wN_8jRTGxVLBbVG5eSxNbOXjvFyZlm3UU&headerType=none&fp=chrome&type=tcp&sni=www.samsung.com&sid=113241ad01e99a2d#GB%20%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
-
-vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
-
-📍Location 🇹🇷 🇬🇧 🇩🇪
-
-⚡️ By  @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش درگیری در تنگه هرمز - تایید یا رد نمیشه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-👹@Tasiyanc ✅
 </div>
 

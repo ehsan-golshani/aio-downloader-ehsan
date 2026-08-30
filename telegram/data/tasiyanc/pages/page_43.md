@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات توافق :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 8627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب جمعه به این آرومی؟ مشکوکه
+</div>
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
+
+## tasiyanc — post 8625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیك موشك به کویت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8624
 
@@ -196,54 +233,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
-</div>
-
-## tasiyanc — post 8605
-
-<div align="center"><video src="files/post_8605_tasiyanc_8605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8605_tasiyanc_8605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8603
-
-<div align="center"><video src="files/post_8603_tasiyanc_8603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8603_tasiyanc_8603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
 </div>
 

@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴علیرضا سپاهی، یک تن از زندانیان سیاسی که قرار بود سحرگاه دیروز همزمان با برادر خود، ابوالفضل سپاهی و همچنین امیرحسین صفری در میدان علیخانی اعدام شود، اکنون در بیمارستان الزهرا اصفهان تحت تدابیر امنیتی بستری است.
+
+او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
+
+@TasiyanProxy ⭐️| رسانه مردمی
+</div>
+
+## tasiyanc — post 8771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
+
+## tasiyanc — post 8770
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8769
+
+<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
+
+@TASIYANC
+</div>
+
+## tasiyanc — post 8766
+
+<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠  نسخه اختصاصی مود GitiVPN
+✅️سیستم عامل: اندروید
+
+تست شده با همه اینترنت ها📶📶📶🛜🛜
+
+🟢توضیحات مهم:
+وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
+
+نسخه: 111
+
+ویژگی های نسخه مود:
+• باز بودن سرور های پریمیوم
+• حذف تبلیغات اضافی
+• نامحدود شدن تایم
+
+برای دانلود روی لینک زیر کلیک کنید
+
+🔗《لینک دانلود》👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8765
 
@@ -188,50 +267,5 @@ Vip for TS ⚡🔥.npvt
 🌐 betinja.bet
 کانال بونوس های رایگان r6
 @betinjabet
-</div>
-
-## tasiyanc — post 8750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Loc ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 8747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به وقت اذان صبح 💔
-</div>
-
-## tasiyanc — post 8745
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر هارو دنبال کنید از اینجا
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 #امیرحسین_صفری #علیرضا_سپاهی #ابولفضل_سپاهی میخوان در ملا عام اعدامشون کنن💔 @TasiyanProxy
-</div>
-
-## tasiyanc — post 8742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
 </div>
 

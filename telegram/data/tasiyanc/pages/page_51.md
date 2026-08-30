@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8382
+
+<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
+
+📥 مشاهده 👉
+</div>
+
+## tasiyanc — post 8381
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب شب ارومی به نسبت شب‌های گذاشته داشتیم
+</div>
+
+## tasiyanc — post 8380
+
+<div align="center"><video src="files/post_8380_tasiyanc_8380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8380_tasiyanc_8380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظه کشته شدن سربازان امریکایی در اردن و انفجار های بسیار مهیب بر اثر حمله موشکی
+
+حداقل ۳ نظامی امریکایی کشته و ناپدید شدند!
+
+🖌 #CC
+
+@Tasiyanc ✅ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
+</div>
+
+## tasiyanc — post 8375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی انگلیس فرانسه شده پور*هاب ۴ تا انگلیس زده
+</div>
 
 ## tasiyanc — post 8374
 
@@ -149,81 +193,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Multi Location ⚡ Fast.npvt
-</div>
-
-## tasiyanc — post 8348
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8346
-
-<div align="center"><img src="files/post_8346_tasiyanc_8346.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کوله‌ی دخترش رو انداخته بود،
-براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8345
-
-<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
-
-+این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
-
-■ هرمزگان
-■ بوشهر
-■ خوزستان
-■ سیستان و بلوچستان
-
-- پایه یازدهم و دوازدهم
-- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
-
-پروکسی |  پروکسی | پروکسی
-پروکسی |  پروکسی | پروکسی
-
-@Tasiyanc✅
 </div>
 

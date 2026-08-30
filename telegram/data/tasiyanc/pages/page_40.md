@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم زیباترین هدیه 5/5/5 به من شمایید ک دارمتون 💘
+</div>
+
+## tasiyanc — post 8718
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وارد 5/5/5 شدیم ، برنامتون چیه؟
+</div>
+
+## tasiyanc — post 8717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ آخرین نسخه ی V2rayNG اندروید
+
+نسخه 2.2.6
+
+● تغییرات مهم:
+• جایگزینی allowInsecure منسوخ با PinnedPeerCertSha256
+• حذف Tcping ping و بهبود تست پینگ
+• آپدیت هسته ایکس ری
+• رفع برخی باگ ها
+
+🔗 لینک دانلود از گیتهاب
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8714
 
@@ -206,78 +250,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 🔺ویدیویی دیده نشده از ورود محمدرضا شاه و ملکه فرح پهلوی به آمریکا و استقبال از او در زمان ریاست جمهوری جان اف کندی
 
 @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8692
-
-<div align="center"><video src="files/post_8692_tasiyanc_8692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8692_tasiyanc_8692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺صحبت های شگفت‌انگیز پدر بمب اتم «رابرت اوپنهایمر» ...
-اکنون من خود مرگ شده ام .... نابودگر جهان!
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8691
-
-<div align="center"><img src="files/post_8691_tasiyanc_8691.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه عکسیه که چند روزه از اعتراضات دی ماه وایرال شده، پیکر بی جان یه پسر جوون افتاده وسط خیابون و خون ازش سرازیر شده.
-
-این عکس مربوط به جاویدنام علی احمدیه که فقط ۱۴ سال سن داشت و خرج خواهر معلولش رو میداد.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8690
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبرا ، امتحانات چطور دادید؟
-</div>
-
-## tasiyanc — post 8689
-
-<div align="center"><img src="files/post_8689_tasiyanc_8689.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟢 فعالسازی VOLTE با کاربرد های عالی
-📰همونطور که میدونید زمانی که گوشیتون زنگ میخوره اتصال اینترنتتون به کلی قطع میشه و اگه درحال استفاده از اپلیکیشنی باشید که نیاز به اینترنت داشته باشه کارتون مختل میشه.
-
-📰با فعال کردن VoLTE تماس‌هاتون بر بستر LTE فراهم میشه که نه‌ تنها باعث سوییچ شبکه و قطع اتصال اینترنت نخواهد شد بلکه مزایای فراوانی از جمله داشتن صدای شفاف و HD هم به ارمغان میاره!
-
-🛜 نحوه فعالسازی در اپراتور همراه اول :
-
-• اول از همه لازمه کد دستوری #71*10* رو شماره گیری و بعد داخل تنظیمات گوشیتون کلمه VOLTE رو سرچ کنید ؛ یه سری اطلاعات باید وارد بشه که توی هر برند موبایلی با برند دیگه متفاوته ؛ پس بزن روی ″این لینک″ و بر اساس مارک تلفن همراهت تنظیمات رو اعمال کن.
-‌
-🛜 نحوه فعالسازی در اپراتور ایرانسل :
-
-• تو اپراتور ایرنسل نیازی نیست کار خاصی انجام بدید ؛ فقط باید دقت داشته باشید که آخرین سیستم عامل اندروید روی گوشیتون نصب باشه و گوشیتون هم از VOLTE پشتیبانی کنه ؛ که اگه وارد ″این لینک″ بشید هم میتونید گوشی های واجد شرایط رو ببینید هم نحوه فعالسازیش ؛
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱WG tunnel🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

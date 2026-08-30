@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8798
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹الجزیره: تعداد کشته و مجروح های حشدالشعبی تو حملات دیشب آمریکا و عربستان به 50نفر رسید 🚶‍♂
+</div>
+
+## tasiyanc — post 8796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی 
+🔴12 تن از اعضای حشدالشعبی شب گذشته در جریان حمله‌ای مشترک آمریکا و عربستان سعودی در عراق کشته شدن 
+⭐ @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8795
+
+<div align="center"><video src="files/post_8795_tasiyanc_8795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8795_tasiyanc_8795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارهای غیرممکنی که بروسلی تو عالم واقعیت انجام میداد 
+😞
+
+
+⭐ @Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8794
+
+<div align="center"><img src="files/post_8794_tasiyanc_8794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا نه نیویورکه نه دوبی نه ژاپن
+این نمای نزدیک از مادربرد یک کامپیوتره !
+
+⭐ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8793
+
+<div align="center"><img src="files/post_8793_tasiyanc_8793.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مقایسه بلند ترین قله کره زمین با بلند ترین قله کره مریخ !🙂
+قله اورست زمین با 8848 متر
+قله المپوس مریخ با 21222 متر
+
+⭐ @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8792
 
@@ -157,84 +209,5 @@
 🚨 هم اکنون حملات سپاه به پایگاه آمریکا در اردن که گویا برخورد هم داشته
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8772
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴علیرضا سپاهی، یک تن از زندانیان سیاسی که قرار بود سحرگاه دیروز همزمان با برادر خود، ابوالفضل سپاهی و همچنین امیرحسین صفری در میدان علیخانی اعدام شود، اکنون در بیمارستان الزهرا اصفهان تحت تدابیر امنیتی بستری است.
-
-او در جریان فرایند انتقال به محل اعدام دچار سکته قلبی شده بود.
-
-@TasiyanProxy ⭐️| رسانه مردمی
-</div>
-
-## tasiyanc — post 8771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
-</div>
-
-## tasiyanc — post 8770
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8769
-
-<div align="center"><video src="files/post_8769_tasiyanc_8769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8769_tasiyanc_8769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سام صابری که دیشب اون گندش بالا اومد، امروز با این الفاظ مردم رو خطاب کرد و به همه ناموسی داد:
-
-@TASIYANC
-</div>
-
-## tasiyanc — post 8766
-
-<div align="center"><img src="files/post_8766_tasiyanc_8766.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠  نسخه اختصاصی مود GitiVPN
-✅️سیستم عامل: اندروید
-
-تست شده با همه اینترنت ها📶📶📶🛜🛜
-
-🟢توضیحات مهم:
-وارد لیست سرور ها بشید، یکی را انتخاب کنید و متصل بشید. سرعت خوبی داره.
-
-نسخه: 111
-
-ویژگی های نسخه مود:
-• باز بودن سرور های پریمیوم
-• حذف تبلیغات اضافی
-• نامحدود شدن تایم
-
-برای دانلود روی لینک زیر کلیک کنید
-
-🔗《لینک دانلود》👉
-
-@TASIYANC ⭐️
 </div>
 

@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/08 21:25
+📅 آخرین بروزرسانی: 1405/06/08 23:46
 
 ---
+
+## tasiyanc — post 8214
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨دو انفجار سنگین در قشم
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برق ایرانشهر انگار کاملا رفته
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢 حمله آمریکا به شهر ویسیان لرستان
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8210
+
+<div align="center"><video src="files/post_8210_tasiyanc_8210.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8210_tasiyanc_8210.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨هم اکنون حملات سنگین آمریکا به بوشهر:
+
+
+
+
+@Tasiyanc ⭐️ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8209
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8208
 
@@ -126,44 +173,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⁉️پدافند تهران فعال شده؟
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8190
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺گزارش شده که انگار پل فلزی بندر عباس هم زدن.
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8189
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 تمامی پل‌هایی که بندر خمیر را به بندرعباس متصل می کرد توسط آمریکا مورد حمله قرار گرفت.
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون چیه آخرش چی میشه؟؟؟
-</div>
-
-## tasiyanc — post 8187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
-
-@Tasiyanc
 </div>
 
