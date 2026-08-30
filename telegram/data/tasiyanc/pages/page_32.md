@@ -1,8 +1,211 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/08 23:46
+📅 آخرین بروزرسانی: 1405/06/09 02:29
 
 ---
+
+## tasiyanc — post 8956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بی بی نتانیاهو:
+
+اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8955
+
+<div align="center"><img src="files/post_8955_tasiyanc_8955.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اینفوگرافیک ( وایب) اسم 🆕
+قسمت NAME اسم خودتون رو بزنید!
+
+Prompt For only ChatGpt 🤖
+
+Create a trendy Pinterest-style aesthetic collage graphic, vertical format 9:16, dreamy and elegant design with soft pastel gradient background (blush pink, cream, and gold tones), decorative botanical elements (dried flowers, gold leaf accents), minimalist elegant Persian calligraphy-inspired typography.
+
+At the top, display the name “[NAME]” in large, elegant Persian script as the main title.
+
+Below it, arrange the content in a clean magazine-style layout divided into 4 soft-edged sections/cards, each with a small icon (a feather, a flame, a compass, a tree-root symbol), and Persian text (nice readable font, right-to-left) describing:
+
+1. وایب اسم (شخصیت و حس اسم)
+2. انرژی اسم
+3. ریشه و معنی اسم
+4. اصالت و خاستگاه اسم
+
+Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-realistic aesthetic photography style mixed with elegant flat-lay design elements, Instagram-worthy composition, no visible text errors, clean and balanced spacing.
+
+
+👹@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️8 شب وین دادیم امشبم وینه✔️✔️
+
+✅تنها کانالی که از شرطبندی پول در میاره✅
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+چنل خودمونه جوین شید استفاده کنید فرمارو همه از منبع ها خارجیه😉👍
+
+#admin
+</div>
+
+## tasiyanc — post 8953
+
+<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
+
+برای دریافت وارد کانال زیر شوید🔽🔽🔽
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+g12
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+     🔼🔼🔼🔼🔼🔼🔼🔼🔼
+</div>
+
+## tasiyanc — post 8952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
+یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%92%96
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%F0%9F%8F%9D%EF%B8%8F%40Tasiyanc%20%F0%9F%92%A5
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%8F%86
+
+ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9
+
+Location ⚡️🇮🇹
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴🇮🇷
+</div>
+
+## tasiyanc — post 8948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت📱
+
+۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دزدی از جیب مردم تا کی ؟
+
+
+🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
+برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 SubLink Unlimited Vip ⚡️ ━━━╮
+
+
+https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+
+آموزش اضافه کردن ساب ⚡️
+
+تست بگیرید وصل شید ✅
+
+اتصال امن برای همه 🇮🇷
+
+👹 Join As @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 کانفیگ اختصاصی نامحدود اینجکتور📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن آلمان و ترکیه 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
+
+## tasiyanc — post 8942
+
+<div align="center"><video src="files/post_8942_tasiyanc_8942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8942_tasiyanc_8942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱اگر #تندو تیز هستی اینو ببین 💵💰
+
+✊این بازی فقط سرعت عمل بالا میخواد😍
+
+🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 🤩🤩% شارژ اضافی🔥
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان r12
+@betinjabet
+</div>
+
+## tasiyanc — post 8941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 مذاکرات بعد از ظهر دوشنبه به وقت واشنگتن، با توجه به اختلاف هفت و نیم ساعت، مبنا اگر ۲ بعد از ظهر باشد، ۹:۳۰ شب تهران، تا ۴ بعد از ظهر، ۱۱:۳۰ شب تهران خواهد بود.
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8940
 
@@ -69,170 +272,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
-</div>
-
-## tasiyanc — post 8934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گزارش انفجار از سیریك
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت 📱
-
-سرور سرعتی تست شده مولتی لوکیشن 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8932
-
-<div align="center"><img src="files/post_8932_tasiyanc_8932.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی 🆕
-
-😎 می‌خوای ببینی یه نفر با یه نام کاربری توی چه سایت‌هایی حضور داره؟
-این ابزار با کمک هوش مصنوعی صدها سایت رو می‌گرده و هرجا اون یوزرنیم پیدا بشه، برات لیست می‌کنه.
-کافیه نام کاربری رو وارد کنی؛ بعد از چند دقیقه، نتیجه و ردپای احتمالی اون توی اینترنت بهت نشون داده می‌شه.
-🔹 قابلیت‌ها: • جستجوی اکانت‌ها در شبکه‌های اجتماعی، فروم‌ها، سایت‌های گیم و سرویس‌های مختلف • جمع‌آوری همه نتایج توی یک لیست • اجرا مستقیم داخل مرورگر، بدون نیاز به نصب برنامه • استفاده رایگان از امکانات پایه
-اگه دوست داری ردپای خودت یا حتی یه یوزرنیم خاص رو توی اینترنت بررسی کنی، این ابزار می‌تونه حسابی به دردت بخوره.
-﻿
-
-👉 https://whatsmynameapp.net/
-
-
-👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
-</div>
-
-## tasiyanc — post 8930
-
-## tasiyanc — post 8929
-
-<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی 🆕
-
-🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
-
-
-• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
-• درصد احتمال اسکم بودن رو نشون میده
-• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
-👉 https://scamminder.com/
-
-👹 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8928
-
-<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
-
-یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
-﻿
-📱@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
-
-من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 8925
-
-<div align="center"><video src="files/post_8925_tasiyanc_8925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8925_tasiyanc_8925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان g11
-@betinjabet
-</div>
-
-## tasiyanc — post 8923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 📶 Open Vpn Config ✅ ━━━╮
-
-آموزش اتصال 
-
-در صورت برقرار نشده اتصال چند بار بزنید پشت هم
-
-⚡️ Unlimated• By @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترور در قلب مسکو
-به گزارش چندین خبرگزاری خارجی ساعاتی پیش الکساندر چایکو « فرمانده هوا فضای ارتش روسیه » در روز تولدش ترور شد تعدادی از فرماندهان رده بالا نیز در اثر انفجار کشته یا زخمی شدند - تایید / رد نمیشود
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود دوستان پروفایل چنلمون عوض شد 🌸
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-</div>
-
-## tasiyanc — post 8918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🔐 V2RAY CONFIG🔐 ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo14.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%E2%9A%A1%20%40Tasiyanc%20%D8%B3%D8%B1%D8%B9%D8%AA%DB%8C
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@151.115.165.172:8880?mode=gun&security=none&encryption=none&type=grpc#%F0%9F%87%AE%F0%9F%87%B9%20%40Tasiyanc%2004
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9%F0%9F%94%B1%F0%9F%8F%9D%EF%B8%8F
-﻿
-⚡️ Unlimated Italy• By 💙 @TASIYANC ✅
-╰━━━━━━━━━━━━━━━━━━╯
 </div>
 

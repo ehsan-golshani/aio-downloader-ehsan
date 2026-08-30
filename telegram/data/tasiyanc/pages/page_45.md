@@ -1,8 +1,181 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/06/08 23:46
+📅 آخرین بروزرسانی: 1405/06/09 02:29
 
 ---
+
+## tasiyanc — post 8601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبلیغات و همکاری با مجموعه ما
+👉 Admin @TsSub
+</div>
+
+## tasiyanc — post 8600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ :
+
+بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
+
+اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8599
+
+<div align="center"><video src="files/post_8599_tasiyanc_8599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8599_tasiyanc_8599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ امشب فاز نصیحت برداشته:
+
+یه پلیس بهم گفت از وقتی زنم فهمیده هوش مالی بالایی دارم و خوب پول در میارم، بیشتر دوسم داره.
+شما نباید کسیو بخاطر پول دوس داشته باشین.
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه 📥 مشاهده ویدیو
+</div>
+
+## tasiyanc — post 8591
+
+<div align="center"><video src="files/post_8591_tasiyanc_8591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8591_tasiyanc_8591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امیر دوست پسر قبلی نیکا فلاحی وقتی فهمید نیکا با مرسلی رفته تو رابطه از لجش اومده عکسای نود بدون سانسورشو پخش کرده ولی خودمونیم چیز خوبیه
+
+📥 مشاهده ویدیو
+</div>
+
+## tasiyanc — post 8590
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی پرمیوم  ⚡️
+
+آموزش اتصال ⛓
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8589
+
+<div align="center"><img src="files/post_8589_tasiyanc_8589.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طبق تحقیقات روانشناسی، دخترا نسبت به پسرا تمایلات جنسی بیشتری دارن؛ فقط بیان نمیکنن و تظاهر میکنن از این داستانا خوششون نمیاد!
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8588
+
+<div align="center"><video src="files/post_8588_tasiyanc_8588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8588_tasiyanc_8588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☄️ مرگ دایناسورها؛ داستان یک برخورد مرگبار
+
+شهاب‌سنگی عظیم به منطقه‌ای در مکزیک امروزی برخورد کرد و انفجاری با قدرتی باورنکردنی به وجود آورد. گردوغبار ناشی از این برخورد، آتش سوزی جنگلها و... زنجیره غذایی از هم پاشید و در نهایت حدود ۷۵ درصد از گونه‌های زنده زمین، از جمله دایناسورها، منقرض شدند.
+امروز دهانه عظیم چیکشلوب زیر خاک و آب‌های مکزیک مدفون است؛ یادگاری خاموش از یکی از سرنوشت‌سازترین لحظات تاریخ زمین🌍
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حمله به عربستان هم اکنوننننننن
+</div>
+
+## tasiyanc — post 8580
+
+<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8579
+
+<div align="center"><img src="files/post_8579_tasiyanc_8579.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی جدید مرد - زن 🤖🤖
+
+•عکساتو زیباتر کن 💖
+
+•آموزش استفاده 👉
+
+
+🔺دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
+</div>
+
+## tasiyanc — post 8574
+
+<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•پرامپت اختصاصی جدید مرد - زن 🤖🤖
+
+•عکساتو زیباتر کن 💖
+
+•آموزش استفاده 👉
+
+
+🔺 دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود📱
+
+سرور  سرعتی پرمیوم 🇺🇸 ⚡️
+
+تست شده روی همه نت ها 
+🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8572
 
@@ -106,171 +279,5 @@ A highly realistic medium shot of a young man standing outdoors, centered in the
 
 
 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8556
-
-<div align="center"><img src="files/post_8556_tasiyanc_8556.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پست‌های جدید ترامپ در تروث:
-
-جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8555
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
-</div>
-
-## tasiyanc — post 8554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
-
-مشاهده فیلم 👉
-</div>
-
-## tasiyanc — post 8552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.31:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.129:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
-Location 🤯 🇫🇷
-
-@TASIYANC✅
-</div>
-
-## tasiyanc — post 8551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب ایستگاه‌های برق و تاسیسات جدید تصفیه آب در کویت
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8549
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کشتی های امریکایی در سواحل قطر مورد هدف قرار گرفتن
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8542
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-⭕️ انفجار در قطرررررررر
-</div>
-
-## tasiyanc — post 8541
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇹🇷🍃 HotFast.npvt
-</div>
-
-## tasiyanc — post 8540
-
-<div align="center"><video src="files/post_8540_tasiyanc_8540.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8540_tasiyanc_8540.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود 
-⬇️ ترید 
-🤑
-اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ فاکس نیوز رسانه نزدیک به ترامپ:
-اسرائیل به جنگ‌ خواهد پیوست.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 💘
-</div>
-
-## tasiyanc — post 8522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 انفجار در کنارك
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 143
 
-📅 آخرین بروزرسانی: 1405/06/08 23:44
+📅 آخرین بروزرسانی: 1405/06/09 02:27
 
 ---
+
+## ProxyMTProto — post 47814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gay.arixo.shop
+Port: 443
+Secret: ee8168c0b7cfbbb15a4fe4691243e6dc94617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47813
 
@@ -172,15 +181,6 @@ Secret: eec14b841016ce9b05f48e9ed7f2d9de9e676f6f676c65617069732e636f6d
 Server: tele.chunkycorp.shop
 Port: 443
 Secret: ee3a3365be03d6bc13518d65e70a3146c2617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47794
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 84.252.139.115
-Port: 443
-Secret: eefea62269225a14fac3c9e8c7ba6205fe617669746f2e7275
 @ProxyMTProto
 </div>
 

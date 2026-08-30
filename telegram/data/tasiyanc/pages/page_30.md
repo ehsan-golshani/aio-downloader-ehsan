@@ -1,8 +1,283 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/08 23:46
+📅 آخرین بروزرسانی: 1405/06/09 02:29
 
 ---
+
+## tasiyanc — post 9003
+
+<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
+😭 !!
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.210:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.176:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.179:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+
+📍Location 
+🇬🇧
+🇳🇱
+
+
+📱@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9001
+
+<div align="center"><video src="files/post_9001_tasiyanc_9001.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9001_tasiyanc_9001.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+R14
+
+🎁کد هدیه ثبت نام Melbet90 ✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9000
+
+<div align="center"><video src="files/post_9000_tasiyanc_9000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9000_tasiyanc_9000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷 r14
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8998
+
+<div align="center"><img src="files/post_8998_tasiyanc_8998.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 🆕
+
+Based on our chats, generate a clean 3x3 picture showing how you see me as a color, a song, a weather, a season, a book, a scent, a place, a flower, and a food.
+
+🚨کاربرد : این پرامپت رو میدید AI که باهاش حرف میزنید بر اساس چیز هایی که بهش گفتید به شما میگه
+چه وایب مثل رنگ، آهنگ، آب و هوا، فصل، کتاب، مکان، گل و غذا از شما گرفته !
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8997
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
+
+مشخص نیست حمله شده یا چی
+</div>
+
+## tasiyanc — post 8996
+
+<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
+
+
+🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
+
+در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
+
+🪩 https://Poe.com
+
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
+👩‍💻
+
+فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
+
+
+🔗 replit.com
+
+🔗 bolt.new
+
+🔗 stack.ai
+
+🔗 v0.dev
+
+🔗 cursor.sh
+
+🔗 Lovable.dev
+
+🔗 codeium.com
+
+🔗 tabnine.com
+
+🔗 github.com/features/copilot
+
+مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
+</div>
+
+## tasiyanc — post 8993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+سرور سرعتی تست شده  لوکیشن هلند، انگلیس ، آمریکا ، هند 
+📍
+
+آموزش اتصال 
+⚡️
+فعالسازی IPV6
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8992
+
+<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #بازی_پولساز 
+⚠️
+
+🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
+</div>
+
+## tasiyanc — post 8991
+
+<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😯 اگر هوشت بالاست 
+🗼 :
+
+
+❌ 
+👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
+
+
+🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
+
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان a13
+@betinjabet
+</div>
+
+## tasiyanc — post 8990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
+</div>
+
+## tasiyanc — post 8989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
+</div>
 
 ## tasiyanc — post 8988
 
@@ -77,227 +352,5 @@ Fast - HCustum 🇮🇹B.hc
 
 💙@TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 8980
-
-<div align="center"><video src="files/post_8980_tasiyanc_8980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8980_tasiyanc_8980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی مراسم اربعین امسال، آهوهای ایرانیو کباب کردن میدن به زائرین!!!
-
-⚠️ حاوی تصاویر دلخراش.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8978
-
-<div align="center"><video src="files/post_8978_tasiyanc_8978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8978_tasiyanc_8978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید خواهر جاویدنام دانیال مرادی‌زاده، قلب هر انسانی رو بدرد میاره ...
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8977
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 
-🖤 Config Unlimated Vip 
-👑 ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca20.exodnsdir.xyz:8880?mode=gun&security=none&encryption=none&type=grpc#%40Tasiyanc%20%E2%9A%A1%F0%9F%8F%9D%EF%B8%8F%F0%9F%87%AE%F0%9F%87%B9
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTo3ZTczMWVjMy1mOGUxLTQzZjYtOTJjZi0zOTc4ZDE0NzA1YzQ@r3mrcg001287h3p.cybervena.com:50099#%40Tasiyanc%20%F0%9F%8F%9D%EF%B8%8F%E2%9A%A1%F0%9F%87%B9%F0%9F%87%BC
-
-vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiJAUHJveHlWUE4xMSIsImlkIjoiMDQ2MjFiYWUtYWIzNi0xMWVjLWI5MDktMDI0MmFjMTIwMDAyIiwiaW5zZWN1cmUiOiIwIiwibmV0IjoidGNwIiwicGF0aCI6Ii8gQFByb3h5VlBOMTEiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4+d77iP4pqh8J+HrPCfh6ciLCJzY3kiOiJhdXRvIiwic25pIjoiIiwidGxzIjoiIiwidHlwZSI6Im5vbmUiLCJ2IjoiMiIsInZjbiI6IiJ9
-
-
-📍Location 🇬🇧🇮🇹🇹🇼
-
-
-👹@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8976
-
-<div align="center"><video src="files/post_8976_tasiyanc_8976.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8976_tasiyanc_8976.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
-بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
-
-❌با هر 1 میلیون شارژ ، 
-🤩
-🤩
-🤩 هزارتومان شارژ اضافی بگیر
-🅰️
-
-
-❌
-❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 8975
-
-<div align="center"><video src="files/post_8975_tasiyanc_8975.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8975_tasiyanc_8975.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #میلان Vs #اینتر💰
-
-🛍 #چلسی Vs #یوونتوس💰
-
-زمان: چهارشنبه ساعت ۱۴
-
-
-🚨 تجربه پیشبینی مطمئن با
-
-🤩 
-🤩 
-🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده
-❌
-
-
-🤩 
-🤩 درصد برگشت وجه در صورت باخت:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g13
-@betinjabet
-</div>
-
-## tasiyanc — post 8974
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
-</div>
-
-## tasiyanc — post 8973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
-
-زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8972
-
-<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Fast Tekno💥.npvt
-</div>
-
-## tasiyanc — post 8970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6 
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8969
-
-<div align="center"><video src="files/post_8969_tasiyanc_8969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8969_tasiyanc_8969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری، ترامپ: این آخرین فرصت ایران برای توافقه، اگه توافق نشه، جنگ قطعیه.
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 🖤
-</div>
-
-## tasiyanc — post 8966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-سرور  سرعتی پرمیوم ⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پنالتی راحترین بازی پولساز ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
-💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 8964
-
-<div align="center"><video src="files/post_8964_tasiyanc_8964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8964_tasiyanc_8964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r13
-@betinjabet
 </div>
 

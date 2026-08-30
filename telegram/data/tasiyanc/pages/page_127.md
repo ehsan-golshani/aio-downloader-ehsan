@@ -1,8 +1,151 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/08 23:46
+📅 آخرین بروزرسانی: 1405/06/09 02:29
 
 ---
+
+## tasiyanc — post 5920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐
+وصل رو تمام اپراتورا ✅
+vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=donya-e-eqtesad.com.tasnimnews.com.alef.ir.en.mehrnews.com.entekhab.ir.tasnimnews.com.tehrantimes.com&allowInsecure=0&sni=Humble-FigUREFnHk81kxjx.CarboNblaCkBmw.iR#%40Tasiyanc%20-%20%F0%9F%8C%99
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای بار هزارم کانکت شدی دنبال دان لینک نباش بیا تل یا برو یه جای دیگه جز نپستر بالا میاد تو ۱۰ ثانیه
+</div>
+
+## tasiyanc — post 5917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی🔥🇩🇪.npvt
+</div>
+
+## tasiyanc — post 5916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5914
+
+<div align="center"><img src="files/post_5914_tasiyanc_5914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💙@Tasiyanc🚀Jet.npvt
+</div>
+
+## tasiyanc — post 5913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  🛜🛜🛜
+
+ تک سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+v2Ray کانفیگ
+هم بزاریم پس راضی هستید فکنم
+</div>
+
+## tasiyanc — post 5911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 متصل تموم اپراتورا ✅ vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com…
+</div>
+
+## tasiyanc — post 5910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐
+متصل تموم اپراتورا ✅
+
+vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5909
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New⚡Fast.npvt
+</div>
+
+## tasiyanc — post 5908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
+
+## tasiyanc — post 5906
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
+
+## tasiyanc — post 5905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑 رمز @Tasiyanc ″
+
+📶  اختصاصی تاسیان  📶
+
+ 2 سرور  سرعتی
+🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5903
 
@@ -73,146 +216,5 @@ New⚡Fast.npvt
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5897
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌊fast.npvt
-</div>
-
-## tasiyanc — post 5896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5894
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-channel@TASIYANC.ovpn
-</div>
-
-## tasiyanc — post 5893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  
-♻️
-
-تست شده 
-🚀
-Username vpnbook
-Password 8zw5j9h
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره باید بگیم؟
-</div>
-
-## tasiyanc — post 5890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Melli shekan 🪐.npvt
-</div>
-
-## tasiyanc — post 5889
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-2سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها 
-⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📶
-
-4سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5887
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا جای ک یادمه زمان قطعی همتون openvpn پاک کرده بودید الان شده بهتر از نپستر ، تازه این همه کانفیگ npv میزنیم بخدا ع پولی بیشتر سرعتش
-</div>
-
-## tasiyanc — post 5886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
-</div>
-
-## tasiyanc — post 5885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
-
-Npv ❤️
-
-Ovpn 🔥
-</div>
-
-## tasiyanc — post 5884
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
-سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
-</div>
-
-## tasiyanc — post 5883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی رایتل ـ سامانتل _ ایرانسل🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SamanTel 🛜 🏳
-vless://394f6981-a782-4779-9a85-e6cf22935d93@152.233.28.198:8443?security=tls&alpn=h2&encryption=none&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=uk1.fromblancwithlove.com#%F0%9F%8F%B3%EF%B8%8F%20Samantel%20-%20%40Tasiyanc
-
-@Tasiyanc ✅
 </div>
 

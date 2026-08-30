@@ -1,8 +1,148 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/08 23:46
+📅 آخرین بروزرسانی: 1405/06/09 02:29
 
 ---
+
+## tasiyanc — post 8791
+
+<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مجری بعد این برنامه کلا اخراج شد 😂
+ارزش دانلود ۱۰۰۰ از ۱۰
+
+داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
+
+⭐@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 8790
+
+<div align="center"><img src="files/post_8790_tasiyanc_8790.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نوکیا مدل 3310 پس از 22 سال پیدا شد
+هنوز 70% شارژ باتری داشت ! 🗿
+
+گزارش شده که یک گوشی Nokia 3310 که در شهر Ellesmere Port پیدا شده، پس از حدود ۲۲ سال همچنان روشن شده و نزدیک به ۷۰ درصد شارژ باتری داشته است.
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8788
+
+<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
+
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8786
+
+<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای توی خونه
+</div>
+
+## tasiyanc — post 8784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ :
+
+نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
+
+## tasiyanc — post 8780
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه سنتکام:
+
+امروز ساعت 5:45 عصر به وقت شرق آمریکا، نیروهای سپاه پاسداران چند موشک بالستیک از داخل ایران به سمت نیروهای آمریکایی مستقر در خاورمیانه شلیک کردن تا یه حمله غافلگیرکننده انجام بدن.
+
+با این حال، همه موشک‌ها رهگیری و منهدم شدن و نیروهای آمریکایی همچنان در بالاترین سطح آماده‌باش هستن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8774
+
+<div align="center"><img src="files/post_8774_tasiyanc_8774.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرندی از افراد تیم مذاکره کننده :
+سپاه برای جنگ تمام عیار کامل آمادستِ
+</div>
+
+## tasiyanc — post 8773
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حملات سپاه به پایگاه آمریکا در اردن که گویا برخورد هم داشته
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8772
 
@@ -91,181 +231,5 @@
 🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
 
 @TASIYANc ⭐️
-</div>
-
-## tasiyanc — post 8764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق اعلام بانک مرکزی؛
-تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
-یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8763
-
-<div align="center"><img src="files/post_8763_tasiyanc_8763.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو و تیمش در حال آماده شدن برای دیدار با پرزیدنت ترامپ در کاخ سفید.
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
-
-🔘 @WePariFarsi
-
-🔘 @DerbyBetOfficial
-</div>
-
-## tasiyanc — post 8761
-
-<div align="center"><img src="files/post_8761_tasiyanc_8761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️هنوز داری روی برنده-بازنده شرط می‌بندی؟
-
-📌​اگه حرفه‌ای هستی، میدونی که سود اصلی تو «گزینه‌های خاص» خوابیده؛ نه نتیجه بازی!
-
-
-​✔️ برای دوستانی که با کریپتو شارژ میکنند (وی‌پاری):
-بدون محدودیت سقف برداشت، با ضریب‌های واقعی و آپشن‌های ریزِ بازی و شرطبندی های میلیاردی.
-🔘 [Wepari.com]
-
-
-​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
-🔘 (DERBYBET.Com):
-سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8759
-
-<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود لوک ترکیه📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8757
-
-<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صنعت پهبادی اوکراین تو یه لول دیگه اس !
-🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
-﻿
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
-</div>
-
-## tasiyanc — post 8755
-
-<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت.
-</div>
-
-## tasiyanc — post 8754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip for TS ⚡🔥.npvt
-</div>
-
-## tasiyanc — post 8753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 🔞 شکار این بونوس ها هستن
-✅لیگ‌جهانی والیبال رو میتونید از اینجا پیشبینی کنید
-👇کافیه یه سر بزنی اینجا خودت میفهمی چه خبره 💯
-</div>
-
-## tasiyanc — post 8751
-
-<div align="center"><img src="files/post_8751_tasiyanc_8751.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیش بینی اختصاصی لیگ جهانی #والیبال رو از دست ندید.
-
-اسلوونی Vs ترکیه
-ژاپن Vs چین
-
-🤔 یک سایت کامل برا حرفه ای ها
-
-⚠️هر افزایش شارژ مساوی 2️⃣1️⃣🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 🤩 🤩🔤 کش بک باخت همه روزه
-
-🆕 هر رشته ورزشی که بخوای اینجا هست:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان r6
-@betinjabet
 </div>
 
