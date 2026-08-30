@@ -1,8 +1,91 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 9553
+
+<div align="center"><img src="files/post_9553_tasiyanc_9553.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+sr2
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9552
+
+<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
+
+اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9550
+
+<div align="center"><img src="files/post_9550_tasiyanc_9550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9549
 
@@ -219,61 +302,5 @@ DNS3 😎
 IPv4 Location 🇩🇪
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون دلار 198000
-هم اکنون طلا 21.900.000
-
-کجا داریم میریم ؟
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 حکم اعدام مجید آدینه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اجرا شد.
-
-قوه قضاییه اتهام او را «اقدام عملیاتی به نفع اسرائیل و آمریکا و همکاری با گروه‌های متخاصم علیه امنیت و منافع ملی» اعلام کرده.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

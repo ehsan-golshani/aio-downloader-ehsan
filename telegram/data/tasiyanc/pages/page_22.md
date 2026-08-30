@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 9178
+
+<div align="center"><img src="files/post_9178_tasiyanc_9178.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" 🖤 Silent Noir Portrait "
+
+Prompt 🤖🤖
+
+
+Use uploaded images as face reference. Absolute face lock. Black-and-white minimalist portrait of an adult man sitting in a chair, waist-up, right profile/three-quarter profile, head slightly lowered, looking down. Wearing a black baseball cap (visor casting shadow over eyes), oversized black T-shirt, light shorts/pants, and a metal wristwatch. Calm, thoughtful mood. Plain light-gray textured wall background with negative space above and on the right; edge of a leather chair visible on the left. Soft diffused light from upper left, moderate contrast, deep facial shadows, realistic fabric/skin texture, subtle film grain. Studio/interior photography, 50mm, f/2.8, ISO 200, high detail, natural proportions, clean composition, 1:1 aspect ratio. Negative: color, bright tones, smile, eye contact, text/logos, extra people, heavy retouching, glossy look, overexposure, blur, artifacts, face/hand distortions, extra fingers, watermark.
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
+
+vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.126.222:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
+
+vless://06d44c57-8e1a-41f4-b9c4-65d35869e078@78.17.125.201:13868?security=reality&encryption=none&pbk=sgpya-5ohMKCjzyrDe4RWz7b8O9XegDzQ88oHCV45Gk&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=booking.com&sid=e852dc#%F0%9F%94%A5%20%40Tasiyanc
+
+vless://e4514801-0d5a-42ba-869f-39bd605aef9e@18.153.84.121:22222?security=&encryption=none&headerType=none&type=tcp#%F0%9F%A1%A0%20%40Tasiyanc
+
+vless://e4514801-0d5a-42ba-869f-39bd605aef9e@63.178.105.116:22224?security=&encryption=none&headerType=none&type=tcp#%F0%AA%9A%82%20%40Tasiyanc
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9175
+
+<div align="center"><img src="files/post_9175_tasiyanc_9175.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" Golden Sunflower Gaze "
+
+Prompt 🤖🤖
+
+Ultra realistic beauty portrait using the reference image as identity anchor, preserve exact facial features, bone structure, eye shape, lips, skin tone, natural asymmetry and overall likeness. Extreme close-up, direct eye contact, sunflower covering half the face, petals softly touching cheek, nose and lips, delicate floral shadows on skin. Luxury skincare campaign, Vogue Beauty cover style, intimate editorial photography, shallow depth of field, ultra detailed flower texture, crisp iris details, warm cinematic highlights, soft shadows, natural window light, Canon EOS R5, RF 85mm f/1.2L, subtle film grain, fine art floral portrait, luxury beauty advertisement, elegant feminine mood, Pinterest-worthy composition.Photorealistic 8K, realistic anatomy, no Al look, no beauty filter, no skin smoothing, visible pores, authentic skin texture, vertical 5:7.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9173
 
@@ -285,59 +356,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 دریافت پرامپت👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
-ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9153
-
-<div align="center"><img src="files/post_9153_tasiyanc_9153.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌎هر کشور سازنده چه چیزی است؟
-فقط ایران ››››
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9152
-
-<div align="center"><img src="files/post_9152_tasiyanc_9152.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Fine Art Romance ❤️
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Multi⚡️━━━╮
-
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40Tasiyanc
-
-vless://c28ee61d-0d43-4e69-8e6a-6397ed0ffc03@109.69.218.168:443?security=reality&encryption=none&pbk=cv_KJnMzQUZruACPbH-BCgLWrYqPm2dbUymg-gW_sVc&headerType=none&fp=random&type=tcp&flow=xtls-rprx-vision&sni=agile-raptor.cdn.cachefleet.com#%40Tasiyanc
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.64:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20Speed%2001
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
-
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
+
+## tasiyanc — post 8451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه اسپانیا از کون اورد
+</div>
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
 
 ## tasiyanc — post 8449
 
@@ -120,29 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
-</div>
-
-## tasiyanc — post 8429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
 </div>
 

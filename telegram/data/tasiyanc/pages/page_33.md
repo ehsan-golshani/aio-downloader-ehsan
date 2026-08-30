@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 8912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 آکسیوس:
+
+در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 ترامپ:
+
+من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8909
+
+<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
+
+🔱 @Tasiyanc
+</div>
 
 ## tasiyanc — post 8905
 
@@ -258,48 +306,5 @@ dic.b-amooz.com
 🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز August 1، روز دوست دختره 
-😞
-
-پروکسی متصل | پروکسی متصل
-
-
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8881
-
-<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
-
-
-
-✈️@TASIYANC 
-✅
 </div>
 

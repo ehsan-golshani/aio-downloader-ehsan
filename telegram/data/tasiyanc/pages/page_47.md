@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 8473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ صدای انفجار در خرم آباد
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️صدای انفجار مهیب در کنارك
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ اورمیه و چابهار صدای انفجارررر
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8469
 
@@ -136,29 +171,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانییییییییییییا قهرمان جام جهانی شد
-</div>
-
-## tasiyanc — post 8452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماااااامممممممم
-</div>
-
-## tasiyanc — post 8451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه اسپانیا از کون اورد
-</div>
-
-## tasiyanc — post 8450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه گل صحیح اسپانیا هم آفساید گرفته شد
 </div>
 

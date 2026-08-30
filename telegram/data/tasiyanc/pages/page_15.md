@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 9364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 روزنامه نگار آلمانی: آیا شما مامور اسرائیل هستید؟
+
+شاهزاده رضا پهلوی : نه اما پدر بزرگ من به یهودیان پناه داد زمانی که شما آنها را در کوره ها می سوزاندید.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9363
+
+<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم جدید 🆕
+
+" Cyberpunk Redline Portrait "
+
+تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
+
+Prompt 🤖🤖
+
+Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9360
 
@@ -185,72 +240,5 @@ g25
 🙂این بازی خیلی این روزا ترند💥
 راحت میتونی پولت چند برابر کنی💖
 فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
-</div>
-
-## tasiyanc — post 9343
-
-<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟ویدئوبازی محبوب Chicky choice🌟
-
-فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
-
-💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
-⬅️امکان شارژ با کارت بانکی راحت و امن
-⬅️تسویه حساب سریع بدون احراز
-
-🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
-🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
-🚨ادرس ورود به سایت:
-💠http://betinja.bet/affiliates/?btag=2760677
-
-⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
-
-⭐کانال اطلاع رسانی سایت:👇 sr25
-💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

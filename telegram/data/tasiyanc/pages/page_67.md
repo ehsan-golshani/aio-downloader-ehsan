@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/08 16:59
+📅 آخرین بروزرسانی: 1405/06/08 21:25
 
 ---
+
+## tasiyanc — post 7818
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادامه اخبار رو از چنل پروکسی دنبال کنید ، چنلای مجموعه تاسیان بزودی همگی پرایوت میشه چه قطعی باشه نباشه
+
+https://t.me/+v0wRP5SGNrg5MThk ⭐️
+</div>
+
+## tasiyanc — post 7807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
+همش برا جذب ممبره
+</div>
+
+## tasiyanc — post 7806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
+</div>
+
+## tasiyanc — post 7799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+4 سرور سرعتی حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖 گیم 🎮
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7798
 
@@ -160,29 +205,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
-</div>
-
-## tasiyanc — post 7756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
-</div>
-
-## tasiyanc — post 7755
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووووری حملات آمریکا به اسکله حقانی در سیریك
-</div>
-
-## tasiyanc — post 7754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش اسرائیل به جنگ فعلی : خوابیما قطعش کنین
-</div>
-
-## tasiyanc — post 7753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تنگه هرمز بسته شد💪
 </div>
 
