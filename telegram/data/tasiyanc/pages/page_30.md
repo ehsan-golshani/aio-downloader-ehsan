@@ -1,8 +1,124 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8976
+
+<div align="center"><video src="files/post_8976_tasiyanc_8976.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8976_tasiyanc_8976.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
+
+❌با هر 1 میلیون شارژ ، 
+🤩
+🤩
+🤩 هزارتومان شارژ اضافی بگیر
+🅰️
+
+
+❌
+❌طرح شارژ رایگان فقط تا پایان مرداد ماه
+</div>
+
+## tasiyanc — post 8975
+
+<div align="center"><video src="files/post_8975_tasiyanc_8975.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8975_tasiyanc_8975.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #میلان Vs #اینتر💰
+
+🛍 #چلسی Vs #یوونتوس💰
+
+زمان: چهارشنبه ساعت ۱۴
+
+
+🚨 تجربه پیشبینی مطمئن با
+
+🤩 
+🤩 
+🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده
+❌
+
+
+🤩 
+🤩 درصد برگشت وجه در صورت باخت:
+
+🌐 betinja.bet
+
+🌐 betinja.bet
+کانال بونوس های رایگان g13
+@betinjabet
+</div>
+
+## tasiyanc — post 8974
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم…
+</div>
+
+## tasiyanc — post 8973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ترامپ برای بار ۱۰۰ : تا آخر امشب (سه‌شنبه) به جمهوری اسلامی فرصت مذاکره داده و باید تنگه هرمز رو باز بکنند و در صورت باز نشدن تنگه هرمز جمهوری اسلامی با حملاتی ویرانگر مواجه خواهد شد
+
+زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8972
+
+<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Fast Tekno💥.npvt
+</div>
+
+## tasiyanc — post 8970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
+📍
+
+آموزش اتصال 
+⚡️
+فعالسازی IPV6 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8969
+
+<div align="center"><video src="files/post_8969_tasiyanc_8969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8969_tasiyanc_8969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری، ترامپ: این آخرین فرصت ایران برای توافقه، اگه توافق نشه، جنگ قطعیه.
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8968
 
@@ -196,100 +312,5 @@ https://t.me/+gTClYDoqQdhkZjY8
 چنل خودمونه جوین شید استفاده کنید فرمارو همه از منبع ها خارجیه😉👍
 
 #admin
-</div>
-
-## tasiyanc — post 8953
-
-<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
-
-برای دریافت وارد کانال زیر شوید🔽🔽🔽
-
-https://t.me/+gTClYDoqQdhkZjY8
-
-g12
-
-https://t.me/+gTClYDoqQdhkZjY8
-
-     🔼🔼🔼🔼🔼🔼🔼🔼🔼
-</div>
-
-## tasiyanc — post 8952
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
-یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%92%96
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%F0%9F%8F%9D%EF%B8%8F%40Tasiyanc%20%F0%9F%92%A5
-
-vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%8F%86
-
-ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9
-
-Location ⚡️🇮🇹
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴🇮🇷
-</div>
-
-## tasiyanc — post 8948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت📱
-
-۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دزدی از جیب مردم تا کی ؟
-
-
-🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
-برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 SubLink Unlimited Vip ⚡️ ━━━╮
-
-
-https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-
-آموزش اضافه کردن ساب ⚡️
-
-تست بگیرید وصل شید ✅
-
-اتصال امن برای همه 🇮🇷
-
-👹 Join As @TASIYANC ✅
 </div>
 

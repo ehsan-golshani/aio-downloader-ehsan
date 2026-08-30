@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 7056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ اختصاصی دارک تانل 🌟
+
+حجم نامحدود - سرعتی 
+🚀
+
+تست شده رو تمام نت ها ✅
+
+دانلود Dark Tunnel  🕹
+
+آموزش اتصال به سرور دارک ⏩
+
+T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7055
+
+<div align="center"><img src="files/post_7055_tasiyanc_7055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
+
+## tasiyanc — post 7054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
+
+## tasiyanc — post 7052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختصاصی Ovpn  📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 7050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی با نتیجه مساوی پایان یافت
+</div>
+
+## tasiyanc — post 7047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاج صفی از بازیکنان آینده دار اومد زمین 🤣🤣
+</div>
+
+## tasiyanc — post 7042
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟🌟 New Method (Hysteria2) ⚡️🔥
+
+hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@185.228.139.247:4433?security=tls&insecure=1&sni=de2.xiaoliyu.cyou#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%AA%90%40Tasiyanc%F0%9F%AA%90
+Location 🇩🇪
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7041
 
@@ -155,75 +226,5 @@ matador ⚡ Fast.npvt
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7004
-
-<div align="center"><img src="files/post_7004_tasiyanc_7004.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماممم دختره وسط بازی قطر سوییس لخت شد پرید وسط زمین! 😐 پشمای بازیکنا کز خورد...
-کارگردان سریع نما رو عوض کرد ولی فیلم تماشاچیا از این صحنه اومد. کلیک کن فیلمشو ببین تا پاک نشده 👇
-
-مشاهده بدون سانسور ویدیو🔞
-</div>
-
-## tasiyanc — post 7003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وای ببینید چی پیدا کردمه😂
-</div>
-
-## tasiyanc — post 7002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-۲ سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7001
-
-## tasiyanc — post 6996
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30 بلژیک - مصر بامداد 4.30 نیوزلند - تیم ملی @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی های بعدی 22.30
-بلژیک - مصر
-
-بامداد 4.30
-نیوزلند - تیم ملی
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-5سرور سرعتی نامحدود تمام نتها  🔥
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

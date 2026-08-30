@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8788
+
+<div align="center"><img src="files/post_8788_tasiyanc_8788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه پراید هاچبک تو تهران بخاطر اینکه سیستم صوتیش رو اصولی نصب نکرده بود، به محض اینکه رانندش ولوم آهنگ رو تا آخر بالا برد منفجر شد :
+
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان امنیت روسیه: پاول دوروف، بنیانگذار تلگرام، در فهرست افراد تحت تعقیب بین‌المللی قرار گرفت!!
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8786
+
+<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر گلای توی خونه
+</div>
+
+## tasiyanc — post 8784
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8783
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8782
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ :
+
+نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8781
 
@@ -156,86 +225,5 @@
 🔘 @WePariFarsi
 
 🔘 @DerbyBetOfficial
-</div>
-
-## tasiyanc — post 8761
-
-<div align="center"><img src="files/post_8761_tasiyanc_8761.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️هنوز داری روی برنده-بازنده شرط می‌بندی؟
-
-📌​اگه حرفه‌ای هستی، میدونی که سود اصلی تو «گزینه‌های خاص» خوابیده؛ نه نتیجه بازی!
-
-
-​✔️ برای دوستانی که با کریپتو شارژ میکنند (وی‌پاری):
-بدون محدودیت سقف برداشت، با ضریب‌های واقعی و آپشن‌های ریزِ بازی و شرطبندی های میلیاردی.
-🔘 [Wepari.com]
-
-
-​✔️ برای طرفداران کارت‌به‌کارت و واریز ریالی
-🔘 (DERBYBET.Com):
-سریع‌ترین واریز ریالی با محیط کاربری امن برای شرط‌های سنگین و آپشن های فراوان.g6
-</div>
-
-## tasiyanc — post 8760
-
-<div align="center"><img src="files/post_8760_tasiyanc_8760.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پژمان بهروزی، شرکت کننده برنامه ایدز ابدی، اومده تو برنامه خط قرمز صداوسیما برا ایرانیا از وطن پرستی بگه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8759
-
-<div align="center"><img src="files/post_8759_tasiyanc_8759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانی بودنم سخته ، اداره برق نه تنها برقو قطع می‌کنه ، بعدش میاد یه اپ معرفی می‌کنه پول میگیره میگه کی برقتون قطع میشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود لوک ترکیه📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8757
-
-<div align="center"><video src="files/post_8757_tasiyanc_8757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8757_tasiyanc_8757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صنعت پهبادی اوکراین تو یه لول دیگه اس !
-🇷🇺🇺🇦 یک تانک روسی T-80BVM با ارزش تقریبی ۴ میلیون دلار، توسط یک پهپاد ۵۰۰ دلاری اوکراینی منهدم شد.
-﻿
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران جای عجیبیه جای لف دادن از چنل سام صابری حرومزاده ممبراش بالا اومده
-</div>
-
-## tasiyanc — post 8755
-
-<div align="center"><img src="files/post_8755_tasiyanc_8755.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسلیت.
 </div>
 

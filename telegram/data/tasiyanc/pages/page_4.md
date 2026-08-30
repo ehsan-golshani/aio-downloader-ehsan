@@ -1,8 +1,100 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 9628
+
+<div align="center"><img src="files/post_9628_tasiyanc_9628.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📹20 تا فیلم برتر سینمایی پیشنهادی که میتونید ببینید !
+در دو ژانر متفاوت « عاشقانه و اکشن »
+
+سایت پیشنهادی دانلود و پخش بدون سانسور
+https://www.novigrad.top
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
+😉
+
+با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
+🔥
+
+بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
+JOIN JOIN JOIN
+JOIN JOIN JOIN
+</div>
+
+## tasiyanc — post 9626
+
+<div align="center"><img src="files/post_9626_tasiyanc_9626.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات هوش مصنوعی فوتبال
+🤖
+
+ربات دستیار هوش مصنوعی و آنالیز مسابقات و پیشبینی بازی‌ها بر پایه AI 
+🔥
+
+ویژگی های کلیدی
+
+1- 10+ سایت شرطبندی بزرگ، از بازارهای آسیایی و اروپایی را پوشش می‌دهد.
+- هشدارهای زمان واقعی برای تحرکات مشکوک بازار.
+- کاهش ضریب، حرکات خط و قفل بازار را دنبال می کند.
+
+
+💠 لینک عضویت کانال راهنما ربات:
+https://t.me/+86B34ioXJtUwODg6
+https://t.me/+86B34ioXJtUwODg6
+</div>
+
+## tasiyanc — post 9625
+
+<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
+
+بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+🩸 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9623
+
+## tasiyanc — post 9621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
+
++ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9620
 
@@ -231,123 +323,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡ 05.ovpn
-</div>
-
-## tasiyanc — post 9605
-
-<div align="center"><img src="files/post_9605_tasiyanc_9605.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏✅آپدیت 12.10.1 تلگرام منتشر شد !
-
-🟠 اضافه شدن قابلیت Rich Text:
-تلگرام قابلیت Rich Text رو برای کاربران پریمیوم بهبود داده و علاوه بر جدول‌سازی و... حالا میشه دکمه های مختلف با چند رنگ برای لینک، منشن و کپی یک متن خاص در اون ها قرار داد و پشتیبانی از آپلود فایل هم به اون اضافه شده.
-🟠پیام خوش آمد گویی:
-
-تلگرام در آپدیت جدید 12.10 امکان اضافه کردن پیام خوش آمدگویی به اعضای جدید رو اضافه کرده. برای فعال کردن پیام خوش آمدگویی فقط کافیه به تنظیمات کانال یا گروه مدنظرتون برین و در اونجا گزینه Welcome Message رو انتخاب کنید.
-
-🟠پیام کاستوم شده ی گیفت‌ها
-
-و در نهایت حالا در هنگام خرید گیفت های آپگرید شده و هدیه دادن اون ها، میتونین یادداشتی برای طرف مقابل روی گیفت درج کنید تا عشقتون رو بیش از پیش با شوآف کردنش به طرف ثابت کنید
-⬇️دانلود آپدیت «Android» و «iOS»
-🕹 اندروید Play Store
-📱  آیفون   Apple Store
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9603
-
-<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃😃
-         😃
-😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9601
-
-<div align="center"><img src="files/post_9601_tasiyanc_9601.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تصاویر لو رفته سامسونگ S27 که قراره تو سال 2027 عرضه بشه ، تا حدودی ماژول دوربین از آیفون ۱۷ پرومکس الهام گرفته شده
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-🩸 T.me/Tasiyanc
 </div>
 

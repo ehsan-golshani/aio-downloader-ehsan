@@ -1,8 +1,116 @@
 # آرشیو کانال ProxyMTProto - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/06/08 11:08
+📅 آخرین بروزرسانی: 1405/06/08 16:57
 
 ---
+
+## ProxyMTProto — post 48539
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: openhostings.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.nowabst.net
+Port: 853
+Secret: ee1bbdcdcfd200974bb999813180a12738766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zinova.co.uk.
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ge.nowabst.net
+Port: 853
+Secret: ee5a281fcc91f7ec3ce293d643395222ad766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: www2.nilmart.ir
+Port: 443
+Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mt.nowabst.net
+Port: 853
+Secret: ee4e9fcd5caf6e9be2f8ec43e370e902d6766b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48532
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.antitspu.com
+Port: 443
+Secret: ee6217919fd71929ed6ab41f8d01e20298676f2e616e7469747370752e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48531
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn.savelyev.click
+Port: 443
+Secret: ee16fa5356dcb833ae6b28d954fb70e08263646e2e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48529
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48528
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ethereal4.arixo.shop
+Port: 443
+Secret: ee46a1111ddd4e14df06045987bd9c3036657468657265616c342e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48527
 
@@ -73,114 +181,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: get.utkanos.life
 Port: 443
 Secret: ee50bc25d9708e2abc9d39ff7c654de9a26765742e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48519
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: spider.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.7.181.135
-Port: 443
-Secret: ddebf4e93d8565ca5d242efe5aa70822c3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.nowabst.net
-Port: 853
-Secret: eef17eaf287401413739814ccc05a709a66164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: full-vasl.ir-xyz.gdhbvjshjrf.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.antitspu.com
-Port: 443
-Secret: ee6217919fd71929ed6ab41f8d01e20298676f2e616e7469747370752e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: portal.malevich7.top
-Port: 443
-Secret: ee3eb96f42eacd0247864367634aabb927706f7274616c2e6d616c6576696368372e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 92.246.87.243
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 34.6.97.246
-Port: 443
-Secret: dde15c0efa2f77bf7378cb3dc8cea5ddde
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

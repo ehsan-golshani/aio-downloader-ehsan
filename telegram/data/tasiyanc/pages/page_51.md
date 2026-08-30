@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزرای CBS به نقل از مقام نظامی: حملات امشب دقایقی دیگر آغاز میشود و گستردگی بیشتری دارد
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در سنندج
+
+۴انفجار در بندر عباس
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌دلار ۱۹۵رو شکست
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8363
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8362
+
+<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹مرگبارترین رکورد گینس
+
+در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
 
 ## tasiyanc — post 8359
 
@@ -169,81 +231,5 @@ Multi Location ⚡ Fast.npvt
 گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
 
 @Tasiyanc ✅| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8335
-
-<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زیبایي کوههای مریخيِ چابهارِ زیبا
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8324
-
-<div align="center"><img src="files/post_8324_tasiyanc_8324.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاوت‌های جنسی در دنیای جانوران 🦋
-
-پروکسی | پروکسی | پروکسی | پروکسی
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
-</div>
-
-## tasiyanc — post 8322
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز زیاد شده ، اخبار رو از چنل خودمون دنبال کنین
-( رک بگم حمایت کنین جوین بدین 😂❤️)
-
-@TasiyanProxy
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 8321
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طرف کلا نمیدونه دیتاسنتر چیه هی تو چنلش میزنه در حال قطع شدن
-</div>
-
-## tasiyanc — post 8320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

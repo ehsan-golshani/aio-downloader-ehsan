@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
+
+## tasiyanc — post 8447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین کامبک میزنه یا ن؟
+</div>
+
+## tasiyanc — post 8446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیااااااااااا میزنه
+</div>
+
+## tasiyanc — post 8445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرررررررررررررررران تووووووووووورس
+</div>
+
+## tasiyanc — post 8444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگگگگگگگگل
+</div>
+
+## tasiyanc — post 8443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت اول اضافه تموم شد ، میریم پنالتیا؟
+</div>
 
 ## tasiyanc — post 8440
 
@@ -102,50 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
-</div>
-
-## tasiyanc — post 8424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه آرژانتین از کون اورد
-</div>
-
-## tasiyanc — post 8423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
-</div>
-
-## tasiyanc — post 8421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
-</div>
-
-## tasiyanc — post 8419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه چی به کنار خوب این عربارو گاییدن🤣
-بی خایه های کودن
 </div>
 

@@ -1,8 +1,103 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8953
+
+<div align="center"><img src="files/post_8953_tasiyanc_8953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از این منبع VIP روسی هروز براتون فرم میزاریم😍🔥
+
+برای دریافت وارد کانال زیر شوید🔽🔽🔽
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+g12
+
+https://t.me/+gTClYDoqQdhkZjY8
+
+     🔼🔼🔼🔼🔼🔼🔼🔼🔼
+</div>
+
+## tasiyanc — post 8952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خط فقر برای یک خانواده ۴ نفره در تهران به ۹۰ میلیون تومن رسیده.
+یعنی اگه درآمد کل خانواده از این مبلغ کمتر باشه زیر خط فقر حساب می‌شن در حالی که حقوق پایه وزارت کار فقط حدود 17 میلیون تومنه.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@ronaldo15.fordnsdirect.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%92%96
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@108.162.198.5:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%F0%9F%8F%9D%EF%B8%8F%40Tasiyanc%20%F0%9F%92%A5
+
+vless://8dc7722c-2767-4eea-a28b-2f8daacc07e3@sca8.directdnsai.shop:8880?mode=gun&security=none&encryption=none&type=grpc#%40TASIYANC%20%F0%9F%8F%86
+
+ss://YWVzLTI1Ni1nY206UmV4bkJnVTdFVjVBRHhH@185.213.20.110:7001#%40Tasiyanc%20%F0%9F%87%AE%F0%9F%87%B9
+
+Location ⚡️🇮🇹
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏴🇮🇷
+</div>
+
+## tasiyanc — post 8948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت📱
+
+۶ سرور سرعتی تست شده  لوکیشن ایتالیا 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دزدی از جیب مردم تا کی ؟
+
+
+🔴جدیدا اینترنت مردم به طرز وحشتناکی خیلی زود و عجیب تموم میشه!
+برای استفاده از اینترنت بین الملل دارن ضریب ۲.۷ حساب میکنن واقعا خنده داره ، نمی‌دونم چی بگم واقن
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 SubLink Unlimited Vip ⚡️ ━━━╮
+
+
+https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+
+آموزش اضافه کردن ساب ⚡️
+
+تست بگیرید وصل شید ✅
+
+اتصال امن برای همه 🇮🇷
+
+👹 Join As @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8944
 
@@ -168,82 +263,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 
 👹@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8931
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا یک ساعت دیگه یه سایت عالی براتون معرفی میکنم ( که هیچ جایی به شما معرفی نشده) که احتمالا خیلی بکارتون بیاد
-</div>
-
-## tasiyanc — post 8930
-
-## tasiyanc — post 8929
-
-<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#کاربردی 🆕
-
-🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
-
-
-• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
-• درصد احتمال اسکم بودن رو نشون میده
-• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
-👉 https://scamminder.com/
-
-👹 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8928
-
-<div align="center"><video src="files/post_8928_tasiyanc_8928.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8928_tasiyanc_8928.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شبی که مردم ایران با آمریکا ابراز همدردی کردند
-
-یازدهم سپتامبر 2001 بعد از فاجعه بزرگ برخورد ۲ هواپیمای ربوده شده توسط «گروهک تروریستی القائده» به برج های دوقلو تجارت جهانی که منجر به کشته شدن تعداد زیادی غیرنظامی شد مردم ایران برای ابراز همدردی به خیابان ها آمدند و شعار « آمریکا تسلیت ؛ مرگ بر القائده» سر دادند و به یاد کشته شده ها شمع روشن کردند
-﻿
-📱@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴احمدرضا رادان، فرمانده کل نیروی انتظامی:
-
-من یه مشکلی برام پیش اومد که گفتم نمیتونم در جلسه شورای دفاع در نهم اسفندماه شرکت کنم و غلامرضا رضاییان، رییس سازمان اطلاعات فراجا به جای من در جلسه شرکت کرد و کشته شد.
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 8925
-
-<div align="center"><video src="files/post_8925_tasiyanc_8925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8925_tasiyanc_8925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان g11
-@betinjabet
 </div>
 

@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/08 11:10
+📅 آخرین بروزرسانی: 1405/06/08 16:59
 
 ---
+
+## tasiyanc — post 8226
+
+<div align="center"><img src="files/post_8226_tasiyanc_8226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ضربه سختی در راه است
+خواهیم دید چه میشود🤣
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 پیت هگست: کنترل تنگه هرمز دست ایران نیست
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨جمهوری اسلامی یکی از رادار های آمریکا در کویت را مورد هدف قرار داد
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وطن عشق من🇮🇷
+هموطن جان من💔
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پل ارتباطی جم سیراف رو هم زدن
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استانداری بوشهر :
+
+در حملۀ دقایقی پیش به بوشهر چند موشک به پایگاه‌های هوایی و پایگاه دریایی بوشهر اصابت کرد.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹27 خرداد معاون وزیر ارتباطات گفت که اینترنت دیگه در شرایط بحران قطع نخواهد شد.
+با این حال طی ۲۴ ساعت گذشته وضعیت ترافیک اینترنت چند استان از جمله اصفهان، فارس، خراسان رضوی، البرز و تهران با کاهش نسبی ترافیک اینترنت مواجه بوده‌اند.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8219
 
@@ -112,64 +175,5 @@
 🚨 حملات موشکی سپاه آغاز شد
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 سازمان ملل دیگه خیلییییییی نگران شدیم
-</div>
-
-## tasiyanc — post 8203
-
-<div align="center"><img src="files/post_8203_tasiyanc_8203.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨وضعیت آسمان ایران هم اکنون
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ارتش آمریکا یک عملیات هلی‌بورنی را بر روی یک نفتکش ایرانی انجام داد هم اکنون
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Ohhh
-</div>
-
-## tasiyanc — post 8200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨 تمامی پرواز های ایران هم اکنون کنسل شد
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پرواز جنگنده های اسرائیلی به مقصد نامعلوم
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8197
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روبیکا لینک سیو کنین در صورت قطعی عضو شید فعلا فعالیت نداریم
-https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 </div>
 
