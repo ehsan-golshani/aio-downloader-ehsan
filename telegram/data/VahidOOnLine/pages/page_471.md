@@ -1,8 +1,55 @@
 # آرشیو کانال VahidOOnLine - صفحه 471
 
-📅 آخرین بروزرسانی: 1405/06/08 03:21
+📅 آخرین بروزرسانی: 1405/06/08 05:28
 
 ---
+
+## VahidOOnLine — post 246123
+
+<div align="center"><img src="files/post_246123_VahidOOnLine_246123.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مکرون با انتشار ویدیویی از لحظه امضای یادداشت تهران و واشینگتن از سوی ترامپ نوشت: «این توافق راه را برای صلحی پایدار هموار می‌کند و امکان بازگشایی تنگه هرمز را فراهم می‌سازد. این گامی مهم در مسیر درست برای هم‌وطنان ماست که به‌زودی کاهش قیمت انرژی را امکان‌پذیر خواهد کرد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنج‌شنبه ۲۸ خرداد پس از شرکت در نشست سران گروه هفت (G7) در فرانسه و حضور در ضیافت شام با امانوئل مکرون، رئیس‌جمهوری فرانسه، در کاخ ورسای، این کشور را به مقصد آمریکا ترک کرد.
+به گزارش رویترز، سفر ترامپ در حالی پایان یافت که هم‌زمان تفاهم‌نامه میان آمریکا و ایران برای پایان جنگ به امضای طرفین رسید. ترامپ هنگام ترک ورسای در پاسخ به پرسش خبرنگاران گفت: «امضا شده است؛ ما آن را در ورسای امضا کردیم.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246121
+
+<div align="center"><img src="files/post_246121_VahidOOnLine_246121.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌های جمهوری اسلامی تصویر پزشکیان را هنگام امضای یادداشت تفاهم با آمریکا منتشر کردند. از سوی دیگر، ترامپ نیز در کاخ ورسای فرانسه این یادداشت تفاهم را امضا کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 246120
+
+<div align="center"><video src="files/post_246120_VahidOOnLine_246120.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_246120_VahidOOnLine_246120.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️دونالد ترامپ، رئیس‌جمهوری آمریکا، بامداد پنجشنبه ۲۸ خردادماه پس از ضیافت شام در کاخ ورسای، همراه با امانوئل مکرون، رئیس‌جمهوری فرانسه، این کاخ را ترک کرد.
+
+ترامپ هنگام خروج از کاخ ورسای در پاسخ به پرسش خبرنگاران، امضای توافق تهران و واشنگتن را تایید کرد و گفت: «امضا شده است.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 246119
 
@@ -215,59 +262,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «موشک‌های ایران فقط برای شلیک شدن هستند نه برای مذاکره. موشک‌های ما اصلا دوست ندارند که کسی درباره‌شان حرف بزند درباره توانایی دفاعی ایران در هیچ روندی و با هیچ طرفی صحبت نخواهد شد.»
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246103
-
-<div align="center"><img src="files/post_246103_VahidOOnLine_246103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «از ابتدا گفته‌ایم که مواد غنی‌شده هسته‌ای به خارج از ایران منتقل نخواهد شد. رقیق‌سازی مواد غنی‌شده گزینه جدیدی نیست، الان هم به عنوان یک گزینه معرفی شده است تا راه را بر گزینه‌های دیگر ببندیم.»
-او افزود: «گزینه غیرقابل قبول برای ما، انتقال مواد غنی‌شده هسته‌ای به خارج از کشور است.»
-
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246102
-
-<div align="center"><video src="files/post_246102_VahidOOnLine_246102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_246102_VahidOOnLine_246102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدباقر قالیباف، رییس هیات مذاکره‌کننده جمهوری اسلامی با آمریکا، گفت هر پیروزی در جنگ اگر در نهایت به یک سند حقوقی و سیاسی منتهی نشود و ثبت نشود، هیچ منفعتی نخواهد داشت.
-او افزود جمهوری اسلامی در جنگ ۴۰ روزه پیروز شده و دستاورد این پیروزی در مذاکره شکل می‌گیرد.
-به گفته قالیباف، این تفاهم‌نامه «کارنامه شکست آمریکا» است؛ تعبیری که او آن را نقل‌قولی از غربی‌ها دانست.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246101
-
-<div align="center"><img src="files/post_246101_VahidOOnLine_246101.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️خبرگزاری رویترز به نقل از یک مقام کاخ سفید گزارش داد دونالد ترامپ، رئیس‌جمهوری آمریکا، چهارشنبه ۲۷ خرداد تفاهم‌نامه با ایران را که با هدف پایان دادن به جنگ میان دو کشور تدوین شده است، امضا کرد.
-این مقام کاخ سفید جزئیات بیشتری درباره روند امضا یا مفاد تازه این تفاهم‌نامه ارائه نکرد. پیش‌تر اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی، اعلام کرد توافق ایران و آمریکا به امضای روسای جمهوری دو کشور رسیده است.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 246100
-
-<div align="center"><img src="files/post_246100_VahidOOnLine_246100.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسماعیل بقایی، سخنگوی وزارت خارجه جمهوری اسلامی، گفت: «احتمالا اکنون متن تفاهم‌نامه اسلام آباد به امضای روسای جمهور ایران و آمریکا رسیده باشد. متن این تفاهم‌نامه الان رسما نهایی شده است، چرا که دو طرف آن را امضا کرده‌اند. این تفاهم‌نامه قرار شد که به صورت دیجیتال امضا شود.»
-او افزود: وقتی تفاهم‌نامه به امضای روسای جمهوری دو کشور برسد نقض آن هزینه بیشتری خواهد داشت.
-
 ‌🏁 🇬🇧 IranintlTV
 
 🤖 @VahidOOnLine

@@ -1,8 +1,69 @@
 # آرشیو کانال VahidOOnLine - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/08 03:21
+📅 آخرین بروزرسانی: 1405/06/08 05:28
 
 ---
+
+## VahidOOnLine — post 256769
+
+<div align="center"><img src="files/post_256769_VahidOOnLine_256769.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همزمان با تداوم سقوط آزاد ارزش ریال و در حالی که قیمت دلار آمریکا از روز دوشنبه به بیش از ۲۰۰ هزار تومان افزایش یافته است، بانک مرکزی اعلام کرد ۵۰۰ میلیون دلار اسکناس به بانک‌های متقاضی می‌دهد.
+
+براساس بیانیه بانک مرکزی «در راستای مدیریت بازار ارز و با هدف تقویت عرضه اسکناس و تسهیل دسترسی متقاضیان حقیقی و حقوقی، امروز نخستین مرحله عرضه اسکناس ارز به شبکه بانکی را آغاز می‌کند.»
+
+به گفته این عالی‌ترین نهاد مالی جمهوری اسلامی ایران «در این مرحله ۵۰۰ میلیون دلار اسکناس در اختیار بانک‌های متقاضی قرار می‌گیرد تا از طریق شعب منتخب و صرافی‌های بانکی به متقاضیان عرضه شود.»
+
+این نخستین واکنش بانک مرکزی ایران به اجرای سیاست «طرد اقتصادی آمریکا» به شمار می‌رود. عبدالناصر همتی، رئیس بانک مرکزی دیروز ادعا کرده بود که قیمت دلار در روزهای آینده کاهش خواهد یافت.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256768
+
+<div align="center"><img src="files/post_256768_VahidOOnLine_256768.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بدر البوسعیدی، وزیر امور خارجه عمان روز سه‌شنبه سوم شهریور وارد تهران شد و مورد استقبال عباس عراقچی قرار گرفت.
+
+اسماعیل بقایی، سخنگوی وزارت امور خارجه جمهوری اسلامی روز گذشته گفته بود سفر بوالسعیدی ارتباطی با سفر عاصم منیر فرمانده ارتش پاکستان به ایران ندارد.
+
+جمهوری اسلامی ایران و عمان از زمان آغاز «آتش‌بس» شکننده میان ایران و آمریکا، گفتگوها برای آنچه تهران «نظم حقوقی جدید تنگه هرمز» می‌خواند را آغاز کرده‌اند. با این حال هنوز نتیجه مشخصی از چند ماه مذاکره به دست نیامده است.
+
+دونالد ترامپ، رئیس جمهوری آمریکا هفته پیش تهدید کرد که در صورت قرار گرفتن عمان در مسیر «توافق با ایران» این کشور را هم بمباران خواهد کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256767
+
+<div align="center"><video src="files/post_256767_VahidOOnLine_256767.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256767_VahidOOnLine_256767.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال برگزاری مراسم تولد جاویدنام عذرا بهادری‌نژاد را بر سر مزارش نشان می‌دهد.
+﻿عذرا بهادری‌نژاد، ۳۹ ساله و مادر دو فرزند، شامگاه ۱۹ دی ۱۴۰۴ در سبزوار با اصابت مستقیم گلوله ماموران جان باخت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256766
+
+<div align="center"><video src="files/post_256766_VahidOOnLine_256766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256766_VahidOOnLine_256766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که جلسات مجلس شورای اسلامی همچنان از بیم حملات جدید آمریکا و اسرائیل با حضور محدود اعضای هیات رئیسه و عمدتا «از راه دور» برگزار می‌شود، هفت عضو «حضوری» جلسه علنی مجلس روز سه‌شنبه سوم شهریور و در واکنش به اجرای «عملیات طرد اقتصادی» آمریکا علیه جمهوری اسلامی ایران، شعار مرگ بر آمریکا و مرگ بر اسرائیل سر دادند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256765
 
@@ -222,60 +283,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اخبار ایران در رسانه‌های جهان: سه‌شنبه ۳ شهریور ۱۴۰۵
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256740
-
-<div align="center"><img src="files/post_256740_VahidOOnLine_256740.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-العربیه و الحدث، روز سه‌شنبه سوم شهریورماه به نقل از یک مقام رسمی آگاه به مذاکرات، گزارش کردند که عاصم منیر، فرمانده ارتش پاکستان، در جریان سفر به تهران، پیشنهاد آمریکا مبنی بر پایان محاصره و رفع تحریم‌ها را در قبال بازگشایی تنگه هرمز و پایان حملات نیروهای نیابتی جمهوری اسلامی، ارائه کرده است.
-
-براساس این گزارش، همین مقام آگاه به این دو رسانه عربستان سعودی گفته که محسن رضایی، نماینده رهبر جمهوری اسلامی و دبیر شورای عالی امنیت ملی در دیدار با عاصم منیر گفته است که مقام‌های عالی‌رتبه جمهوری اسلامی به مشورت‌های داخلی درباره این پیشنهاد ادامه می‌دهند و در اسرع وقت به آن پاسخ خواهند داد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256739
-
-<div align="center"><video src="files/post_256739_VahidOOnLine_256739.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256739_VahidOOnLine_256739.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید برای دو ورق قرص ۴۰۰ هزار تومان پرداخت کرده و باقی پول هم چسب زخم به او داده‌اند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری رویترز تصاویر شاهدان عینی که از وقوع گرباد در روستای ورزی در جنوب فرانسه را منتشر کرد.
-
-در این ویدیو که در شبکه‌های اجتماعی منتشر شده و رویترز صحت و زمان آن را تائید کرده است، یک گردباد در حال شکل‌گیری و چرخش زیر یک رعد و برق شدید در جنوب شهر کرکسون در جنوب فرانسه دیده می‌شود.
-
-رسانه‌های محلی گزارش کردند وقوع طوفان باعث خسارات قابل توجه به خانه‌ها شد، حداقل ۲۸ نفر زخمی بر جا گذاشت و برق حدود ۲۸۰۰ خانوار را قطع کرد.
-
-فرانسه، همچون دیگر کشورهای اروپایی، پس از یک دوره طولانی و بی‌سابقه گرما به استقبال پاییز می‌رود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256737
-
-<div align="center"><video src="files/post_256737_VahidOOnLine_256737.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256737_VahidOOnLine_256737.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال سکه یک یورویی را در برابر اسکناس دو میلیون ریالی نشان می‌دهد و با طعنه می‌گوید: «این هم دستاورد رژیم جمهوری اسلامی بعد از سال‌ها حکومت.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
