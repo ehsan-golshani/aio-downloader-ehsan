@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 9448
+
+<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
 
 ## tasiyanc — post 9447
 
@@ -271,17 +299,5 @@ Roast me , no filter , no mercy
 
 #N
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9428
-
-<div align="center"><img src="files/post_9428_tasiyanc_9428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فیلم تجاوز دو مرد به یک دختر ، متاسفم که وجدان ندارن دوتایی سر یه آدم مظلوم ...
-
-مشاهده فیلم
-
-@Tasiyanc
 </div>
 

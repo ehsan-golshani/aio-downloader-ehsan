@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 8781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
 
 ## tasiyanc — post 8780
 
@@ -231,11 +237,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تسلیت.
-</div>
-
-## tasiyanc — post 8754
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip for TS ⚡🔥.npvt
 </div>
 

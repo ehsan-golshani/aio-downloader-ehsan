@@ -1,8 +1,71 @@
 # آرشیو کانال ProxyMTProto - صفحه 135
 
-📅 آخرین بروزرسانی: 1405/06/08 01:25
+📅 آخرین بروزرسانی: 1405/06/08 11:08
 
 ---
+
+## ProxyMTProto — post 47947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp10.sosproxy.space
+Port: 443
+Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47946
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rus25.loveproxy.xyz
+Port: 443
+Secret: eebd0c4928b57a8e4704f95e1b956b9cb362726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 9965
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: glide.proxyonline.online
+Port: 443
+Secret: eeb4cf448c2c66dc6151b6746bd1799ae5676c6964652e70726f78796f6e6c696e652e6f6e6c696e65
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47942
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 47941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fresh.nolags.pw
+Port: 443
+Secret: dd691fa48fcc661b68fe4f5200c5b174f9
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47940
 
@@ -113,69 +176,6 @@ Secret: dd287755b048284177f71c965b016b38cc
 </div>
 
 ## ProxyMTProto — post 47928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo.proxytelega.store
-Port: 443
-Secret: eedb7eda819ee3499ac5f5d2a8803be174747572626f2e70726f787974656c6567612e73746f7265
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s01.neo-trading.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 61016
-Secret: 7nnnAQIAAQAH8AMDhuJMOt0%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s02.neo-trading.org
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47923
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 9965
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: europe.nolags.pw
-Port: 443
-Secret: dd35cf6d34b82d8531a8c93aea1fa2f72b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47921
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

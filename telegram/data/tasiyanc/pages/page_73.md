@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 7563
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡️🚀 Premium.npvt
+</div>
 
 ## tasiyanc — post 7560
 
@@ -240,11 +246,5 @@ Password :  @Tasiyanc ❤️
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
-</div>
-
-## tasiyanc — post 7524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇦🇪@Tasiyanc ⚡️.nm
 </div>
 

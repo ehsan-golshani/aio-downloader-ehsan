@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 8754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip for TS ⚡🔥.npvt
+</div>
 
 ## tasiyanc — post 8753
 
@@ -217,24 +223,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc ⚡🇹🇷.nm
-</div>
-
-## tasiyanc — post 8725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-تست شده روی همه نت ها
-
-آموزش اتصال روی اندروید
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ @TASIYANC ⭐️
 </div>
 

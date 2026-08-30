@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 9620
+
+<div align="center"><img src="files/post_9620_tasiyanc_9620.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: ماموریت به پایان رسید / ماموریت با موفقیت انجام شد .
+
++ دو معنی میده
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9619
 
@@ -337,17 +349,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9593
-
-<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨آیفون ۱۷ پرومکس ۲ ترابایت:
-۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
-
-
-🩸 @Tasiyanc
 </div>
 

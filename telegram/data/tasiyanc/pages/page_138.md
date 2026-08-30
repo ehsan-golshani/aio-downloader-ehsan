@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 138
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 5579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن یادتون نره 💋
+</div>
 
 ## tasiyanc — post 5578
 
@@ -161,11 +167,5 @@ WAR 🔥.npvt
 
 🚨باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5558
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️⭕️
 </div>
 

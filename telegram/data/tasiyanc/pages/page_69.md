@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 7705
+
+<div align="center"><img src="files/post_7705_tasiyanc_7705.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پایان یک اسطوره CR7 💔🤔
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 7704
 
@@ -200,13 +209,5 @@ VIP 🎯 @Tasiyanc.nm
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️ 💘 دریافت کانفیگ👈 💘
-</div>
-
-## tasiyanc — post 7678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ پرسرعت وایرگارد مخصوص گیم و وبگردی داخل ربات آپدیت شد عشق کنید⚡️
-
-💘 دریافت کانفیگ👈 💘
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/08 01:27
+📅 آخرین بروزرسانی: 1405/06/08 11:10
 
 ---
+
+## tasiyanc — post 9248
+
+<div align="center"><video src="files/post_9248_tasiyanc_9248.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9248_tasiyanc_9248.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دانشجوی ۲۱ ساله آمریکایی در یک ماه با یک دوست دختر مجازی مبتنی بر هوش مصنوعی ۴۳,۰۰۰ دلار درآمد کسب کرد
+.
+
+یه حساب OnlyFans به نام Maya راه‌اندازی کرده با برچسب ترک تحصیل کرده رشته روانشناسی UCF، با ۱,۱۴۷ مشترک پول
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 9247
 
@@ -241,22 +255,5 @@ r22
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد! نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان نرخ چهارم: ۸۷,۲۰۰ تومان این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان…
-</div>
-
-## tasiyanc — post 9220
-
-<div align="center"><img src="files/post_9220_tasiyanc_9220.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 پرامپت VİP برای وطن پرستان !
-
-اگر در زمان هخامنشیان 🤴 به دنیا میومدی شغلت چی بود؟؟
-
-Prompt 🤖🤖
-
-
-Create a premium cinematic infographic poster using the uploaded photo as the exact reference. Preserve facial identity, face shape, eyes, expression, hairstyle, skin tone and overall likeness. Analyze ONLY visible features (face, posture, style, presence). Compare all historically documented Achaemenid court roles and select the best visual match with historical accuracy. Transform the same person into that Achaemenid figure with authentic clothing, jewelry, symbols and objects in a matching setting (Persepolis, Apadana, Susa, Pasargadae, palace, treasury, royal garden). Style: ultra-realistic, museum-quality, Persian imperial aesthetic, dramatic lighting, 8K. Create a luxury infographic layout with Persian typography. Add: "اگر در دربار هخامنشی بودی، جایگاهت این بود..." + role + title + historical fact + 3 visual analysis bullets + why this role (2–4 lines) + 4 fictional court ratings (%) + 2 original Ferdowsi-inspired epic Persian verses (not quoted). Premium movie-poster design.
-
-@TASIYANC 🔋
 </div>
 
