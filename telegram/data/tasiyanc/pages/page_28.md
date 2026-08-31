@@ -1,8 +1,316 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/09 02:29
+📅 آخرین بروزرسانی: 1405/06/09 19:17
 
 ---
+
+## tasiyanc — post 9079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود با استراتژی بدست میاد نه ادعا 
+👌
+
+
+امروز پاریس
+⚡️ و منچستر یونایتد 
+⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
+
+
+⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
+
+## tasiyanc — post 9078
+
+<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 شب و 6 برد پشت هم 
+✅
+
+من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
+
+آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
+🚀
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
+
+## tasiyanc — post 9077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+•10 سرور سرعتی تست شده تمام اپراتور ها 
+⚡️
+
+• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
+
+•آموزش اتصال 
+⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 
+🇮🇷
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر مهم 
+🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
+
+بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
+«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9075
+
+<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 7 آگوست روز جهانی ترویج شیردهی هست
+
++بفرست برا کسی که میخوای بت شیر بده 😞
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9072
+
+<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست جدید ترامپ در تروث سوشیال :
+"دونالد ترامپ در جنگ با ایران پیروز شد."
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9071
+
+<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+ANDROID 
+🕹
+V2box
+🔐 Npv tunnel 
+🔐  V2rayNG 
+🔐
+iOS  
+📱
+V2BOX 
+🔐  Npv tunnel 
+🔐
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9070
+
+<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+r16
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9069
+
+<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+r16
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن Germany 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9066
+
+<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[SuperFast] @Tasiyanc 🔥.npvt
+</div>
+
+## tasiyanc — post 9064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9063
+
+<div align="center"><img src="files/post_9063_tasiyanc_9063.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف:
+حمله بزرگی در راه است... صبر کنید، نه، آن‌ها می‌خواهند مذاکره کنند. این دیپلماسی نمایشی است که بارها تکرار شده است.
+استفاده از زور و تهدید، همراه با وعده‌های دروغین و اخبار جعلی، یک استراتژی شکست‌خورده است.
+حقایق را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتر نیازی نداریم.
+
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ⭕️ اطلاع رسانی حداکثری ... کلاهبرداری ..
+
+🚨 جدیدا برخی کانالهای تلگرامی در حوزه ارز دیجیتال شروع به معرفی شت‌کوین ( توکن های کلاهبرداری) بدون پشتوانه میکنن که بخرید قراره پامپ شه میلیونر بشید ...
+از جایی که ۹ ساله کارم فارکس و ارزدیجیتاله باید به شما هشدار بدم به هیچ عنوان حتی ۱ دلار هم بابت خرید این توکنهای دیجیتال پول ندید ، بعد خرید حتی نمیتونید بفروشید ، لیکوییدیتی (پشتوانه) این توکنها دست خود سازنده توکن قرار میگیره و فروش توکنو میبندن و شما نمیتوانید بفروشید چون لاک میشه و پولتون حروم میشه ، این روزا داره شدیداً ترند میشه ، حتی شما هم میتونید با یه برنامه نویسی ساده ارز دیجیتال ( توکن) بسازید با هر اسمی بر پایه شبکه اسمارت چین یا اتریوم ، به دام این کلاهبردارهای بی ریشه نیوفتید ، اطلاع رسانی کنید به همه تا سرشون کلاه نره .
+
+Join @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9059
 
@@ -47,214 +355,5 @@
 ❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
 
 ❌❌طرح شارژ رایگان فقط تا پایان مرداد ماه
-</div>
-
-## tasiyanc — post 9056
-
-<div align="center"><img src="files/post_9056_tasiyanc_9056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 #بایرن_مونیخ Vs #استون_ویلا
-
-زمان: جمعه ساعت 15
-
-🚨 تجربه پیشبینی مطمئن با
-🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
-
-🤩 🤩 درصد برگشت وجه در صورت باخت:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان g15
-@betinjabet
-</div>
-
-## tasiyanc — post 9055
-
-<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc - R²all.hc
-</div>
-
-## tasiyanc — post 9054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-سرور  سرعتی پرمیوم ⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9048
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش از وضعیت اینترنت خطوط همراه و ایرانسل بدید
-</div>
-
-## tasiyanc — post 9044
-
-<div align="center"><video src="files/post_9044_tasiyanc_9044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9044_tasiyanc_9044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سوتی جدید. پزشکیان:
-
-پزشکیان: ما بچه که بودیم پنکه نداشتیم
-مجری: آخه آذربایجان خنکه
-پزشکیان: من تو زابل خدمت میکردم
-مجری: آخه شما میگی وقتی بچه بودم
-پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9041
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری 🔴 در پی حمله موشکی حوثی های یمن
-
-تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
-
-پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
-
-اطلاعیه سازمان وظیفه عمومی:
-▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9038
-
-<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کوثری ؛ از فرماندهان سپاه:
-پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9036
-
-<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
-
-شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
-
-بفرست برا کسی که میخوای عکس پاشو برات بده 😂
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9034
-
-<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9032
-
-<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
-
-شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان درباره 18 و 19 دی : هنوز که هنوزه من اون حادثه رو نمی‌تونم فراموش کنم، نباید کارمون به اينجا می‌رسید!
-
-البته خود ترامپ نامرد هم گفت که ما اینا رو مسلح کردیم.
-یه عده بی‌گناه هم با اینا قاطی شده بودن. وقتی شورش میشه، آدم نمی‌تونه دوست و دشمن رو تشخیص بده.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9028
-
-<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
-
-
-@TASIYANC 🕒
 </div>
 

@@ -1,8 +1,214 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/06/09 02:29
+📅 آخرین بروزرسانی: 1405/06/09 19:17
 
 ---
+
+## tasiyanc — post 7535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+5سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7534
+
+<div align="center"><img src="files/post_7534_tasiyanc_7534.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔤 فیلم کوتاه « گرمای خانه »
+
+📃 زیرنویس چسبیده فارسی
+⚠️ ژانر : #بزرگسال 🔞 
+
+محصول کشور Taiwan
+کارگردان: Xavier Villaverde
+بازیگران:   Cervantes,  Llorenç
+خلاصه داستان : الیسا بعد از کلی دردسر به دانشگاه پایتخت قبول میشه در این بین با دختری آشنا میشه که زندگیشو تغییر
+میده . ...
+💘دانلود بدون سانسور فیلم 💘
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 7531
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡ Fast ⁰³.nm
+</div>
+
+## tasiyanc — post 7530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 6 سرور سرعتی همه نت ها
+کانفیگ حجم نامحدود نپسترنت🚀
+
+آموزش اتصال ⛓
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7527
+
+<div align="center"><video src="files/post_7527_tasiyanc_7527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7527_tasiyanc_7527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+۳ سرور  سرعتی پرمیوم 
+⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 
+🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما:
+اگر ترامپ را می‌کشتیم؛ آمریکا با ما مذاکره می‌کرد؟!
+</div>
+
+## tasiyanc — post 7525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه دوستانی که اندروید دارن نت مود دانلود کنن بیشتر میزارم از امروز همراه نپستر
+</div>
+
+## tasiyanc — post 7524
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇦🇪@Tasiyanc ⚡️.nm
+</div>
+
+## tasiyanc — post 7520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 کانفیگ اختصاصی نت مود 🚀
+
+4 سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+دانلود برنامه 🕹
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت🚀
+
+6سرور سرعتی پرمیوم ⚡️
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+Password :  @Tasiyanc ❤️
+
+ ✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐😐 آلمان حذف شد
+</div>
+
+## tasiyanc — post 7517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7515
+
+<div align="center"><img src="files/post_7515_tasiyanc_7515.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️احضار: آخرین مراسم 2025 [the Conjuring]
+
+🎭 ژانر: ترسناک & ماورایی & هیجان_انگیز
+⭐️ امتیاز: 6.5 از 10
+🌐 محصول کشور: 🇺🇸
+
+📜خلاصه داستان:  اد و لورن وارن، متخصص حل پرونده‌های فراطبیعی، خطرناک‌ترین پرونده زندگی خود را بررسی می‌کنند. جک و جنت اسمرل به همراه فرزندان خود به خانه‌ای جدید نقل‌مکان می‌کنند که همیشه آرزویش را داشتند، اما به‌ زودی این خانه به کابوسی وحشتناک تبدیل می‌شود، وقتی نشانه‌های تسخیر ارواح شیطانی در آن پدیدار می‌گردد و ...
+
+✍️نسخه زیرنویس فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+🔉نسخه دوبله فارسی بدون سانسور
+📧 [ برای دانلود فیلم کلیک کنید ]
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 7514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
+
+## tasiyanc — post 7499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپستر 🔥
+
+7 سرور سرعتی ویژه ⚡️
+
+آموزش اتصال ⛓
+
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+
+ 💘@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
+💘@TasiyanProxy
+</div>
+
+## tasiyanc — post 7494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 7488
 
@@ -30,163 +236,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 معرفی فیلم Heaven in Hell (2023) 📹 صحنه دار 🔞 ( مناسب بزرگسالان) عاشقانه ، درام - محصول 🇵🇱 کارگردان: Tomasz Mandes بازیگران : Simone Susinna & Magdalena Boczarska این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های…
-</div>
-
-## tasiyanc — post 7485
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 29، روز جهانی مردهاست❤️‍🔥
-روزتون مبارك گوگولیای پشمالو
-</div>
-
-## tasiyanc — post 7484
-
-<div align="center"><img src="files/post_7484_tasiyanc_7484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Heaven in Hell (2023) 📹
-صحنه دار 🔞 ( مناسب بزرگسالان)
-
-عاشقانه ، درام - محصول 🇵🇱
-
-کارگردان: Tomasz Mandes
-بازیگران : Simone Susinna & Magdalena Boczarska
-
-این فیلم داستان عشق پرشور و در عین حال چالش‌برانگیز بین «اولگا»، زنی موفق و مستقل که با مسئولیت‌های زندگی دست‌وپنج نرم می‌کند، و «مکس»، مردی جوان‌تر و سرشار از انرژی که با رویکردی متفاوت به زندگی نگاه می‌کند، را روایت می‌کند. "Heaven in Hell" به این پرسش می‌پردازد که آیا تفاوت‌های سنی، سبک زندگی و انتظارات متفاوت از آینده می‌تواند سد راه یک عشق واقعی شود یا خیر.
-
-💘 دانلود بدون سانسور فیلم 💘
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7483
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Protector 2026 📹 🔹ژانر : اکشن ، درام ، جنایی محصول 🇺🇸 با هنرنمایی Milla Jovovich ⭐️ کارگردان Adrian Grünberg 🔺 خلاصه داستان محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی…
-</div>
-
-## tasiyanc — post 7482
-
-<div align="center"><img src="files/post_7482_tasiyanc_7482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معرفی فیلم Protector 2026 📹
-
-🔹ژانر : اکشن ، درام ، جنایی
-
-محصول 🇺🇸
-
-با هنرنمایی Milla Jovovich ⭐️
-کارگردان Adrian Grünberg 🔺
-
-خلاصه داستان
-محافظ، زندگی آرام نیکی، قهرمان سابق جنگ، زمانی در هم میشکند که دخترش ربوده میشود. او که ناخواسته وارد دنیای زیرزمینی جنایت شده و همزمان تحت تعقیب پلیس و نیروهای نظامی است، باید برای نجات فرزندش مبارزه کند …
-💘 دانلود دوبله فیلم بدون سانسور 💘
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگر خاک ایران برفتد ز دست
-هنوز آخرین پر سیمرغ هست
-بگیرید ، بگیرید تیر و کمان را به دست
-جهنم بسازید بر هرچه پست .
-</div>
-
-## tasiyanc — post 7480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ESPRESSO 🔥☕.npvt
-</div>
-
-## tasiyanc — post 7478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توهین مجدد میثاقی به مردم ایران:
-کسایی که برای خوشحالی گل شجاع کلیپ می‌سازن همون جای خالی ان!
-</div>
-
-## tasiyanc — post 7477
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌هم اکنون شلیک موشک از ایران به سمت اردن
-</div>
-
-## tasiyanc — post 7475
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
-</div>
-
-## tasiyanc — post 7474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار هم اکنون 174000 😐
-</div>
-
-## tasiyanc — post 7473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپستر
-
-4 سرور سرعتی ⚡️
-
-آموزش اتصال ⛓
-
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 28 June، روزِ  LGBTQ یا همون همجنسگراست
-بفرست واسه رفیق گِیت🤣
-</div>
-
-## tasiyanc — post 7460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   📶
-
-تست شده تمام نتها 🛜🛜🛜
-
-دانلود 📱 Android  🕹  iOS
-
-آموزش اتصال 
-
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
-</div>
-
-## tasiyanc — post 7458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیگه از بدشانسی زر نزن آقای رامین رضائیان
-</div>
-
-## tasiyanc — post 7457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا احتمال بزرگ داشته باشی تا صعود کنی ولی نتونی ، تو بازی ۳ تا تیرک بزنی ، گل آفساید بزنی ، پنالتی نتونی بزنی
-
-آقای رضائیان حالا ببین چی میگم وقتی میگفتی دلیل این همه بد شانسی نمیدونی چیه
-آه مادرانی ک سر مزار بچشون میرقصیدن همینه
 </div>
 
