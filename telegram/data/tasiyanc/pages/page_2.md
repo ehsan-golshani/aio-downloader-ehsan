@@ -1,8 +1,109 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/09 19:17
+📅 آخرین بروزرسانی: 1405/06/10 00:43
 
 ---
+
+## tasiyanc — post 9750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 🇮🇱 فوری، نتانیاهو در گفتگو با کانال ۱۴ اسرائیل:
+
+من رژیم ایران رو نابود خواهم کرد، اینو بهتون قول میدم و مطمئنم این کار شدنیه.
+اونا خیلی ضعیف تر از قبل شدن.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9748
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9747
+
+<div align="center"><img src="files/post_9747_tasiyanc_9747.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
+</div>
+
+## tasiyanc — post 9745
+
+<div align="center"><img src="files/post_9745_tasiyanc_9745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧠معرفی هوش مصنوعی های ساخت ویدیو با دسترسی رایگان
+
+⚡️ برای ساخت ویدیو با هوش مصنوعی میتونید از سرویس های زیر استفاده کنید که هرکدومشون تعداد محدودی کردیت رایگان برای ساخت میدن!
+
+•Gemini Omni : https://flow.google
+
+•Veo 3.1 : https://flow.google
+
+•Wan 2.7 : https://wan.video
+
+•Grok : https://grok.com/imagine
+
+•LTX 2.3 : https://ltx.io/studio
+
+•Kling 3.0 : https://kling.ai/
+
+•Seedance 2.0 : https://dola.com
+﻿
+
+پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال هانتر بت شو👇
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9743
 
@@ -119,118 +220,5 @@
 🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9723
-
-<div align="center"><img src="files/post_9723_tasiyanc_9723.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💻 شیائومی قابلیت «نمایشگر حریم خصوصی هوشمند» را به پرچمداران خود اضافه میکند
-
-​🟧 شیائومی در حال توسعه یک فناوری کاربردی به نام Smart Privacy Display برای پرچمداران آینده خود است؛ قابلیتی که عملکردی مشابه فناوری نمایشگر حریم خصوصی سامسونگ در گلکسی S26 اولترا دارد و مانع از دیده‌شدن صفحه گوشی توسط افراد کناری (دیده‌بانی یا Shoulder Surfing) می‌شود.
-
-​ جزئیات و سازوکار این قابلیت:
-• فعال‌سازی هوشمند و خودکار: سیستم می‌تواند با تشخیص باز شدن محتوای حساس (مانند برنامه‌های بانکی، اسناد محرمانه یا پیام‌های خصوصی)، زاویه دید نمایشگر را محدود کند.
-
-• شخصی‌سازی برنامه‌ها: کاربر کنترل کاملی روی تنظیمات دارد و می‌تواند مشخص کند حالت حریم خصوصی برای چه اپلیکیشن‌هایی فعال باشد.
-​🗓 انتظار می‌رود این قابلیت جذاب برای نخستین‌بار در ماه سپتامبر هم‌زمان با معرفی پرچمداران جدید شیائومی، یعنی شیائومی 18 پرو و 18 پرو مکس در دسترس قرار گیرد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9721
-
-<div align="center"><video src="files/post_9721_tasiyanc_9721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9721_tasiyanc_9721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه رسانه ترکیه ای اومده از عشق و حال ایرانیا توی شهر وان ترکیه ویدیو منتشر کرده که خیلی وایرال شده:
-
-تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد 
-
-حجم و کاربر نامحدود
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel 🔗
-
-آموزش اتصال با windscribe🔗
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9714
-
-<div align="center"><img src="files/post_9714_tasiyanc_9714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

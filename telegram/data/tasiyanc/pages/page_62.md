@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/06/09 19:17
+📅 آخرین بروزرسانی: 1405/06/10 00:43
 
 ---
+
+## tasiyanc — post 8117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز عزیز طاقت بیار ...
+</div>
+
+## tasiyanc — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز زیر دود بمباران 💔
+</div>
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
+
+## tasiyanc — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حملات شدید آمریکا به اهواز عزیز
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
+</div>
+
+## tasiyanc — post 8112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ👂 به فاکس نیوز:
+
+🔻 حملات علیه ایران هفته آینده گسترش خواهد یافت و خاورمیانه برای آنچه بعداً رخ خواهد داد آماده میشود
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8109
 
@@ -178,51 +220,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 🚨 فوری بر اساس تصمیم ستاد عالی آزمون های وزارت آموزش و پرورش و با توجه به شرایط خاص کشور در استان های هرمزگان، بوشهر، خوزستان و سیستان_و_بلوچستان امتحانات نهایی تمامی رشته های تحصیلی پایه دوازدهم در روز پنجشنبه؛ مورخ 1405/04/25 و پایه یازدهم در روز شنبه، 1405/04/27 لغو و به زمان دیگری که متعاقباً اعلام خواهد شد، موکول می شود.
 
 @Tasiyanc ⭐️ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💢 فوری صنایع الکترونیک شیراز زدن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گرمهههههههههههههههههه
-</div>
-
-## tasiyanc — post 8085
-
-<div align="center"><img src="files/post_8085_tasiyanc_8085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جدول خاموشی مناطق مختلف تهران منتشر شد بفرستید به آشنا هاتون مطلع شن
-
-@Tasiyanc
 </div>
 

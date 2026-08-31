@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/06/09 19:17
+📅 آخرین بروزرسانی: 1405/06/10 00:43
 
 ---
+
+## tasiyanc — post 5602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اقا واقعا وصل ممنون تاسيان♥️♥️♥️
+</div>
+
+## tasiyanc — post 5601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
+
+## tasiyanc — post 5600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥹💋 fadatooooooooooooonnn
+</div>
+
+## tasiyanc — post 5599
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خیلی خوبن🥹
+</div>
+
+## tasiyanc — post 5598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط با نپستر این چنل وصلم
+</div>
+
+## tasiyanc — post 5597
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
+</div>
 
 ## tasiyanc — post 5596
 
@@ -140,46 +176,5 @@
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
-</div>
-
-## tasiyanc — post 5571
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز ما پختو پز کردیمو ری اکشن ندیدیم 🥺
-</div>
-
-## tasiyanc — post 5570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی وصل ✅
-
-{"remarks":"@Tasiyanc ترکیب","log":{"loglevel":"warning"},"inbounds":[{"tag":"socks","port":10808,"protocol":"socks","settings":{"auth":"noauth","udp":true,"userLevel":8},"sniffing":{"enabled":true,"destOverride":["http","tls"],"routeOnly":false}}],"outbounds":[{"tag":"proxy","protocol":"trojan","settings":{"servers":[{"address":"95.38.188.84","ota":false,"password":"humanity","port":40443,"level":8}]},"streamSettings":{"network":"ws","security":"tls","wsSettings":{"path":"/assignment","headers":{"Host":"www.ignitelimit.com"}},"tlsSettings":{"allowInsecure":true,"serverName":"www.ignitelimit.com","show":false}},"mux":{"enabled":false,"concurrency":-1,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"direct","protocol":"freedom","settings":{"domainStrategy":"UseIP"},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"block","protocol":"blackhole","settings":{"response":{"type":"http"}},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}}],"dns":{"servers":["1.1.1.1"],"hosts":{"domain:googleapis.cn":"googleapis.com","dns.alidns.com":["223.5.5.5","223.6.6.6","2400:3200::1","2400:3200:baba::1"],"one.one.one.one":["1.1.1.1","1.0.0.1","2606:4700:4700::1111","2606:4700:4700::1001"],"dot.pub":["1.12.12.12","120.53.53.53"],"dns.google":["8.8.8.8","8.8.4.4","2001:4860:4860::8888","2001:4860:4860::8844"],"dns.quad9.net":["9.9.9.9","149.112.112.112","2620:fe::fe","2620:fe::9"],"common.dot.dns.yandex.net":["77.88.8.8","77.88.8.1","2a02:6b8::feed:0ff","2a02:6b8:0:1::feed:0ff"]}},"routing":{"domainStrategy":"IPIfNonMatch","rules":[{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"},{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"},{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"}]}}
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ده مین ۱۰۰ تا فور 😐
-</div>
-
-## tasiyanc — post 5568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نامحدودن بستگی داره چقد سرور شلوغ باشه
-</div>
-
-## tasiyanc — post 5567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WAR 🔥.npvt
 </div>
 

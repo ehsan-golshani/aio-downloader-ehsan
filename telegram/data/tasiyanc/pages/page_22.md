@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/09 19:17
+📅 آخرین بروزرسانی: 1405/06/10 00:43
 
 ---
+
+## tasiyanc — post 9238
+
+<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💯تنها کانالی که حتما باید توش عضو باشی
+
+✅چون راه پول درآوردن رو بهت نشون میده
+
+📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
+
+نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
+📶https://t.me/+MT03hkV78q9kMTc0
+📶https://t.me/+MT03hkV78q9kMTc0
+</div>
+
+## tasiyanc — post 9237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9232
+
+<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
+جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9230
 
@@ -152,85 +233,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان میباشد.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9211
-
-<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
-</div>
-
-## tasiyanc — post 9207
-
-<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
-
-⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
-
-⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
-
-⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
-
-⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-g21
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
 </div>
 

@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/06/09 19:17
+📅 آخرین بروزرسانی: 1405/06/10 00:43
 
 ---
+
+## tasiyanc — post 8309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خاورمیانه آرومه امشب انگار؟
+</div>
+
+## tasiyanc — post 8306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ شنیده شدن صدای انفجار در اهواز
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه
+کانفیگ مخصوص نت ملی رو بگیرید
+
+دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود 📱
+
+3سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید ⛓
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 8302
 
@@ -118,43 +178,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
-</div>
-
-## tasiyanc — post 8286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8285
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
 </div>
 
