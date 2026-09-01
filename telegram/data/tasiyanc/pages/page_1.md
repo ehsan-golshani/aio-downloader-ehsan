@@ -1,8 +1,157 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/10 14:14
+📅 آخرین بروزرسانی: 1405/06/10 18:52
 
 ---
+
+## tasiyanc — post 9803
+
+<div align="center"><video src="files/post_9803_tasiyanc_9803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9803_tasiyanc_9803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9802
+
+<div align="center"><img src="files/post_9802_tasiyanc_9802.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یسری از گرایش های جنسی هستن که شاید کمتر توی زندگی شنیده باشین و چه بهتر که الان باهاشون آشنا بشید تا وقتی یه نفر بهتون گفت همچین گرایشی دارم گیج نشید.
+
+Asexual
+کسی که به هیچکس هیچ حسی نداره.
+Bisexual
+کسی که هم به دختر و هم پسر حس داره.
+Pansexual
+کسی که جذب شخصیت افراد میشه.
+Homosexual
+کسی که به همجنسش حس داره.
+Demsexual
+کسی که تا یه رابطه عمیق احساسی با کسی نداشته باشه حس نداره.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9801
+
+<div align="center"><video src="files/post_9801_tasiyanc_9801.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9801_tasiyanc_9801.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_9801_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9800
+
+<div align="center"><video src="files/post_9800_tasiyanc_9800.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9800_tasiyanc_9800.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+sg10
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9798
+
+<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
+همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به تازگی بزرگترین دزدی دزفول اتفاق افتاده! از خونه یه نفر ۳ کیلو طلا دزدیدن!
+به محض اینکه اعلام کرده میخواد طلا فروشی بزنه اومدن ازش دزدی کردن!
+در حالی که درِ ضدسرقت، دوربین مداربسته، دزدگیر و... فعال کرده بوده.
+خانمش چون باردار بوده همیشه توی خونه بوده، فقط ۳۰ ثانیه بعد اینکه خانمش اومده بیرون، اومدن دزدی!
+حالا ۱۰ میلیارد پاداش گذاشته برای هر کسی که بتونه یه نشونه و آدرسی از این دزدا در بیاره.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
+
+امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9795
 
@@ -29,8 +178,6 @@
 </div>
 
 ## tasiyanc — post 9793
-
-<div align="center"><a href="files/post_9793_🇮🇳 @Tasiyanc.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇮🇳 @Tasiyanc.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  اختلال شکن OpenVpn 📶
@@ -62,8 +209,6 @@
 </div>
 
 ## tasiyanc — post 9791
-
-<div align="center"><a href="files/post_9791_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -219,86 +364,5 @@ til.ac/0L4vyJf
 یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9773
-
-<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
-
-بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
-
-+ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9772
-
-<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایان اسطوره فوتبال لیونل مسی
-مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9771
-
-<div align="center"><img src="files/post_9771_tasiyanc_9771.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نوید محمد زاده از اجرای نمایش آرش بخاطر حواشی اخراج شد 😂
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ترامپ:
-
-تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9767
-
-<div align="center"><img src="files/post_9767_tasiyanc_9767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فواید بوسیدن یار 💋:
-
-•کاهش فشارخون و کمک به سلامت قلب
-
-•از بین بردن گرفتگی عضلات بدن محافظت دندان در برابر پوسیدگی
-
-•افزایش درخشندگی پوست و جلوگیری از شل شدگی صورت
-
-•افزایش قدرت سیستم ایمنی بدن در برابر سرما خوردگی
-
-•کاهش وسواس فکری
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
 </div>
 

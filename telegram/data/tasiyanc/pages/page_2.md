@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/10 14:14
+📅 آخرین بروزرسانی: 1405/06/10 18:52
 
 ---
+
+## tasiyanc — post 9773
+
+<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
+
+بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
+
++ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9772
+
+<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایان اسطوره فوتبال لیونل مسی
+مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9771
+
+<div align="center"><img src="files/post_9771_tasiyanc_9771.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نوید محمد زاده از اجرای نمایش آرش بخاطر حواشی اخراج شد 😂
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ترامپ:
+
+تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9767
+
+<div align="center"><img src="files/post_9767_tasiyanc_9767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فواید بوسیدن یار 💋:
+
+•کاهش فشارخون و کمک به سلامت قلب
+
+•از بین بردن گرفتگی عضلات بدن محافظت دندان در برابر پوسیدگی
+
+•افزایش درخشندگی پوست و جلوگیری از شل شدگی صورت
+
+•افزایش قدرت سیستم ایمنی بدن در برابر سرما خوردگی
+
+•کاهش وسواس فکری
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وینامیت 🔥
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+</div>
 
 ## tasiyanc — post 9765
 
@@ -166,113 +247,5 @@ https://Winamit.com/fa
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9747
-
-<div align="center"><img src="files/post_9747_tasiyanc_9747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9745
-
-<div align="center"><img src="files/post_9745_tasiyanc_9745.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🧠معرفی هوش مصنوعی های ساخت ویدیو با دسترسی رایگان
-
-⚡️ برای ساخت ویدیو با هوش مصنوعی میتونید از سرویس های زیر استفاده کنید که هرکدومشون تعداد محدودی کردیت رایگان برای ساخت میدن!
-
-•Gemini Omni : https://flow.google
-
-•Veo 3.1 : https://flow.google
-
-•Wan 2.7 : https://wan.video
-
-•Grok : https://grok.com/imagine
-
-•LTX 2.3 : https://ltx.io/studio
-
-•Kling 3.0 : https://kling.ai/
-
-•Seedance 2.0 : https://dola.com
-﻿
-
-پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9743
-
-<div align="center"><img src="files/post_9743_tasiyanc_9743.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9741
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/10 14:14
+📅 آخرین بروزرسانی: 1405/06/10 18:52
 
 ---
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
+
+## tasiyanc — post 9415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
+همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
+پستها پاک میشه
+</div>
+
+## tasiyanc — post 9414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
+</div>
+
+## tasiyanc — post 9413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+603799746347**** شماره کارت دوم
+</div>
+
+## tasiyanc — post 9412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
+</div>
+
+## tasiyanc — post 9411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
+</div>
+
+## tasiyanc — post 9410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
+</div>
 
 ## tasiyanc — post 9409
 
@@ -177,81 +221,5 @@ g26
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ اسم کانال با فونت معمولی تنظیم شد
-
-𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
-
-بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
-
-« همراه ما باشید ❤️ »
-</div>
-
-## tasiyanc — post 9388
-
-<div align="center"><video src="files/post_9388_tasiyanc_9388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9388_tasiyanc_9388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9384
-
-<div align="center"><video src="files/post_9384_tasiyanc_9384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9384_tasiyanc_9384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها ⚡️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آغاز توزیع کارت کنکور ۱۴۰۵
-
-📡 داوطلبان کنکور تا چهارشنبه ۲۸ مرداد فرصت دارند کارت آزمون خود را از سایت سازمان سنجش دریافت کنند.
-
-📡 آزمون تجربی صبح، هنر و زبان‌های خارجی بعدازظهر پنجشنبه ۲۹ مرداد، ریاضی، فنی و انسانی صبح جمعه ۳۰ مرداد برگزار خواهد شد.
-
-@Tasiyanc 
-⭐️
 </div>
 
