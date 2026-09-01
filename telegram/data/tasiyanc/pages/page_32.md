@@ -1,8 +1,127 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/10 18:52
+📅 آخرین بروزرسانی: 1405/06/10 22:26
 
 ---
+
+## tasiyanc — post 9009
+
+<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40 میلیون تومن برداشت روزانه ی کانال تراست بت 
+🎁
+پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
+
+برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
+✅
+
+40 بازی اخیر 34 برد 
+📊
+
+
+💠https://t.me/+cBQ8n7zLQiUzN2U0
+g14
+
+💠 https://t.me/+cBQ8n7zLQiUzN2U0
+</div>
+
+## tasiyanc — post 9008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•تقدیم به مردم سرزمینم 🖤
+
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
+
+1️⃣  Fliki -
+http://fliki.ai
+
+2️⃣ Tavus -
+http://tavus.ai
+
+3️⃣ D-ID -
+http://d-id.com
+
+4️⃣ Wombo -
+http://deepart.io
+
+5️⃣ Reface -
+http://hey.reface.ai
+
+6️⃣ Hour One -
+http://hourone.ai
+
+7️⃣ Rephrase -
+http://rephrase.ai
+
+8️⃣ Synthesia -
+http://synthesia.io
+
+9️⃣ DeepBrain -
+http://deepbrain.io
+
+1️⃣0️⃣ EmbodyMe -
+http://embodyme.com
+
+Join 👹 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 معرفی سایت های کاریابی و استخدامی (فریلنسری) ایران 
+⚡️
+
+
+🟠جابینجا
+https://jobinja.ir
+
+
+🟠پونیشا
+https://ponisha.ir
+
+
+🟠ایران تلنت
+https://www.irantalent.com
+
+
+🟠جاب ویژن
+https://jobvision.ir
+
+
+🟠کارلنسر
+https://www.karlancer.com
+
+
+🟠برای استخدام
+https://www.e-estekhdam.com
+
+
+🟠برای معلم زبان
+https://oteacher.org
+
+بفرستید برای کسایی که دنبال کار هستن خیلی خوبن سایتهای که گفتم .
+
+
+⚡️@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9004
 
@@ -295,43 +414,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴امروز تولد جاوید نام پهلوان مسعود ذات پرور قهرمان ایران هستش روحش شاد🖤
-</div>
-
-## tasiyanc — post 8987
-
-<div align="center"><video src="files/post_8987_tasiyanc_8987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8987_tasiyanc_8987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ساغر غلامی طی یک ویدیویی خبر اعدام و داستان عقد شدنش با سپاهی را تکذیب کرد
-
-+من چند ماهه با قید وثیقه بیرونم، به شایعات توجه نکنید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-اگه گوشی موبایل دارید یعنی بخشی از اسرائیل رو دارید با خودتون حمل میکنید. ما اونجاییم
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast - HCustum 🇮🇹B.hc
-</div>
-
-## tasiyanc — post 8984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر بد
-متاسفانه پورت های مهم من جمله 22 که برای پروتکل های SSHبکار میره مسدود شده کار نمیکنه ، امیدوارم اوکی شه چون این نشانه از چیزیه ک دوس ندارم عنوان کنم.
 </div>
 

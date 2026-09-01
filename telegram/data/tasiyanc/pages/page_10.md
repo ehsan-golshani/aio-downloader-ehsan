@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/10 18:52
+📅 آخرین بروزرسانی: 1405/06/10 22:26
 
 ---
+
+## tasiyanc — post 9558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💵قیمت هر دلار 203.000 تومان ایرانی
+</div>
+
+## tasiyanc — post 9556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9555
+
+<div align="center"><img src="files/post_9555_tasiyanc_9555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری؛ وزیر خزانه‌داری آمریکا:
+
+از بامداد امروز، حمله مالی به ایران رو آغاز میکنیم؛ بزرگ‌ترین حمله از این نوع در تاریخ.
+
+هدف ما این هست که تمام خطوط اقتصادی رو که حکومت ایران رو سرپا نگه داشته قطع کنیم.‌‌ هر کشوری که به عنوان شریان مالی برای رژیمی در آستانه فروپاشی عمل کنه، باید منتظر تحریم‌های شدید باشه.
+هرگونه اقدام نظامی علیه نیروهای ما یا علیه کشورهای خلیج فارس توسط رئیس جمهور ترامپ به سرعت و قاطعانه پاسخ خواهد داد.‌‌
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9553
 
@@ -239,68 +293,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
-</div>
-
-## tasiyanc — post 9537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-
-آموزش اتصال ⛓
-
-🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
-
-
-اتصال پر سرعت برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
-@TasiyanProxy
-@TasiyanProxy
-@TasiyanProxy
-ارائه پروکسی های پر سرعت 📡
-</div>
-
-## tasiyanc — post 9535
-
-<div align="center"><video src="files/post_9535_tasiyanc_9535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9535_tasiyanc_9535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
-
-DNS1 😎
-235.58.241.130
-49.129.66.60
-
-DNS2 😎
-36.108.70.10
-136.224.75.103
-
-DNS3 😎
-62.114.222.110
-223.42.10.179
-
-IPv4 Location 🇩🇪
-
-🩸 @Tasiyanc
 </div>
 

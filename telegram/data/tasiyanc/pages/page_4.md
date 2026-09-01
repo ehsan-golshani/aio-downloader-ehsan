@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/10 18:52
+📅 آخرین بروزرسانی: 1405/06/10 22:26
 
 ---
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9723
+
+<div align="center"><img src="files/post_9723_tasiyanc_9723.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 شیائومی قابلیت «نمایشگر حریم خصوصی هوشمند» را به پرچمداران خود اضافه میکند
+
+​🟧 شیائومی در حال توسعه یک فناوری کاربردی به نام Smart Privacy Display برای پرچمداران آینده خود است؛ قابلیتی که عملکردی مشابه فناوری نمایشگر حریم خصوصی سامسونگ در گلکسی S26 اولترا دارد و مانع از دیده‌شدن صفحه گوشی توسط افراد کناری (دیده‌بانی یا Shoulder Surfing) می‌شود.
+
+​ جزئیات و سازوکار این قابلیت:
+• فعال‌سازی هوشمند و خودکار: سیستم می‌تواند با تشخیص باز شدن محتوای حساس (مانند برنامه‌های بانکی، اسناد محرمانه یا پیام‌های خصوصی)، زاویه دید نمایشگر را محدود کند.
+
+• شخصی‌سازی برنامه‌ها: کاربر کنترل کاملی روی تنظیمات دارد و می‌تواند مشخص کند حالت حریم خصوصی برای چه اپلیکیشن‌هایی فعال باشد.
+​🗓 انتظار می‌رود این قابلیت جذاب برای نخستین‌بار در ماه سپتامبر هم‌زمان با معرفی پرچمداران جدید شیائومی، یعنی شیائومی 18 پرو و 18 پرو مکس در دسترس قرار گیرد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9721
 
@@ -244,54 +297,5 @@ til.ac/0L4vyJf
 🇫🇷 18 | 15 | 25 | 12
 
 @Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-(نسخه جدید دانلود کنید کانفیگای قبلی پاک کنید جدیدارو بزنید)
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9690
-
-<div align="center"><video src="files/post_9690_tasiyanc_9690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9690_tasiyanc_9690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 چند روز پیش توی باشگاه انقلاب تهران مسابقات و ایونت تنیس برگزار شد که حسابی سر و صدا کرده:
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
 </div>
 

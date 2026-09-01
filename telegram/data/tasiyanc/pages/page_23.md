@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/10 18:52
+📅 آخرین بروزرسانی: 1405/06/10 22:26
 
 ---
+
+## tasiyanc — post 9240
+
+<div align="center"><img src="files/post_9240_tasiyanc_9240.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اقدام به خودکشی چند ملوان آمریکایی!
+
+باتوجه به نهمین ماه حضور 5 هزار خدمه ناو آبراهام لینکلن روی دریا، خدمه این ناو دچار بحران روحی روانی شدن!
+هفته پیش 200 نفر از اعضای خانواده این خدمه، با مقامات نیروی دریایی آمریکا جلسه گذاشتن و نگرانی‌هاشون رو گفتن.
+همسر یکی از ملوان‌ها گفته که شوهرم چند روز پیش بهم پیام داد که "امیدوارم دیگه فردا از خواب بلند نشم!".
+همچنين Navy Times گزارش داده که چندتا ملوان قصد داشتن خودشون رو تو دریا پرت کنن و به زندگیشون پایان بدن ولی رفیق‌هاشون اجازه ندادن...
+🇺🇸مایک لوین نماینده دموکرات کنگره درباره شرایط ناو میگه :
+حمام‌ها کپک زده، توالت‌ها خراب شده، ماشین‌های لباسشویی هفته‌هاست که از کار افتادن، آب گرم نیست و غذا هم که بعضی وقت‌ها فقط نصف لیوان برنج و دو تا نونِ تورتیلاست، دیگه حتى صابون و خمیردندون هم ندارن!
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
+🛒این فرصت محدود رو از دست ندید
+https://t.me/+MT03hkV78q9kMTc0
+</div>
+
+## tasiyanc — post 9238
+
+<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💯تنها کانالی که حتما باید توش عضو باشی
+
+✅چون راه پول درآوردن رو بهت نشون میده
+
+📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
+
+نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
+📶https://t.me/+MT03hkV78q9kMTc0
+📶https://t.me/+MT03hkV78q9kMTc0
+</div>
+
+## tasiyanc — post 9237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9235
 
@@ -183,41 +237,6 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 آغاز حملات موشکی سپاه از سیریک به سمت تنگه هرمز ( تایید/رد) نمیشه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9214
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد! نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان نرخ چهارم: ۸۷,۲۰۰ تومان این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان…
-</div>
-
-## tasiyanc — post 9213
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد!
-نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان
-نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان
-نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان
-نرخ چهارم: ۸۷,۲۰۰ تومان
-این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان میباشد.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9211
-
-<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
 
 @Tasiyanc ⭐️
 </div>

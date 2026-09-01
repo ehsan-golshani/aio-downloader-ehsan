@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/10 18:52
+📅 آخرین بروزرسانی: 1405/06/10 22:26
 
 ---
+
+## tasiyanc — post 9637
+
+<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9636
+
+<div align="center"><video src="files/post_9636_tasiyanc_9636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9636_tasiyanc_9636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - وبگردی
+
+تست شده تمام نت‌ها
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+⭕️ در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9634
+
+<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی
+- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9633
 
@@ -289,58 +347,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9615
-
-<div align="center"><img src="files/post_9615_tasiyanc_9615.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ:
-
-اعتراض کردن در ایران بسیار دشوار است، به خصوص زمانی که افرادی حاضرند شما را به قتل برسانند. به همین دلیل است که مردم در ایران اعتراض نمی‌کنند.
-و این احتمال وجود دارد که [رژیم] ایران به شدت تضعیف شود... بسیاری از سربازان آنها حقوق دریافت نمی‌کنند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9614
-
-<div align="center"><img src="files/post_9614_tasiyanc_9614.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هکر ها دوس دارن شما این 5 کار رو انجام بدید تا به راحتی به اطلاعاتتون دسترسی پیدا کنند
-
-+ حتما مراقب باشید این روزا ممکنه سر همه بیاد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9613
-
-<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
-
-+ قهرمان ایران مسعود ذات‌پرور هست نه تو
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9612
-
-<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
-
-+ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
-
-🩸 @Tasiyanc ⭐️
 </div>
 
