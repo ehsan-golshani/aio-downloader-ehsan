@@ -1,8 +1,206 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/10 22:26
+📅 آخرین بروزرسانی: 1405/06/11 01:04
 
 ---
+
+## tasiyanc — post 8912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 آکسیوس:
+
+در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 ترامپ:
+
+من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
+
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+پروکسی | پروکسی | پروکسی
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8909
+
+<div align="center"><video src="files/post_8909_tasiyanc_8909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8909_tasiyanc_8909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پیت هگست وزیر جنگ آمریکا این ویدئو رو منتشر کرد :
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New Wallpapers ✨ HD
+
+🔱 @Tasiyanc
+</div>
+
+## tasiyanc — post 8904
+
+<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#سرگرمی - #کاربردی
+
+🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
+
+ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
+
+🌐 https://eyes.nasa.gov
+
+بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8903
+
+<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: پست جدید اتاق جنگ اسرائیل
+
+تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
+
+🔱 @TASIYANc
+</div>
+
+## tasiyanc — post 8902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺قیمت دلار  ۱۹۶ هزار تومان  شد
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8901
+
+<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8900
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت
+
+سرور سرعتی تست شده لوکییشن ایتالیا 🇮🇹
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه
+
+✔️ @TASIYANC
+</div>
+
+## tasiyanc — post 8899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ کانفیگ ویتوری لوکیشن 🇹🇷
+
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.46:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#Hi%20%C4%B0stanbul%20%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc
+vmess://eyJhZGQiOiI1LjE4OC4xOTAuMjUyIiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6IjA0NjIxYmFlLWFiMzYtMTFlYy1iOTA5LTAyNDJhYzEyMDAwMiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIiLCJwY3MiOiIiLCJwb3J0IjoiMjIzMjQiLCJwcyI6IkBUYXNpeWFuYyDwn4e58J+HtyIsInNjeSI6ImF1dG8iLCJzbmkiOiIiLCJ0bHMiOiIiLCJ0eXBlIjoibm9uZSIsInYiOiIyIiwidmNuIjoiIn0=
+
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8898
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند جنگ سهمگین در راهه؟ 🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 کاخ سفید : خداوند سربازان ما را حفظ کند
+
+جنگ سهمگین در راهه؟
+
+🔱 @TASIYANC
+</div>
+
+## tasiyanc — post 8896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌 آمار دیروز کانال تراست بت :
+
+✅✅✅ 3.46⬅️
+✅✅✅ 3.94⬅️
+✅✅✅ 3.46⬅️
+✅✅✅ 4.67⬅️
+✅✅✅ 2.76⬅️
+✅✅✅ 7.43⬅️
+✅✅✅ 1.30⬅️
+👇بدو جوین شو فرم بعدی بگیر👇
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+🆔 https://t.me/+umLw_34TXrEzYTQ0
+</div>
+
+## tasiyanc — post 8894
+
+<div align="center"><img src="files/post_8894_tasiyanc_8894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥بمب 100% آماده شد
+🔥
+
+💵دریافتی از منبع خارجی Wiliam Hills 
+
+⬅️رایگان در کانال قرار گرفت
+⬅️فقط جوین شید و تمام
+
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+➡️ https://t.me/+umLw_34TXrEzYTQ0
+g10
+⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده⚠️
+</div>
+
+## tasiyanc — post 8893
+
+<div align="center"><video src="files/post_8893_tasiyanc_8893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8893_tasiyanc_8893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ : میدونید موشک‌های ج‌ا رو چطوری رهگیری میکنیم ؟
+بینگ،بینگ،بینگ بینگ ،بینگ 😂
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8891
 
@@ -108,258 +306,5 @@ dic.b-amooz.com
 🔻پادگان چهارم شکاری دزفول تمامی سرباز هارو فرستادن مرخصی و به خانواده‌های نظامیا داخل پادگانم گفتن تخلیه کنید تا عصر.
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز August 1، روز دوست دختره 
-😞
-
-پروکسی متصل | پروکسی متصل
-
-
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8881
-
-<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
-
-
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8880
-
-<div align="center"><video src="files/post_8880_tasiyanc_8880.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8880_tasiyanc_8880.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌 آمار دیروز کانال تراست بت :
-
-
-✅✅✅ 3.46
-⬅️
-✅✅✅ 3.94⬅️
-✅✅✅ 3.46⬅️
-✅✅✅ 4.67⬅️
-✅✅✅ 2.76⬅️
-✅✅✅ 7.43⬅️
-✅✅✅ 1.30⬅️
-
-👇بدو جوین شو فرم بعدی بگیر
-👇
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
-🆔 https://t.me/+Aq2Af6VNNE44M2Rk
-</div>
-
-## tasiyanc — post 8879
-
-<div align="center"><video src="files/post_8879_tasiyanc_8879.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8879_tasiyanc_8879.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥بمب 100% آماده شد
-🔥
-
-💵دریافتی از منبع خارجی Wiliam Hills 
-
-
-⬅️رایگان در کانال قرار گرفت
-
-⬅️فقط جوین شید و تمام
-
-➡️ https://t.me/+Aq2Af6VNNE44M2Rk
-➡️ https://t.me/+Aq2Af6VNNE44M2Rk
-a9
-
-⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده
-⚠️
-</div>
-
-## tasiyanc — post 8878
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@TASIYANC ⚡ 04.ovpn
-</div>
-
-## tasiyanc — post 8865
-
-<div align="center"><video src="files/post_8865_tasiyanc_8865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8865_tasiyanc_8865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود OpenVpn 📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜🛜
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8863
-
-<div align="center"><video src="files/post_8863_tasiyanc_8863.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8863_tasiyanc_8863.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻با این پرامپت نویسنده و ویراستار حرفه‌ای خودت باش 
-🤖🤖
-
-⭕️ کافیه چند کلمه یا جمله بهش بدی پایینش پرامپت رو بزنی نتیجه عالی میشه !
-
-✔️PROMPT
-
-Act as a professional editor and copywriter.
-Your task is to rewrite the following text while preserving its original meaning and tone.
-
-Before rewriting:
-- Correct grammar, spelling, and punctuation mistakes.
-- Improve clarity and readability.
-- Enhance sentence flow and structure.
-- Replace weak or repetitive words with stronger, more natural alternatives.
-- Make the writing more engaging and emotionally compelling.
-- Remove unnecessary words or awkward phrasing.
-- Keep the author's intent unchanged.
-
-Provide:
-1. The polished version.
-2. A brief explanation of the key improvements you made.
-
-Text:
-[اینجا جمله یا کلمات را بنویس ]
-
-✈️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8862
-
-<div align="center"><img src="files/post_8862_tasiyanc_8862.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 تعویض پس زمینه و بالابردن کیفیت عکس
-( حرفه ای و طبیعی)
-
-Prompt
-Replace the background with a realistic environment while preserving the original subject, lighting, shadows, reflections and perspective. Blend everything naturally for a seamless result.
-﻿
-آموزش استفاده از پرامپت 
-👉
-
-
-✈️@TASIYANC 💠
-</div>
-
-## tasiyanc — post 8861
-
-<div align="center"><img src="files/post_8861_tasiyanc_8861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻 بازسازی عکس یا فیلم های قدیمی - جدید آسیب دیده با حفظ هویت و نوستالژیک
-
-prompt
-Restore this vintage film frame by removing scratches, dust, flicker, fading and damage while preserving authentic film grain, original contrast, natural texture and historical authenticity.
-
-آموزش استفاده از پرامپت 👉
-
-✈️@TASIYANC ⭐
-</div>
-
-## tasiyanc — post 8860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️حتما این بازی رو تست کنید:
-
-➡️ 🤩 🤩 🤩 🤩 🤩 👈
-
-✅ دیگه حوصلت سر نمیره بهترین سرگرمی ممکن رو آوردم براتون 😍
-🙄 پر از بازی های سرگرم کننده آنلاین
-</div>
-
-## tasiyanc — post 8859
-
-<div align="center"><img src="files/post_8859_tasiyanc_8859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 معرفی یه بازی ساده و‌ #پولساز
-
-➡️ 🤩 🤩 🤩 🤩 🤩 👈
-
-🖱این بازی اختصاصی فقط توی‌این‌سایت هست واقعا راحت میشه ازش کلی پول دراورد.💵💰
-
-🟢 بدون ریسک و بدون پول در بازی معروف #crash پول در بیار و با هر شارژ 2️⃣1️⃣🔣 موجودی خالص بگیر بدون قیدوشرط 🔥
-
-💖تنها سایت مورد تایید
-💻آدرس سایت مورد #‌اعتماد ما:
-🌐 betinja.bet
-🌐 betinja.bet
-کانال بونوس های رایگان g9
-@betinjabet
 </div>
 

@@ -1,8 +1,268 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/10 22:26
+📅 آخرین بروزرسانی: 1405/06/11 01:04
 
 ---
+
+## tasiyanc — post 9130
+
+<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
+
+15 بازی 15 برد ✅
+
+من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
+g18
+لینک چنل
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
+
+## tasiyanc — post 9129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️دادسرای جنایی تهران :
+
+ساعاتی پیش جنازه حمیدرضا رجب‌زاده(مداح) اطراف تهران کشف شد،جنازه رجب‌‌زاده توسط قاتلین تکه تکه شده و سپس سوخته.
+
+🌎 @Tasiyanc
+</div>
+
+## tasiyanc — post 9127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول داغونه ضعیفه
+</div>
+
+## tasiyanc — post 9126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated Multi ━━━╮
+
+vless://6f436a44-f703-93da-7e45-615824a39d3b@teain.org:1000?security=reality&encryption=none&pbk=ECxm-BdHYhxYK9MtN33NkkrFSdFZXp-OB-yhN8AleRY&headerType=none&fp=ios&type=tcp&sni=knox.cdn-apple.com&sid=a62d513cd709744a#%40TASIYANC%20%F0%9F%94%B1%2001
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.169:443#%40TASIYANC%20%F0%9F%94%B1%2002
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpiSU9vaTVUdUltRzJLY2N4VjctamNBN0Nleit2dW4tY19F@104.156.233.234:27116#%40TASIYANC%20%F0%9F%94%B1%2003
+
+vless://9f0285ee-20ca-4953-bcdb-86a920652923@204.216.216.23:10086?security=none&encryption=none&headerType=none&type=tcp#%40TASIYANC%20%F0%9F%94%B1%2004
+
+vless://b052df40-d51c-456c-9bd6-57af01a87e4e@cdn.pinecloud.net:443?security=reality&encryption=none&pbk=vWSgdMDirb9aDZLWijSXXXl-NCTrtBgEe9MQqcgV6h8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=cdn.pinecloud.net&sid=6a2e3af684799b19#GB%20LONDON%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
+
+
+📍Multi location
+@TASIYANC 🔋
+</div>
+
+## tasiyanc — post 9125
+
+<div align="center"><video src="files/post_9125_tasiyanc_9125.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9125_tasiyanc_9125.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی جدید 
+🆕
+
+Midnight Street Style → prompt 
+🤖
+🤖
+
+مرد
+
+​"A close-up moody urban portrait of a handsome young man with long wavy dark hair and a beard, wearing dark-tinted sunglasses. He is dressed in an all-dark outfit: a textured charcoal grey nylon bomber jacket, a charcoal t-shirt, and dark grey washed jeans. He is leaning back against a black industrial structure. His posture is relaxed and cool, with his hand resting near his chest, gazing slightly away. The lighting is diffused and dark, emphasizing the moody atmosphere. High-resolution, cinematic quality, natural skin, rich dark color palette."
+
+
+زن
+
+​"A moody street style portrait of a stylish woman with wavy blonde hair leaning against a concrete column. She is wearing an oversized flannel shirt with a grey and black plaid pattern, light grey relaxed-fit denim jeans, a beige baseball cap worn backward, and cat-eye sunglasses. Large intricate gold hoop earrings are visible. Her pose is confident, looking off to the side. The background features a dark wood paneled garage door. High-end streetwear editorial photography, dark and muted tones, cinematic natural lighting, realistic skin textures."
+
+
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9124
+
+<div align="center"><video src="files/post_9124_tasiyanc_9124.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9124_tasiyanc_9124.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 
+🆕
+
+Oreo Hair — Night Selfie 
+🤖
+🤖
+
+Prompt - بزنید روش کپی میشه
+
+An extremely unremarkable iPhone mirror selfie photo with no clear subject or framing—just a careless snapshot. The photo has a touch of motion blur, and mildly overexposed from uneven sunlight. The angle is awkward, the composition nonexistent, and the overall effect is aggressively mediocre—like a photo taken by accident while pulling the phone out of a pocket to take the selfie. It's of an e girl in a skirt, oversized (very big) black hoodie, and has tight, white legs warmers with converse shoes, she holds her legs up, she is sitting in the sofa, her face is visible, she has oreo hair, vertical 9:16 aspect ratio, no lights, it’s night, the mirror is slightly dirty.
+
+آموزش استفاده 
+♻️
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9123
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
+
+## tasiyanc — post 9122
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage…
+</div>
+
+## tasiyanc — post 9121
+
+<div align="center"><img src="files/post_9121_tasiyanc_9121.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی کانال 🆕
+
+Velvet Roses 💐
+
+Prompt 🤖🤖
+
+Create a highly realistic dark romantic portrait of a young woman standing indoors against a plain textured warm gray-beige wall.
+
+COMPOSITION:
+Vertical portrait, upper-body framing, camera positioned directly in front of the woman, slightly above chest level. The woman occupies the center of the frame. Her head is slightly tilted to one side, shoulders relaxed. A very large bouquet of deep burgundy-red roses is held directly in front of her chest and covers most of the lower half of the image. The bouquet is dense and luxurious, consisting of many realistic fully bloomed dark red roses with velvety layered petals and subtle dark green leaves.
+
+MODEL:
+Young adult woman, elegant feminine appearance, natural realistic facial proportions, long straight dark brown hair falling over both shoulders, subtle dark burgundy/red highlights visible in the hair. Defined natural eyebrows, long eyelashes, soft eyeliner, subtle warm makeup, smooth but realistic skin texture, matte deep burgundy lipstick.
+
+POSE AND EXPRESSION:
+Eyes gently closed, calm and peaceful expression, slightly raised chin, head subtly tilted backward and to the side. Relaxed lips, elegant neck and shoulders. Both hands gently hold the bouquet from underneath, naturally positioned around the stems. Realistic hands, fingers and nails.
+
+CLOTHING:
+Elegant fitted black long-sleeve top with a simple wide neckline, minimal and sophisticated. A very thin delicate gold necklace with a tiny circular pendant around her neck. No other visible jewelry.
+
+LIGHTING:
+Extremely soft and dim cinematic lighting. Warm low-key ambient illumination from the front-left. Very subtle deep red light falling across the left side of the hair and background. Soft shadow of the woman's head and hair cast onto the wall behind her. Face remains naturally illuminated but the overall exposure is dark and moody. No hard flash, no bright studio lighting.
+
+COLOR PALETTE:
+Dark burgundy, deep crimson red, black, muted brown, warm gray and subtle skin tones. Low saturation, cinematic muted colors, rich dark shadows, deep blacks, soft warm highlights.
+
+PHOTOGRAPHY STYLE:
+Dark romantic editorial fashion photography, gothic romantic aesthetic, intimate luxury portrait, cinematic photography, realistic DSLR photography, 85mm portrait lens, f/1.8 aperture, shallow depth of field, natural perspective, soft optical bokeh, subtle film grain, realistic skin pores, realistic individual hair strands, highly detailed rose petals, natural shadows, professional color grading.
+
+IMPORTANT:
+Photorealistic human anatomy, realistic facial proportions, realistic hands and fingers, realistic rose petals and leaves. Preserve natural imperfections and authentic skin texture. The image should look like a real photograph taken in a dimly lit room, not AI-generated, not illustration.
+
+MOOD:
+Elegant, mysterious, melancholic, romantic, intimate, dark feminine, luxurious and cinematic.
+
+NEGATIVE PROMPT:
+cartoon, anime, illustration, CGI, 3D render, plastic skin, porcelain skin, excessive beauty retouching, overexposed face, bright lighting, flash photography, oversaturated colors, neon colors, smiling, open eyes, distorted face, asymmetrical eyes, deformed hands, extra fingers, missing fingers, malformed fingers, duplicated hands, artificial flowers, unrealistic rose petals, floating flowers, bad anatomy, short hair, curly hair, blonde hair, colorful clothing, excessive jewelry, busy background, text, watermark, logo, low resolution, blur, excessive HDR, harsh sharpening
+
+آموزش استفاده ♻️
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پرامپت VİP تاسیان برا دختر خانومای چنل ، بریم توکارش
+</div>
+
+## tasiyanc — post 9119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 🖤 Config Unlimated location 🇹🇷━━━╮
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.141:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.55:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7%E2%9A%A1
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.154:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%40Tasiyanc%20%F0%9F%87%B9%F0%9F%87%B7
+
+vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.67:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&host=storage.yandex.net&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20Turkey%2C%20Tasiyanc
+
+
+Android 🕹 : V2box🔐  Npv tunnel 🔐  V2rayNG 🔐
+
+iOS  📱: V2BOX 🔐  Npv tunnel 🔐
+
+Join As @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+r18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9117
+
+<div align="center"><img src="files/post_9117_tasiyanc_9117.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+r18
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9116
+
+## tasiyanc — post 9115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن Turkey📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 
+🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
+</div>
 
 ## tasiyanc — post 9113
 
@@ -41,207 +301,5 @@ cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, str
 توجه : اسکنر نپستر باگ داره پینگ نگیرید
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9109
-
-<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9106
-
-<div align="center"><img src="files/post_9106_tasiyanc_9106.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 🆕
-
-Prompt 🤖🤖
-
-fashion editorial photography, front shot, upper body, professional female model, shot with hasselblad x2d 100c, xcd 90mm f/2.5 lens, cinematic sepia color grading with golden hour warmth, dramatic black silhouette against burnt umber to honey amber gradient backdrop, avant-garde composition with tilted head pose, staring to camera, profound gaze, elongated body stance, flowing black turtleneck, professional main fresnel light at 60 degree angle with silk diffusion, rim light with cto gel at 75 degree angle, haze machine for ethereal atmosphere, feathered shadows, contrast curve manipulation, selective dodge and burn, grain texture overlay, color temperature adjustment at 5500k to 3200k gradient, ultra sharp details, raw format, inspired by paolo roversi lighting technique, hyper realistic, 16K, rich detail --ar 9:16 --quality 2 --style raw --personalize nq7rq2j --stylize 500 --v 6.1
-
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9105
-
-<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خورخه مسی، پدر لیونل مسی درگذشت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فوری سپاه پاسداران:
-بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
-بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9103
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9102
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9099
-
-<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت Vip جدید 🆕
-
-Prompt 🤖🤖
-عکس دخترانه هم میشه بدید
-A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9098
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
-</div>
-
-## tasiyanc — post 9096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
-</div>
-
-## tasiyanc — post 9095
-
-<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎
-
-عکس خودتون و پارتنرتون بدید به AI
-
-Prompt 🤖🤖
-"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
-آموزش استفاده 👉
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
-</div>
-
-## tasiyanc — post 9093
-
-<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت VIP 
-🆕
-«پرتره سینمایی با نور گرم کرکره‌ای»
-
-Prompt 
-🤖
-🤖
-اگر پسر هستید جای Woman کلمه Man بزارید
-Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
-آموزش استفاده 
-👉
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9092
-
-<div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه 
-⚠️
-
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید
-⭐
-</div>
-
-## tasiyanc — post 9091
-
-<div align="center"><video src="files/post_9091_tasiyanc_9091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9091_tasiyanc_9091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱اگر #تندو تیز هستی اینو ببین 
-💵
-💰
-
-
-✊این بازی فقط سرعت عمل بالا میخواد😍
-
-
-🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 
-🤩
-🤩% شارژ اضافی🔥
-
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-
-💻 betinja.bet
-
-💻 betinja.bet
-
-🌐 کانال بونوس های رایگان r17
-@betinjabet
-</div>
-
-## tasiyanc — post 9090
-
-<div align="center"><img src="files/post_9090_tasiyanc_9090.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 پرامپت VIP مادر فرزندی
-
-عکس فرزند و مادر بدید ChatGpt یا Gemini پرامپت زیر را بزنید
-Prompt
-
-Строго сохранить внешность 1:1 по загруженным фото: черты лица, пропорции, возраст, форму глаз, носа, губ, естественную асимметрию лица; без идеализации, морфинга, face swap и beautify. Формат 9:16. Фотореалистичный студийный семейный портрет в минималистичном стиле. Черный бесшовный фон. Мама сидит ближе к камере, опираясь подбородком на обе ладони, локти слегка сведены, спокойная нежная улыбка и прямой взгляд в объектив. Сын стоит позади мамы, наклонившись вперед, обе ладони лежат на макушке мамы, подбородок опирается на руки. Мальчик улыбается, взгляд направлен прямо в камеру. Между ними чувствуется искренняя теплота и легкая игровая атмосфера. На маме легкое платье с мелким цветочным принтом, на сыне простая светлая футболка без принтов. Макияж у мамы: сияющая кожа, легкий контуринг, естественный румянец, нюдовые губы, длинные ресницы, подчеркнутые глаза. Волосы объемно уложены. Мягкий студийный свет через большой октабокс, плавные объемные тени, глубокий черный фон, классическая портретная обработка в черно-белой гамме с мягким контрастом, высокой детализацией кожи и волос, атмосферная fine art photography. 85 mm, f/2.0, shallow depth of field, photorealistic skin texture, black and white portrait, fine art studio photography, ultra realistic, high detail, 8K.
-
-
-🤩 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتاق جنگ ارتش اسرائیل:
-آمریکا امروز فروش بیش از ۵ هزار فروند موشک رهگیر را به بحرین، کویت، قطر و امارات متحده عربی تأیید کرد تا ذخایر سامانه‌های پدافند هوایی این کشورها دوباره تأمین شود.
-
-@TASIYANC ⭐️
 </div>
 

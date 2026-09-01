@@ -1,8 +1,232 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/10 22:26
+📅 آخرین بروزرسانی: 1405/06/11 01:04
 
 ---
+
+## tasiyanc — post 9343
+
+<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr25
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
+
+## tasiyanc — post 9342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای همراه اول و بقیه اوپراتور ها
+
+ساب نامحدود - ارسالی از GTXll
+
+https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
+
+آموزش ویدیویی اضافه کردن ساب 💘
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
+🎲 بازگشت هفتگی 🤩🤩 درصد
+🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
+
+🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
+👇🏻👇🏻
+🎲  🌐winro.io🎲
+
+کانال اخبار و هدایا👇🏻
+🌐Telegram
+</div>
+
+## tasiyanc — post 9337
+
+<div align="center"><img src="files/post_9337_tasiyanc_9337.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆 بیمه ی 🤩🤩🤩 درصدی سوپرکاپ فرانسه
+
+🎲 در صورت شارژ حساب و پیش بینی اشتباه بازی سوپرکاپ فرانسه 100 درصد مبلغ شرط را از وینرو هدیه بگیرید‼️
+
+⚽️ لانس⚽️✖️⚽️ پاری سن ژرمن
+⏰ امشب ساعت 22:15
+🚨 ورزشگاه بولار دللیس
+
+🎲ثبت نام آسان و سریع کلیک کنید🎲
+
+✅🤩🤩🤩🤩 بونوس اولین واریز
+✅🤩🤩🤩بونوس واریز کریپتو
+✅تا🤩🤩🤩🤩 بونوس روی برگه‌های ترکیبی
+✅پخش زنده ی تمام مسابقات 🎰
+✅درگاه اختصاصی برای کاربران 💰
+🔊اپلیکیشن حرفه ای 📱
+sr25
+    🎲🎲🎲🎲🎲  معتبرترین سایت ایران
+</div>
+
+## tasiyanc — post 9336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐 05.conf
+</div>
+
+## tasiyanc — post 9332
+
+<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
+
+«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9330
+
+<div align="center"><img src="files/post_9330_tasiyanc_9330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+a24
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
+
+## tasiyanc — post 9329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
+</div>
+
+## tasiyanc — post 9328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟
+
+پسر توپُر & سیکس پک ؟
+
+کامنت
+</div>
+
+## tasiyanc — post 9323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد 😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9321
+
+<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید نوید محمدزاده با پرچم پِلستین
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 9319
 
@@ -71,205 +295,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 🔴پینگ نگیرید
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡ناو هواپیمابر ابراهام لینکلن پس از بیش از 260 روز عملیات و در پی بررسی شرایط گزارش‌شده، این ناو در حال بازگشت به خانه است
-
-@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 9311
-
-<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات دیوانه وار اسرائیل به جنوب لبنان
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 15، روز آرامش و ریلکس کردنه.
-
-تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
-تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
-</div>
-
-## tasiyanc — post 9306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9305
-
-<div align="center"><img src="files/post_9305_tasiyanc_9305.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤میخوای مسابقات فوتبال پیش بینی کنی؟!
-🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
-
-⛔دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-⭐دارای لایسنس و مجوز anjuan
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-r24
-🔔کانال دربی بت :👇
-✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
-
-@tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از فوبیاتون بگید .... از چی میترسید؟
-</div>
-
-## tasiyanc — post 9302
-
-<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کد های مخفی ChatGpt که بکارتون میاد🤖
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-آموزش اتصال روی اندروید⚡️
-
-آموزش اتصال روی ویندوز  ⚡️
-
-دانلود برنامه برای ویندوز 💻
-
-@TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐊 crocodile
-بعد سه ماه متولد شده عشق کنید
-تو قطعیا یادتونه دیگه چقد ترکوندیم
-</div>
-
-## tasiyanc — post 9299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
-</div>
-
-## tasiyanc — post 9297
-
-<div align="center"><video src="files/post_9297_tasiyanc_9297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9297_tasiyanc_9297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-a23
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+FaoDjhEVG34wMWFk
-https://t.me/+FaoDjhEVG34wMWFk
 </div>
 
