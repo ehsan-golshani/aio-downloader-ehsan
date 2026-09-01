@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 7931
+
+<div align="center"><img src="files/post_7931_tasiyanc_7931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو کدومی؟خودم 15
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7930
+
+<div align="center"><img src="files/post_7930_tasiyanc_7930.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی بهتون معرفی کنم:
+
+اگر یه خونه خالی یا حتی یه اتاق خالی دارید
+و نمیدونی چجوری دیزاینش کنید
+وارد این وبسایت خارجی بشید:
+home.by.me
+یه فضایی در اختیارتون میذاره که تصور می‌کنید
+الان وارد نرم‌افزارهای تخصصی دیزاین شدید.
+
+اول از همه ابعاد اتاق، دیوارهاش و به‌صورت کلی متراژ رو مشخص کنید، بعدش شروع کن به دیزاینش با محصولاتی که سایت در اختیارت می‌ذاره؛ مثل مبلمان، میز و
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7928
+
+<div align="center"><img src="files/post_7928_tasiyanc_7928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام داداش به رفقا بگو استرس نکشن، دینی رو میشه تو یک ساعت
+جمع کرد😹
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7924
+
+<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز روز جهانی کبابه😍
+
+بفرس برا رفیقت برات بخره☺️
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
+
+مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7919
+
+<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7917
 
@@ -142,93 +239,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 روح تمام پدر های آسمانی شاد🖤
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 7892
-
-<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
-
-بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7884
-
-<div align="center"><img src="files/post_7884_tasiyanc_7884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 جدیدا دخترای ایرانی توی توییتر، با انتشار این تصاویر دارن پسرا رو به کتابخوانی دعوت میکنن😂
-
-@Tasiyanc ⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7883
-
-<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7882
-
-<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
-
-اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم ایران و امریکا مثل مهریه‌ست
-کی داده کی گرفته🤣
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
-
-1- سایت : TalkEnglish.com
-2- سایت : Storynory.com
-3- سایت : Lingua.com
-4- سایت : Grammerly.com
-5- سایت : Oysterenglish.com
-
-@Tasiyanc✅
-#Mobina
 </div>
 

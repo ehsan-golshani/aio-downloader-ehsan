@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 5958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرسی از تبریک های قشنگتون 🥹❤️‍🔥
+بهترین ها نصیبتون شه ایشالا مرسی که هستید ❤️
+</div>
+
+## tasiyanc — post 5957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 امروز تولدمه!
+
+یه کیک بما نمیرسه؟🎂
+30May - 9 خرداد
+
+💘💘💘 💘💘 💘💘
+</div>
+
+## tasiyanc — post 5956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
+
+## tasiyanc — post 5955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعتی تست
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5954
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسل قوی وصله
+</div>
+
+## tasiyanc — post 5953
+
+<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد ۷ ثانیه 😮‍💨
+</div>
+
+## tasiyanc — post 5952
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایرانسلم میگن وصله
+اره ❤️
+نه 💋
+</div>
+
+## tasiyanc — post 5950
+
+<div align="center"><img src="files/post_5950_tasiyanc_5950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TS premium Servers 🌲⚡.npvt
+</div>
 
 ## tasiyanc — post 5949
 
@@ -94,84 +155,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 -FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
-</div>
-
-## tasiyanc — post 5934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
-
-5سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑
-Proxy 0
-Proxy 1
-Proxy 2
-Proxy 3
-</div>
-
-## tasiyanc — post 5930
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-زاپاس تاسیان ✅ حتما جوین شوید
-https://t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
-</div>
-
-## tasiyanc — post 5928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+RTGtcYWb8HdkNjdk
-
-بیاید گپمون دور هم باشیم
-</div>
-
-## tasiyanc — post 5927
-
-<div align="center"><img src="files/post_5927_tasiyanc_5927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Wifi نت خانگی⚡.npvt
 </div>
 

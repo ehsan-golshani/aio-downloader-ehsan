@@ -1,8 +1,128 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 9020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•تقدیم به مردم سرزمینم 🖤
+
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه ⚠️
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
+</div>
+
+## tasiyanc — post 9018
+
+<div align="center"><video src="files/post_9018_tasiyanc_9018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9018_tasiyanc_9018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱به راحتی کسب درامد کن 💵💰
+
+🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+💻 betinja.bet
+💻 betinja.bet
+🌐 کانال بونوس های رایگان a14
+@betinjabet
+</div>
+
+## tasiyanc — post 9017
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
+</div>
+
+## tasiyanc — post 9015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم🖤
+
+کانفیگ اختصاصی نامحدود HttpCustum 📱
+
+سرور سرعتی مناسب تمام نت‌ها ⚡️
+
+آموزش اتصال ✅
+
+دانلود  📱android🕹  iOS
+
+اتصال امن برای همه 🏠
+
+💙@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ HttpCustum بزاریم ؟
+</div>
+
+## tasiyanc — post 9012
+
+<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎کانفیگ اختصاصی نامحدود اینجکتور
+📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
+⚡️
+
+سرور سرعتی‌ لوکیشن USA 
+📍
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون  
+📱
+
+آموزش اتصال 
+🔸
+
+اتصال امن برای همه 🇮🇷
+
+
+📱 @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9011
+
+<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
+
+
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9010
 
@@ -291,143 +411,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 🔴 دست کم ۷ انفجار در دوبی منطقه جبل علی
 
 مشخص نیست حمله شده یا چی
-</div>
-
-## tasiyanc — post 8996
-
-<div align="center"><video src="files/post_8996_tasiyanc_8996.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8996_tasiyanc_8996.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 یک سایت اما دسترسی به ده‌ها هوش مصنوعی!
-
-
-🟠اگر نمی‌خواهی برای هر مدل هوش مصنوعی یک سایت جدا باز کنی، Poe.com دقیقاً همان چیزی است که دنبالش هستی.
-
-در Poe می‌توانی با مدل‌هایی مثل ChatGPT، Claude، Gemini، DeepSeek، Grok، Llama و ده‌ها مدل دیگر، همه در یک پلتفرم، گفتگو کنی و بهترین پاسخ را بگیری.
-
-🪩 https://Poe.com
-
-
-
-⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
-👩‍💻
-
-فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
-
-
-🔗 replit.com
-
-🔗 bolt.new
-
-🔗 stack.ai
-
-🔗 v0.dev
-
-🔗 cursor.sh
-
-🔗 Lovable.dev
-
-🔗 codeium.com
-
-🔗 tabnine.com
-
-🔗 github.com/features/copilot
-
-مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
-
-
-⚡️@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
-</div>
-
-## tasiyanc — post 8993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن هلند، انگلیس ، آمریکا ، هند 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8992
-
-<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #بازی_پولساز 
-⚠️
-
-🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
-</div>
-
-## tasiyanc — post 8991
-
-<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😯 اگر هوشت بالاست 
-🗼 :
-
-
-❌ 
-👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
-
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
-
-💻لینک سایت بازی:
-
-💻 betinja.bet
-
-💻 betinja.bet
-
-🌐 کانال بونوس های رایگان a13
-@betinjabet
-</div>
-
-## tasiyanc — post 8990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
-</div>
-
-## tasiyanc — post 8989
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
 </div>
 

@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 9049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+سرور  سرعتی پرمیوم ⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9048
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش از وضعیت اینترنت خطوط همراه و ایرانسل بدید
+</div>
+
+## tasiyanc — post 9044
+
+<div align="center"><video src="files/post_9044_tasiyanc_9044.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9044_tasiyanc_9044.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سوتی جدید. پزشکیان:
+
+پزشکیان: ما بچه که بودیم پنکه نداشتیم
+مجری: آخه آذربایجان خنکه
+پزشکیان: من تو زابل خدمت میکردم
+مجری: آخه شما میگی وقتی بچه بودم
+پزشکیان: من تو زابل خدمت میکردم و پنکه‌ام نداشتم، حالا چی میگی؟
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ایران عوارض ۷٪ را بر تمام کشتی‌های تجاری عبوری از تنگه هرمز اعلام کرده است , این امر برای ایران ۳۸۵ میلیون دلار خالص روزانه یا بیش از ۱۰۰ میلیارد دلار خالص سالانه با حجم ترافیک پیش از جنگ ایجاد می‌کند
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری 🔴 در پی حمله موشکی حوثی های یمن
+
+تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
+
+پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
+
+اطلاعیه سازمان وظیفه عمومی:
+▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9038
+
+<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کوثری ؛ از فرماندهان سپاه:
+پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9036
 
@@ -161,125 +255,5 @@ iOS 📱
 V2BOX 🔐 Npv tunnel 🔐
 
 Join As @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پیشنهاد_ویژه ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
-دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 9018
-
-<div align="center"><video src="files/post_9018_tasiyanc_9018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9018_tasiyanc_9018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان a14
-@betinjabet
-</div>
-
-## tasiyanc — post 9017
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نت خرابه ، گزارش وضعیت از خطوط همراه و ایرانسل بدید...
-</div>
-
-## tasiyanc — post 9015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه 🏠
-
-💙@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9014
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ HttpCustum بزاریم ؟
-</div>
-
-## tasiyanc — post 9012
-
-<div align="center"><video src="files/post_9012_tasiyanc_9012.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9012_tasiyanc_9012.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 🇮🇷
-
-
-📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9011
-
-<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
-
-
-
-@TASIYANC 
-✅
 </div>
 

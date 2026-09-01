@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 8651
+
+<div align="center"><video src="files/post_8651_tasiyanc_8651.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8651_tasiyanc_8651.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹یادی کنیم از عملیات « شوک وحشت» آمریکا در سال ۲۰۰۳ علیه رژیم صدام
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8650
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت تداوم عدم حمایت و نداشتن جذب ، چنل بزودی بفروش خواهد رسید و اتمام فعالیت تاسیان بزودی اعلام خواهد شد ❤️
+</div>
+
+## tasiyanc — post 8647
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8646
+
+<div align="center"><video src="files/post_8646_tasiyanc_8646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8646_tasiyanc_8646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹وقتی یه عالمه اسباب‌بازی داری ولی هیشکی باهات بازی نمیکنه :)
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8643
+
+<div align="center"><img src="files/post_8643_tasiyanc_8643.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سپاه :
+در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8640
+
+<div align="center"><video src="files/post_8640_tasiyanc_8640.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8640_tasiyanc_8640.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شیر سیاه گونه ای زیبا و در حال انقراض از شیر ها در آفریقا 🦁
+
+@TASIYANC✅
+</div>
+
+## tasiyanc — post 8639
+
+<div align="center"><video src="files/post_8639_tasiyanc_8639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8639_tasiyanc_8639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امکانات و ویژگی های خودرو ریاست جمهوری ایالات متحده🇺🇸
+
+ويژگى هاى اين خودرو كه هيولا نام دارد:
+هیولا توسط شرکت کادیلاک و تحت نظارت سرویس مخفی آمریکا ساخته شده و برخلاف ظاهر لوکسش، بیشتر شبیه یک تانک زرهی پنهان است.
+درون خودرو یک مرکز کنترل ارتباطی پیشرفته وجود دارد که رئیس‌جمهور میتواند در آن با فرماندهی ارتش یا مقامات اضطراری تماس فوری برقرار کند.
+خودرو همیشه در کاروانی ویژه همراه با چند نسخه مشابه حرکت میکند تا هویت واقعی رئیسجمهور مشخص نباشد.
+هیولا مجهز به دوربین دید در شب، سیستم اشعه مادون قرمز و تجهیزات دفع گاز اشک‌آور است.
+کلیدهای امنیتی اصلی خودرو فقط در اختیار مأمور ویژه‌ی سرویس مخفی است، و حتی راننده هم دسترسی کامل به همه‌ی سیستم‌ها ندارد
+
+
+Fact @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8629
 
@@ -141,97 +245,5 @@ Fact @TASIYANC ✅
 اگر این نظریه درست باشد، تمام لحظاتی که در کارتون میبینیم، در واقع روح دختر بچه ای تنها بود که برای آرام کردن خرسی که از کشته شدن نا خواسته اش عذاب وجدان داشت با اون دوست شده بود 💔
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8616
-
-<div align="center"><video src="files/post_8616_tasiyanc_8616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8616_tasiyanc_8616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺ویدیویی شگفت انگیز از تهران قدیم ۱۰۰ سال قبل سال 1306 شمسی
-صدای ویدیو را باز کنید
-
-یکی از معتبرترین تصاویر تهران قدیم است که توسط فردریک گادامر، فیلمبردار فرانسوی در تهران ضبط شده است. در این ویدیو، تصاویری از کوچه‌ها و بازار تهران را میبینید. ویدیو را تا پایان تماشا کنید و بنویسید که تصویر آخر در کدام خیابان تهران ضبط شده است؟
-FACT @TASIYANC 💠
-</div>
-
-## tasiyanc — post 8615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-پینگ نگیرید
-vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
-Location 🇺🇸
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8614
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8612
-
-<div align="center"><video src="files/post_8612_tasiyanc_8612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8612_tasiyanc_8612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺والنتینا واسیلیوا زنی بود که طبق اسناد تاریخی، در روسیه قرن هجدهم ۲۷ بار زایمان کرد و صاحب ۶۹ فرزند شد؛ ۱۶ بار دوقلو، ۷ بار سه قلو و ۴ بار چهارقلو 😐
-
-شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8611
-
-<div align="center"><video src="files/post_8611_tasiyanc_8611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8611_tasiyanc_8611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تلمبه اسراییل به جنوب لبنان
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8610
-
-<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺عجیب ترین زبان جهان 🌍
-
-قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
-حتی وقتی فاصلهای بین افراد نیست.
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8609
-
-<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
-مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
-
-
-چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
 </div>
 

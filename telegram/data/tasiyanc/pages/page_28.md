@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/10 04:18
+📅 آخرین بروزرسانی: 1405/06/10 14:14
 
 ---
+
+## tasiyanc — post 9098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
+</div>
+
+## tasiyanc — post 9096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
+</div>
+
+## tasiyanc — post 9095
+
+<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎
+
+عکس خودتون و پارتنرتون بدید به AI
+
+Prompt 🤖🤖
+"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
+</div>
+
+## tasiyanc — post 9093
+
+<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت VIP 
+🆕
+«پرتره سینمایی با نور گرم کرکره‌ای»
+
+Prompt 
+🤖
+🤖
+اگر پسر هستید جای Woman کلمه Man بزارید
+Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9092
+
+<div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه 
+⚠️
+
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید
+⭐
+</div>
+
+## tasiyanc — post 9091
+
+<div align="center"><video src="files/post_9091_tasiyanc_9091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9091_tasiyanc_9091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱اگر #تندو تیز هستی اینو ببین 
+💵
+💰
+
+
+✊این بازی فقط سرعت عمل بالا میخواد😍
+
+
+🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 
+🤩
+🤩% شارژ اضافی🔥
+
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان r17
+@betinjabet
+</div>
+
+## tasiyanc — post 9090
+
+<div align="center"><img src="files/post_9090_tasiyanc_9090.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 پرامپت VIP مادر فرزندی
+
+عکس فرزند و مادر بدید ChatGpt یا Gemini پرامپت زیر را بزنید
+Prompt
+
+Строго сохранить внешность 1:1 по загруженным фото: черты лица, пропорции, возраст, форму глаз, носа, губ, естественную асимметрию лица; без идеализации, морфинга, face swap и beautify. Формат 9:16. Фотореалистичный студийный семейный портрет в минималистичном стиле. Черный бесшовный фон. Мама сидит ближе к камере, опираясь подбородком на обе ладони, локти слегка сведены, спокойная нежная улыбка и прямой взгляд в объектив. Сын стоит позади мамы, наклонившись вперед, обе ладони лежат на макушке мамы, подбородок опирается на руки. Мальчик улыбается, взгляд направлен прямо в камеру. Между ними чувствуется искренняя теплота и легкая игровая атмосфера. На маме легкое платье с мелким цветочным принтом, на сыне простая светлая футболка без принтов. Макияж у мамы: сияющая кожа, легкий контуринг, естественный румянец, нюдовые губы, длинные ресницы, подчеркнутые глаза. Волосы объемно уложены. Мягкий студийный свет через большой октабокс, плавные объемные тени, глубокий черный фон, классическая портретная обработка в черно-белой гамме с мягким контрастом, высокой детализацией кожи и волос, атмосферная fine art photography. 85 mm, f/2.0, shallow depth of field, photorealistic skin texture, black and white portrait, fine art studio photography, ultra realistic, high detail, 8K.
+
+
+🤩 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9089
 
@@ -187,173 +308,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر مهم 
-🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
-
-بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
-«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9075
-
-<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 7 آگوست روز جهانی ترویج شیردهی هست
-
-+بفرست برا کسی که میخوای بت شیر بده 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9072
-
-<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ در تروث سوشیال :
-"دونالد ترامپ در جنگ با ایران پیروز شد."
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9071
-
-<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 
-🖤 Config Unlimated Vip 
-⚡️━━━╮
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-ANDROID 
-🕹
-V2box
-🔐 Npv tunnel 
-🔐  V2rayNG 
-🔐
-iOS  
-📱
-V2BOX 
-🔐  Npv tunnel 
-🔐
-
-Join As @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9070
-
-<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-r16
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9069
-
-<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-r16
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 
