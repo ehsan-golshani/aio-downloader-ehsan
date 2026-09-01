@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/10 00:41
+📅 آخرین بروزرسانی: 1405/06/10 09:23
 
 ---
+
+## ProxyMTProto — post 49922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.mishkalapy.life
+Port: 443
+Secret: ee05b1fa1cf5ade2ed4052b16971b33ca46e6f64652e6d6973686b616c6170792e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49919
 
@@ -154,33 +181,6 @@ Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49902
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mtp1.hlebushek.com
-Port: 443
-Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49901
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.29
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49900
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: edge2.librava.click
-Port: 443
-Secret: ee4cac1442f878b9c522cf77e7cc47dd8765646765322e6c6962726176612e636c69636b
 @ProxyMTProto
 </div>
 
