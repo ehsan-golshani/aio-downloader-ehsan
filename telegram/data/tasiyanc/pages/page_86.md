@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/06/11 01:04
+📅 آخرین بروزرسانی: 1405/06/11 03:10
 
 ---
+
+## tasiyanc — post 7250
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی چند چند میشه؟
+</div>
+
+## tasiyanc — post 7249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وصله با سرعت ( مناسب گیم و وبگردی) 
+💓
+
+
+🔐 Config Win⁰¹ - Win⁰² 
+💘
+
+🌟 Config DarkTunnel 
+💘
+</div>
+
+## tasiyanc — post 7248
+
+<div align="center"><video src="files/post_7248_tasiyanc_7248.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7248_tasiyanc_7248.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ نامحدود NPV
+
+4سرور سرعتی متد جدید
+⚡️
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال
+
+مناسب دانلود
+⬇️ وب‌گردی
+🔍 جمینای 
+🤖
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7247
 
@@ -260,65 +308,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 🎉ایلان ماسک: هیچ دختری شکم شش تکه را
 به ۶ تا ماشین ترجیح نمیدهد
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگای دارک امیدوارم فراگیر شه و همه برنامشو بزنن کانفیگاش استفاده کنن واقعا یه لول از بقیه متد ها سر تره ،
-کوچکترین باگ نمیشه پیدا کرد توش با سرعت اتصال پایدار میده و هر ثانیه اتصال شمارو چک می‌کنه پینگ میده
-این کانفیگ ها در صورت قطعی قطعا باهاش خیلی کار خواهیم کرد
-</div>
-
-## tasiyanc — post 7210
-
-<div align="center"><video src="files/post_7210_tasiyanc_7210.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7210_tasiyanc_7210.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ اختصاصی دارک تانل 
-🌟
-
-برای گیم 
-🎲 دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖 
-
-حجم نامحدود - سرعتی 
-🚀
-
-تست شده رو تمام نت ها 
-✅
-
-دانلود Dark Tunnel  
-🕹
-
-آموزش اتصال به سرور دارک 
-⏩
-
-
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅سرویس های حجم نامحدود با بهترین قیمت و کیفیت براتون تخفیف خورد 
-⭕️
-
-تک کاربر:290 هزار تومان
-دو کاربر:580هزار تومان
-سه کاربر:870هزارتومان
-
-
-🔥جهت خرید میتونید به PV زیر مراجعه کنید :
-
-🟢@nac_config
-
-🔵@nacconfig
 </div>
 

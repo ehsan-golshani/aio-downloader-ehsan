@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/06/11 01:04
+📅 آخرین بروزرسانی: 1405/06/11 03:10
 
 ---
+
+## tasiyanc — post 7316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی پرتغال شروع شروع شد
+به امید گلزنی و درخشش ستاره بی بدیل جهان حضرت رونالدو کبیر🤩❤️‍🔥
+</div>
+
+## tasiyanc — post 7309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7308
 
 ## tasiyanc — post 7307
 
@@ -172,30 +196,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 </div>
 
 ## tasiyanc — post 7284
-
-## tasiyanc — post 7283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪⚡ Fast 🚀.npvt
-</div>
-
-## tasiyanc — post 7280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 🔐
-
-🟢حجم و کاربر نامحدود 🟢
-
-تمام اپراتورا 🔺
-
-مناسب گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای
-
-دانلود ویندسکرایب : Android 📱  iOS 🕹
-
-آموزش اتصال به سرور ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7279
 

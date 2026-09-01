@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/11 01:04
+📅 آخرین بروزرسانی: 1405/06/11 03:10
 
 ---
+
+## tasiyanc — post 7777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو تو چنل پروکسی دنبال کنین
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 7764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+2سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜
+🛜🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
+</div>
 
 ## tasiyanc — post 7756
 
@@ -121,40 +160,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سوپرررررر گللللللل زد
-</div>
-
-## tasiyanc — post 7729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسییییییییی
-</div>
-
-## tasiyanc — post 7722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر گل دوم رو زد
-</div>
-
-## tasiyanc — post 7721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

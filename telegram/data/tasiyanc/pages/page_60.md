@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/11 01:04
+📅 آخرین بروزرسانی: 1405/06/11 03:10
 
 ---
+
+## tasiyanc — post 8233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
+
+## tasiyanc — post 8232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میره جنوب لبنان و نجات بده🤨
+</div>
+
+## tasiyanc — post 8231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8230
 
@@ -148,36 +166,5 @@
 🔴برق ایرانشهر انگار کاملا رفته
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢 حمله آمریکا به شهر ویسیان لرستان
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8210
-
-<div align="center"><video src="files/post_8210_tasiyanc_8210.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8210_tasiyanc_8210.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨هم اکنون حملات سنگین آمریکا به بوشهر:
-
-
-
-
-@Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
-
-@Tasiyanc ⭐️
 </div>
 

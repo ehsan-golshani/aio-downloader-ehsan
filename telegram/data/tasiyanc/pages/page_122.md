@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/06/11 01:04
+📅 آخرین بروزرسانی: 1405/06/11 03:10
 
 ---
+
+## tasiyanc — post 6136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast2⚡@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6130
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر 💋
+</div>
 
 ## tasiyanc — post 6129
 
@@ -164,28 +192,5 @@
 
 دانلود برنامه Wg tunnel 🕹
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ وایرگارد میزارم تست کنین
-
-برنامشو دان کنین
-
-دانلود Wg tunnel
-https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunnel
-</div>
-
-## tasiyanc — post 6107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪🚀 رایتل.npvt
-</div>
-
-## tasiyanc — post 6106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡🔥HOT.npvt
 </div>
 
