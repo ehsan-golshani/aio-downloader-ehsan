@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/10 00:43
+📅 آخرین بروزرسانی: 1405/06/10 04:18
 
 ---
+
+## tasiyanc — post 9696
+
+<div align="center"><img src="files/post_9696_tasiyanc_9696.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏐 تیم ملی والیبال زیر ۱۷ سال ایران با شکست فرانسه در دیدار فینال، به هفتمین برد متوالی خود دست یافت و مقتدرانه قهرمان جهان شد.
+
+🇮🇷 25 | 25 | 22 | 25
+🇫🇷 18 | 15 | 25 | 12
+
+@Tasiyanc 💋
+</div>
+
+## tasiyanc — post 9695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید 
+
+دانلود آیفون نسخه جدید 
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+(نسخه جدید دانلود کنید کانفیگای قبلی پاک کنید جدیدارو بزنید)
+
+
+
+🩸 @TASIYANC
+</div>
 
 ## tasiyanc — post 9690
 
@@ -317,80 +359,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9668
-
-<div align="center"><img src="files/post_9668_tasiyanc_9668.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق یک پیشبینی ریاضی که به یک دانشمند آمریکایی نسبت داده میشود ، دنیا روز جمعه ۱۳ نوامبر ۲۰۲۶ به پایان می‌رسد تقریبا ۷۸ روز دیگه .
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9666
-
-<div align="center"><video src="files/post_9666_tasiyanc_9666.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9666_tasiyanc_9666.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
 </div>
 
