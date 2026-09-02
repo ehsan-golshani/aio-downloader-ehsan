@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 8209
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
+</div>
+
+## tasiyanc — post 8207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی سپاه آغاز شد
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8204
 
@@ -129,51 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نظرتون چیه آخرش چی میشه؟؟؟
-</div>
-
-## tasiyanc — post 8187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات امشب بی سابقه اس
-</div>
-
-## tasiyanc — post 8185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
-</div>
-
-## tasiyanc — post 8184
-
-<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨تصویر تخریب پل کهورستان در بندر خمیر
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8183
-
-<div align="center"><video src="files/post_8183_tasiyanc_8183.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8183_tasiyanc_8183.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دو نفر از کارکنان ایستگاه راه آهن کشته شدن 
-💔
-
-@Tasiyanc
-✅
 </div>
 

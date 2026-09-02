@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 9634
+
+<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی
+- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9633
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9632
+
+<div align="center"><img src="files/post_9632_tasiyanc_9632.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         
+😃
+😃😃
+😃
+         
+😃
+😃😃
+😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9631
+
+<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آپدیت جدید برنامه نپستر را دانلود کنید
+
+کانفیگ حجم نامحدود نپسترنت
+سرور سرعتی مولتی لوکیشن
+
+تست شده روی همه نت ها ⚡️
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9630
+
+<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
+
+این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9628
 
@@ -229,98 +337,6 @@ til.ac/0L4vyJf
 🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
 
 + قهرمان ایران مسعود ذات‌پرور هست نه تو
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9612
-
-<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
-
-+ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
-
-🩸 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9611
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9610
-
-<div align="center"><img src="files/post_9610_tasiyanc_9610.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9607
-
-<div align="center"><img src="files/post_9607_tasiyanc_9607.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ممکنه در آینده تولد پسرها متوقف بشه ؟
-یک مطالعه علمی هشدار داده که کروموزوم Y، عامل اصلی تعیین جنسیت مردانه، در طول میلیون‌ها سال به‌شدت کوچک شده و بخش بزرگی از ژن‌های خود را از دست داده است؛ روندی که این سؤال نگران‌کننده را مطرح کرده: اگر این روند در آینده ادامه پیدا کند، آیا ممکن است روزی تولد پسرها متوقف شود؟!
-+منبع داخل بنر
-
 
 🩸 @Tasiyanc
 </div>

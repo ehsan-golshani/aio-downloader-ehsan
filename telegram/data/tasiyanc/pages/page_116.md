@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 6304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما باشید فشار نمیخورید؟
+</div>
+
+## tasiyanc — post 6303
+
+<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
+
+## tasiyanc — post 6302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
+</div>
+
+## tasiyanc — post 6301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
+</div>
+
+## tasiyanc — post 6300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
+</div>
 
 ## tasiyanc — post 6298
 
@@ -169,55 +203,5 @@ MCI - SamanTel - wifi تست شده
 اتصال به سرورها ⏩
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز 🦦
-</div>
-
-## tasiyanc — post 6280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN سرور فنلاند  ♻️
-
-تست شده با سامانتل بقیه تست کنن 🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6277
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده با سامانتل و ایرانسل🚀
-
-دانلود OpenVpn  🕹
-
-آموزش اتصال 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6276
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم ⏩ @TasiyanProxy ⏩ @TasiyanProxy
-</div>
-
-## tasiyanc — post 6275
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😮 ساعت 19 ترفند آموزش گرفتن کانفیگ وایرگارد اختصاصی در چنل پروکسی میزارم
-⏩ @TasiyanProxy
-⏩ @TasiyanProxy
 </div>
 

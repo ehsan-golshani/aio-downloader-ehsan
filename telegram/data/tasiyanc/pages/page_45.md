@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 8715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8714
+
+<div align="center"><video src="files/post_8714_tasiyanc_8714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8714_tasiyanc_8714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴ و ۵ مرداد سالگرد مرگ دو ابر مرد تاریخ رضاشاه کبیر و محمدرضا شاه فقید 🖤
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC 💥 سرعتی.npvt
+</div>
+
+## tasiyanc — post 8708
+
+<div align="center"><img src="files/post_8708_tasiyanc_8708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جدیدا یه چالشی راه افتاده که پسرا با دوس دخترشون که دور کمرشون اندازه یه کف دسته عکس میگیرن و به اشتراک میذارن.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی اهدایی ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8705
 
@@ -206,68 +266,5 @@ https://radio.garden/visit/reykjavik/82Q3wG81
 • تو اپراتور ایرنسل نیازی نیست کار خاصی انجام بدید ؛ فقط باید دقت داشته باشید که آخرین سیستم عامل اندروید روی گوشیتون نصب باشه و گوشیتون هم از VOLTE پشتیبانی کنه ؛ که اگه وارد ″این لینک″ بشید هم میتونید گوشی های واجد شرایط رو ببینید هم نحوه فعالسازیش ؛
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱WG tunnel🕹 iOS WG
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8684
-
-<div align="center"><img src="files/post_8684_tasiyanc_8684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رد پای هواپیمای Dragon Lady در آسمان ایران ⚠️
-
-«دراگون لیدی» کابوس آسمونه؛ اسم مستعار Lockheed U-2 که بالای ۲۰ کیلومتر پرواز میکنه و با دوربین‌های فوق دقیق هر تحرکی رو ثبت میکنه. کنارش معمولاً Boeing RC-135 Rivet Joint میاد؛ یکی تصویر میگیره، یکی شنود میکنه. خلبانش لباس شبیه فضانوردها میپوشه و هر وقت این دوتا کنار هم دیده میشن یعنی مأموریت اطلاعاتی جدیه.
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8682
-
-<div align="center"><img src="files/post_8682_tasiyanc_8682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی تاسیان 👑
-
-•عکساتو زیباتر کن 💖
-•آموزش استفاده 🤖🤖
-
-
-🔺دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8681
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلیییییی گرمهههههه
-</div>
-
-## tasiyanc — post 8679
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرنگار کاخ سفید به نقل از سنتکام:
-
-بعضی اوقات ما به ایران حمله نمی‌کردیم ولی میدیدیم که کلی موشک در آسمان به طرف ایران میره، بعد می‌فهمیدیم که کویت و بحرین و عربستان و … در حال حمله به ایران بودند ولی به طور رسمی اعلام نمی‌کردند
-@TASIYANC ⭐️
 </div>
 

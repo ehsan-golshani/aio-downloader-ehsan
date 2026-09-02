@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 8432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقع قطعی خودتو بکشی ام رات نمیدم
+</div>
+
+## tasiyanc — post 8431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
+</div>
+
+## tasiyanc — post 8430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تموم شد بریم بازی کسشر رو ببینیم
+</div>
+
+## tasiyanc — post 8429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانوووووو شکیرا اومد
+</div>
+
+## tasiyanc — post 8428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این بیژن مرتضوی ما چی شد
+</div>
 
 ## tasiyanc — post 8427
 
@@ -127,57 +157,5 @@
 آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8406
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04]⚡@Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 8405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 🔐
-
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
-trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
-
-Ip 🇩🇪 🇩🇪
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8400
-
-<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
-
-دریافت رسانه 👉
-</div>
-
-## tasiyanc — post 8398
-
-<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸توصیف عشق در یک جمله ...
-بفرست براش:)
-
-پروکسی | پروکسی
-
-
-@TASIYANC ✅
-#Nvd
 </div>
 

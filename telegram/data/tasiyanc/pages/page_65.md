@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/06/11 15:19
+📅 آخرین بروزرسانی: 1405/06/11 18:59
 
 ---
+
+## tasiyanc — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اهواز زیر دود بمباران 💔
+</div>
+
+## tasiyanc — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
+</div>
+
+## tasiyanc — post 8114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حملات شدید آمریکا به اهواز عزیز
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
+</div>
+
+## tasiyanc — post 8112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ👂 به فاکس نیوز:
+
+🔻 حملات علیه ایران هفته آینده گسترش خواهد یافت و خاورمیانه برای آنچه بعداً رخ خواهد داد آماده میشود
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8109
 
@@ -186,43 +222,5 @@ Vertical 9:16 ultra-realistic single integrated couple portrait at golden sunset
 دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تتر 190 - ریدید تو زندگی ما
-</div>
-
-## tasiyanc — post 8088
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ یک مقام ارشد آمریکایی : جمهوری اسلامی از توافق با آمریکا رسما خارج شد
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💢 فوری صنایع الکترونیک شیراز زدن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گرمهههههههههههههههههه
-</div>
-
-## tasiyanc — post 8085
-
-<div align="center"><img src="files/post_8085_tasiyanc_8085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جدول خاموشی مناطق مختلف تهران منتشر شد بفرستید به آشنا هاتون مطلع شن
-
-@Tasiyanc
 </div>
 
