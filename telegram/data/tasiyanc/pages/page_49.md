@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/11 22:35
+📅 آخرین بروزرسانی: 1405/06/12 01:23
 
 ---
+
+## tasiyanc — post 8615
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐
+پینگ نگیرید
+vless://4bde007a-f683-4a43-83ad-e11eff35e6b4@tasiyanc.nova-5e611f.workers.dev:443?path=%2F&security=tls&encryption=none&insecure=0&host=tasiyanc.nova-5e611f.workers.dev&fp=chrome&type=ws&allowInsecure=0&sni=tasiyanc.nova-5e611f.workers.dev#%40TASIYANC%20%F0%9F%9A%80
+Location 🇺🇸
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8614
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
+</div>
+
+## tasiyanc — post 8612
+
+<div align="center"><video src="files/post_8612_tasiyanc_8612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8612_tasiyanc_8612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺والنتینا واسیلیوا زنی بود که طبق اسناد تاریخی، در روسیه قرن هجدهم ۲۷ بار زایمان کرد و صاحب ۶۹ فرزند شد؛ ۱۶ بار دوقلو، ۷ بار سه قلو و ۴ بار چهارقلو 😐
+
+شگفت انگیزتر اینکه ۶۷ نفر از این کودکان از دوران نوزادی جان سالم به در بردند؛ اتفاقی بسیار نادر در آن زمان.
+
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8611
+
+<div align="center"><video src="files/post_8611_tasiyanc_8611.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8611_tasiyanc_8611.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تلمبه اسراییل به جنوب لبنان
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8610
+
+<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺عجیب ترین زبان جهان 🌍
+
+قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
+حتی وقتی فاصلهای بین افراد نیست.
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8609
+
+<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
+مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
+
+
+چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
+
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
+</div>
+
+## tasiyanc — post 8607
+
+<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8606
 
@@ -131,124 +221,5 @@
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8588
-
-<div align="center"><video src="files/post_8588_tasiyanc_8588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8588_tasiyanc_8588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☄️ مرگ دایناسورها؛ داستان یک برخورد مرگبار
-
-شهاب‌سنگی عظیم به منطقه‌ای در مکزیک امروزی برخورد کرد و انفجاری با قدرتی باورنکردنی به وجود آورد. گردوغبار ناشی از این برخورد، آتش سوزی جنگلها و... زنجیره غذایی از هم پاشید و در نهایت حدود ۷۵ درصد از گونه‌های زنده زمین، از جمله دایناسورها، منقرض شدند.
-امروز دهانه عظیم چیکشلوب زیر خاک و آب‌های مکزیک مدفون است؛ یادگاری خاموش از یکی از سرنوشت‌سازترین لحظات تاریخ زمین🌍
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8587
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حمله به عربستان هم اکنوننننننن
-</div>
-
-## tasiyanc — post 8580
-
-<div align="center"><img src="files/post_8580_tasiyanc_8580.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خانوم از اروپا بلند شده بره افغانستان و مثلا نشون بده که اره افغانیا خوبن و رفتارشون عالیه روز آخر توسط یه نفر مورد تجاوز قرار میگیره
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8579
-
-<div align="center"><img src="files/post_8579_tasiyanc_8579.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی جدید مرد - زن 🤖🤖
-
-•عکساتو زیباتر کن 💖
-
-•آموزش استفاده 👉
-
-
-🔺دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر وقت ایرانیا فهمیدن عادل فرقی با میساقی نداره بازیو بردن
-</div>
-
-## tasiyanc — post 8574
-
-<div align="center"><img src="files/post_8574_tasiyanc_8574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•پرامپت اختصاصی جدید مرد - زن 🤖🤖
-
-•عکساتو زیباتر کن 💖
-
-•آموزش استفاده 👉
-
-
-🔺 دریافت پرامپت 👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود📱
-
-سرور  سرعتی پرمیوم 🇺🇸 ⚡️
-
-تست شده روی همه نت ها 
-🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی پرمیوم  ترکیه - استانبول⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

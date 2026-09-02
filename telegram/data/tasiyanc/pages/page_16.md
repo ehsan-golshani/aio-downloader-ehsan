@@ -1,8 +1,163 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/11 22:35
+📅 آخرین بروزرسانی: 1405/06/12 01:23
 
 ---
+
+## tasiyanc — post 9477
+
+<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست موقت
+
+🪙 کاربردی - کسب درامد
+
+⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
+
+👉https://t.me/GramHashes72Bot
+
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Blue Man💙 (1).ovpn
+</div>
+
+## tasiyanc — post 9475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4 server 🇩🇪
+DNS 1⚡️
+
+60.154.181.244
+22.137.148.153
+
+DNS 2⚡️
+
+85.0.69.240
+173.193.142.191
+
+
+IPv6 🇩🇪
+DNS 1⚡️
+
+2a0e:1c80:11::5ce4:607c:3c41:e868
+2a0e:1c80:11::dcc8:31c8:1fa2:bd89
+
+DNS 2⚡️
+
+2a0e:1c80:11::9014:410:e8bd:d8fd
+2a0e:1c80:11::cf95:da47:970b:4273
+
+DNS 3⚡️
+
+2a0e:1c80:11::ee5b:4bb1:cd6:e105
+2a0e:1c80:11::7ad2:3896:4a4e:cceb
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9472
+
+<div align="center"><img src="files/post_9472_tasiyanc_9472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9471
+
+<div align="center"><img src="files/post_9471_tasiyanc_9471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖هوش مصنوعی بدون سانسور
+و بدون محدودیت سنی
+
+آدرس سایت:
+
+
+🆕 https://notrack.ai/chat
+
+
+⚡️بدون سانسور
+
+
+⚡️بدون ثبت نام
+
+
+⚡️بدون محدودیت
+
+
+⚡️پشتیبانی از زبان فارسی
+
+Join As @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9469
 
@@ -207,157 +362,5 @@ https://t.me/+Iayni3h0j24yYzE0
 
 + مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعدادی DNS برای گیمر های عزیز 😎
-
-IPv4
-DNS 1⚡️
-
-84.200.69.80
-
-DNS 2⚡️
-
-84.208.90.42
-
-
-DNS 1⚡️
-
-114.114.114.114
-
-DNS 2⚡️
-
-78.160.38.248
-
-
-IPv6
-DNS 1⚡️
-
-2a00:801::856b:0fb8:c
-
-DNS 2⚡️
-
-2a00:801::856b:5b73:b
-
-
-DNS 1 ⚡️
-
-2a02:ff01:3344::2903:91b0:c
-
-DNS 2 ⚡️
-
-2a02:ff01:3344::2903:de59:b
-
-
-لینک DNS Changer اندروید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9450
-
-<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 19 August، روز جهانی عکاسیه📸
-یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9448
-
-<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9447
-
-<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
-توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9446
-
-<div align="center"><video src="files/post_9446_tasiyanc_9446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9446_tasiyanc_9446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖤امروز ۲۸ مرداد ، تولد فرزند ایران جاویدنام مهرداد مشتاقی ۲۷ ساله هست ، مهرداد ۱۹ دی در اراک با گلوله کشته شد او هوادار استقلال بود و عاشق زندگی ...
-
-
-@Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9445
-
-<div align="center"><img src="files/post_9445_tasiyanc_9445.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💻 گوشی مرموز Surface Phone ؛ محصول مایکروسافت که هیچ وقت به بازار نرسید !
-
-▪️تصاویر جدیدی از نمونه اولیه گوشی مایکروسافت با نام رمز Raven فاش شده که طراحی احتمالی Surface Phone در سال های 2013 و 2014 رو نشون میده. این دستگاه از نظر ظاهر شباهت زیادی به تبلت Surface 2 داشته.
-
-▪️این گوشی قرار بوده با نمایشگر 720p و سیستم عامل Windows Phone 8.1 عرضه بشه و از یکی از تراشه های سری Snapdragon کوالکام استفاده کنه.
-اما در نهایت پروژه Raven لغو شد و این گوشی هیچ وقت به دست کاربران نرسید.
-
-+ حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

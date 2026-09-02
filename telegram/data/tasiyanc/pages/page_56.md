@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/11 22:35
+📅 آخرین بروزرسانی: 1405/06/12 01:23
 
 ---
+
+## tasiyanc — post 8390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 
+🔐 
+🔐 FAST ⚡
+
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.142:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=185.137.157.142#%40Tasiyanc%20%E2%9A%A1
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%92%A5
+
+IP 
+🇩🇪
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در سیریک
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 6 انفجار شدید در قشم
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۹٪ اخبار امشب فیکن و پوشش ندادیم
+</div>
+
+## tasiyanc — post 8382
+
+<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
+
+📥 مشاهده 👉
+</div>
 
 ## tasiyanc — post 8381
 
@@ -116,96 +187,5 @@
 ❌انفجار در بندر عباس و بیرجند
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8362
-
-<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹مرگبارترین رکورد گینس
-
-در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8359
-
-<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
-
-انگار فیلم آخر الزمانی هست
-
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8358
-
-<div align="center"><img src="files/post_8358_tasiyanc_8358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐 ترامپ کلی هزینه کرد که پل تو جنوب رو بزنه، اما بخاطر اینکه رودخونه‌ی کنار پل خشک شده بود، مردم یه جاده خاکی از همونجا درست کردن و تردد میکنن 😂
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت دریافت وایرگارد مخصوص گیم و وبگردی وارد ربات تاسیان شوید بگیرید ظرفیت پر شه لینک پاک میکنم
-
-دریافت کانفیگ 🤜
-</div>
-
-## tasiyanc — post 8349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Multi Location ⚡ Fast.npvt
-</div>
-
-## tasiyanc — post 8348
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

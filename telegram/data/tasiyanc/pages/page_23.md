@@ -1,8 +1,104 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/11 22:35
+📅 آخرین بروزرسانی: 1405/06/12 01:23
 
 ---
+
+## tasiyanc — post 9304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
+
+@tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از فوبیاتون بگید .... از چی میترسید؟
+</div>
+
+## tasiyanc — post 9302
+
+<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کد های مخفی ChatGpt که بکارتون میاد🤖
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
+
+## tasiyanc — post 9300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐊 crocodile
+بعد سه ماه متولد شده عشق کنید
+تو قطعیا یادتونه دیگه چقد ترکوندیم
+</div>
+
+## tasiyanc — post 9299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9298
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
+
+## tasiyanc — post 9297
+
+<div align="center"><video src="files/post_9297_tasiyanc_9297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9297_tasiyanc_9297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+a23
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+FaoDjhEVG34wMWFk
+https://t.me/+FaoDjhEVG34wMWFk
+</div>
 
 ## tasiyanc — post 9295
 
@@ -111,24 +207,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9279
 
 ## tasiyanc — post 9278
-
-## tasiyanc — post 9276
-
-## tasiyanc — post 9275
-
-## tasiyanc — post 9274
-
-## tasiyanc — post 9273
-
-## tasiyanc — post 9272
-
-## tasiyanc — post 9271
-
-## tasiyanc — post 9270
-
-## tasiyanc — post 9269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیوی اد بفرستید ویسارو @Tssub
-</div>
 

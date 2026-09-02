@@ -1,8 +1,130 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/11 22:35
+📅 آخرین بروزرسانی: 1405/06/12 01:23
 
 ---
+
+## tasiyanc — post 8995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠هوش‌های مصنوعی که برای ساخت پروژه‌های نرم‌افزاری کمک می‌کنند 
+👩‍💻
+
+فقط کافیه پروژه رو توضیح بدید، کد رو تولید می‌کنند
+
+
+🔗 replit.com
+
+🔗 bolt.new
+
+🔗 stack.ai
+
+🔗 v0.dev
+
+🔗 cursor.sh
+
+🔗 Lovable.dev
+
+🔗 codeium.com
+
+🔗 tabnine.com
+
+🔗 github.com/features/copilot
+
+مشکلی داشتید برید ChatGpt یا Gemini سایت رو بهش بدید کمکتون میکنه چیکار کنی
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗲𝘄_𝗙𝗮𝘀𝘁_𝗠𝘂𝗹𝘁𝗶_𝗹𝗼𝗰𝗮𝘁𝗶𝗼𝗻_⚡️.npvt
+</div>
+
+## tasiyanc — post 8993
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+سرور سرعتی تست شده  لوکیشن هلند، انگلیس ، آمریکا ، هند 
+📍
+
+آموزش اتصال 
+⚡️
+فعالسازی IPV6
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8992
+
+<div align="center"><video src="files/post_8992_tasiyanc_8992.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8992_tasiyanc_8992.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #بازی_پولساز 
+⚠️
+
+🔥 بلک کارت جدید ترین بازی معروف جهانی هست که فقط کافیه یکمی باهوش باشی تا حریفات رو شکست بدی 👌🏼
+</div>
+
+## tasiyanc — post 8991
+
+<div align="center"><video src="files/post_8991_tasiyanc_8991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8991_tasiyanc_8991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😯 اگر هوشت بالاست 
+🗼 :
+
+
+❌ 
+👍 این ‌ویدیو‌ آموزشی رو‌ ببین و با ‌استفاده از هوش بالایی که داری پول در بیار.
+
+
+🟢 بازی خیلی حرفه ای و‌ #پولساز رو‌ از این ویدیو یاد بگیر
+
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان a13
+@betinjabet
+</div>
+
+## tasiyanc — post 8990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گزارش اعضا اینترنت همراه و ایرانسل ریده و اکثر فیلترشکنا از کار افتادن
+</div>
+
+## tasiyanc — post 8989
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همراه اول و ایرانسل وضعیت اینترنت شما چطوره الان؟
+</div>
+
+## tasiyanc — post 8988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز تولد جاوید نام پهلوان مسعود ذات پرور قهرمان ایران هستش روحش شاد🖤
+</div>
 
 ## tasiyanc — post 8987
 
@@ -189,128 +311,5 @@ vmess://eyJhZGQiOiI2Ni4xNjMuMTE3LjU4IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhv
 زیاد حرفاشو جدی نمی‌گیریم چون دو‌روز دیگه باز میگه داریم مذاکره می‌کنیم 😂
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8972
-
-<div align="center"><video src="files/post_8972_tasiyanc_8972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8972_tasiyanc_8972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Fast Tekno💥.npvt
-</div>
-
-## tasiyanc — post 8970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم 
-🖤
-🇮🇷
-
-کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-سرور سرعتی تست شده  لوکیشن امارات ، لهستان ، انگلیس 
-📍
-
-آموزش اتصال 
-⚡️
-فعالسازی IPV6 
-⚡️
-
-اتصال امن برای همه
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 8969
-
-<div align="center"><video src="files/post_8969_tasiyanc_8969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8969_tasiyanc_8969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری، ترامپ: این آخرین فرصت ایران برای توافقه، اگه توافق نشه، جنگ قطعیه.
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر 🖤
-</div>
-
-## tasiyanc — post 8966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-سرور  سرعتی پرمیوم ⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پنالتی راحترین بازی پولساز ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
-💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 8964
-
-<div align="center"><video src="files/post_8964_tasiyanc_8964.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8964_tasiyanc_8964.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r13
-@betinjabet
-</div>
-
-## tasiyanc — post 8963
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated Vip 👑 ━━━╮
-
-vless://a34b5e88-cf0d-4c01-8199-2d1002d3c787@95.85.229.112:443?security=reality&encryption=none&pbk=HKpd1sbrhBds8SJSL0d22MAq_QyTR6EP6y5b5DYol3U&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=www.wikihow.com#%F0%9F%87%B8%F0%9F%87%AA%40TASIYANC%F0%9F%94%A5
-
-ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%94%A5
-
-vless://52b71b75-4b77-4cec-990b-046ec1938e1f@67.159.56.57:443?security=reality&encryption=none&pbk=j5qmR8E9er-0n5zZbK6s_SdvYm-tYlraXVYm49ArWS8&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=uk.bvps.cloud&sid=60debb3ab744d8ce#%F0%9F%87%AC%F0%9F%87%A7%40TASIYANC%F0%9F%92%A5
-
-vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?path=%2Ffdip&security=tls&encryption=none&insecure=0&host=learn00.evany.de5.net&type=ws&allowInsecure=0&sni=learn00.evany.de5.net#%F0%9F%87%AF%F0%9F%87%B5%40TASIYANC%F0%9F%94%A5
-
-⚡️Location 🇬🇧 🇸🇪 🇯🇵
-
-📱@TASIYANC 
-✅
 </div>
 
