@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
+
+بفرست برا کسی که میخوای عکس پاشو برات بده 😂
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9034
+
+<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9032
+
+<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
+
+شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9031
 
@@ -254,83 +288,5 @@ g14
 
 https://t.me/+cBQ8n7zLQiUzN2U0
 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9009
-
-<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40 میلیون تومن برداشت روزانه ی کانال تراست بت 
-🎁
-پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
-
-برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
-✅
-
-40 بازی اخیر 34 برد 
-📊
-
-
-💠https://t.me/+cBQ8n7zLQiUzN2U0
-g14
-
-💠 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
-
-1️⃣  Fliki -
-http://fliki.ai
-
-2️⃣ Tavus -
-http://tavus.ai
-
-3️⃣ D-ID -
-http://d-id.com
-
-4️⃣ Wombo -
-http://deepart.io
-
-5️⃣ Reface -
-http://hey.reface.ai
-
-6️⃣ Hour One -
-http://hourone.ai
-
-7️⃣ Rephrase -
-http://rephrase.ai
-
-8️⃣ Synthesia -
-http://synthesia.io
-
-9️⃣ DeepBrain -
-http://deepbrain.io
-
-1️⃣0️⃣ EmbodyMe -
-http://embodyme.com
-
-Join 👹 @TASIYANC ✅
 </div>
 

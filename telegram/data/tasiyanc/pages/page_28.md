@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9159
+
+<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤔 شروع رسمی لیگ های اروپا 
+❄️
+
+🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
+
+
+⚠️هر افزایش شارژ مساوی 
+2️⃣1️⃣
+🔣 شارژ بیشتر بدون محدودیت☄️
+
+به همراه 
+🤩 
+🤩🔤 کش بک باخت همه روزه:
+
+🌐 betinja.bet
+
+🌐 betinja.bet
+کانال بونوس های رایگان g19
+@betinjabet
+</div>
+
+## tasiyanc — post 9157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
+</div>
 
 ## tasiyanc — post 9155
 
@@ -196,44 +248,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گروه تاسیان فعاله جوین بشید
 https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 9136
-
-<div align="center"><video src="files/post_9136_tasiyanc_9136.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9136_tasiyanc_9136.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کودک خردسال جاویدنام فاطمه سلطانی بجای در آغوش گرفتن مادر قهرمانش سنگ سرد ارامگاهش را میبوسد.
-
-@TASIYANC 🏛
-</div>
-
-## tasiyanc — post 9133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
-❤️ آموزش استفاده 
-👉 دریافت پرامپت 
-👉 @TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9132
-
-<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Mountain Embrace ❤️
-
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
 </div>
 

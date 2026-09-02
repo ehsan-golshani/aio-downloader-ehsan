@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ناو هواپیمابر جورج بوش از ژاپن سمت خاورمیانه راه افتاده و ۱۰ روز دیگه به سواحل جنوبی ایران میرسه
+
+گفته میشه قراره جانشین ناو لینکلن بشه
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9367
+
+<div align="center"><img src="files/post_9367_tasiyanc_9367.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم جدید 🆕
+
+" Cinematic Wild Glance "
+
+Prompt 🤖🤖
+
+сохранить внешность 1:1 — лицо, черты, пропорции, текстура кожи. Кинематографический эффект. Прямые длинные волосы по пояс, макияж: сияющая кожа, легкий контуринг, пухлые губы в оттенке пыльная роза . Очень близкий cinematic кадр. Камера почти вплотную к лицу, 85mm, малая глубина резкости. Девушка резко поворачивается к объективу после движения, волосы хаотично летят по лицу и частично закрывают один глаз. Руки скрыла голубой рубашкой в клетку, прижатый к плечу и подбородку,рубашку спущена с плеча Взгляд нежный, живой, не позирующий. Милая полуулыбка (зубов не видно). Фокус только на глазах и линии губ, остальное растворяется в мягком зерне. Кадрирование сломанное: часть головы и плеча обрезаны. Свет солнечный, яркий, как пленочный стоп-кадр из артхаусного фильма. Атмосфера странная, интимная и кинематографичная. Формат 9:16
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
 
 ## tasiyanc — post 9365
 
@@ -210,44 +244,5 @@ g25
 جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
 
 @Tasiyanc 🕒
-</div>
-
-## tasiyanc — post 9347
-
-<div align="center"><video src="files/post_9347_tasiyanc_9347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9347_tasiyanc_9347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری های امیر علی اکبری بوکسور ایرانی واسه علیخان واخائف که تو ثانیه های اول ناك اوت شد 😂
-علیخان واخائف قهرمان کمربند سنگین‌وزن ACA در چند ثانیه اول امیرعلی اکبری رو در هم کوبید
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9346
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
 </div>
 

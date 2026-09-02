@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 6003
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردو کانفیگ اوپن وصله برید حالشو ببرید
+</div>
+
+## tasiyanc — post 6002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+
+تست شده 🚀
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴۰ هزار نفر ۲ تا ریکشن🤣🤣
+</div>
 
 ## tasiyanc — post 6000
 
@@ -159,28 +182,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک سرور شخصی openvpn می‌خوان برن سایت
-vpnbook.com
-Create openvpn
-پورت روی 443 یا 80 بزارید
-کشورهای اروپایی بهتر جواب میدن .
-@Tasiyanc
-</div>
-
-## tasiyanc — post 5971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
-</div>
-
-## tasiyanc — post 5970
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
 </div>
 

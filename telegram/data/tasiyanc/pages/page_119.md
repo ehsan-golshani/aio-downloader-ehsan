@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 6236
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنام کو😐😐😐😐😐😐😐😐😐😐
+</div>
+
+## tasiyanc — post 6234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳ کانفیگ وایر فول وصل 
+✅
+</div>
+
+## tasiyanc — post 6233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+HOT 🔥@TASIYANC.conf
+</div>
 
 ## tasiyanc — post 6231
 
@@ -176,22 +195,5 @@ https://t.me/TasiyanProxy
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6209
-
-## tasiyanc — post 6208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[04] @Tasiyanc ⚡🚀.conf
-</div>
-
-## tasiyanc — post 6207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  👑
-دانلود  Wg tunnel 🕹
-آموزش⏩
-@Tasiyanc ✅
 </div>
 

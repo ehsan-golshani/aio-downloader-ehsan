@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+
+آموزش اتصال ⛓
+
+🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
+
+
+اتصال پر سرعت برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
+@TasiyanProxy
+@TasiyanProxy
+@TasiyanProxy
+ارائه پروکسی های پر سرعت 📡
+</div>
+
+## tasiyanc — post 9535
+
+<div align="center"><video src="files/post_9535_tasiyanc_9535.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9535_tasiyanc_9535.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9534
 
@@ -311,44 +352,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 💋
-</div>
-
-## tasiyanc — post 9514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Mumbai 🇮🇳.ovpn
-</div>
-
-## tasiyanc — post 9513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-
-💋 @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فارس:
-
-اینستاگرام صفحه‌‌ای که واسه قبر علی خامنه‌ای و اعضای کشته‌شده خانواده‌اش ساخته شده بود رو حذف کرد.
-
-
-💋 @Tasiyanc
 </div>
 

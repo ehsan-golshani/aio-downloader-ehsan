@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 8987
+
+<div align="center"><video src="files/post_8987_tasiyanc_8987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8987_tasiyanc_8987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساغر غلامی طی یک ویدیویی خبر اعدام و داستان عقد شدنش با سپاهی را تکذیب کرد
+
++من چند ماهه با قید وثیقه بیرونم، به شایعات توجه نکنید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8986
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نتانیاهو:
+اگه گوشی موبایل دارید یعنی بخشی از اسرائیل رو دارید با خودتون حمل میکنید. ما اونجاییم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast - HCustum 🇮🇹B.hc
+</div>
 
 ## tasiyanc — post 8984
 
@@ -280,37 +311,6 @@ vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?pat
 ⚡️Location 🇬🇧 🇸🇪 🇯🇵
 
 📱@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مرندی از تیم مذاکره کننده:ایران هیچ قصدی برای مذاکره با رژیم ترامپ ندارد. هرگونه اقدام تجاوزکارانه با پاسخ کوبنده و قاطع جمهوری اسلامی مواجه خواهد شد
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8961
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
-
-پروکسی | پروکسی | پروکسی
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8960
-
-<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
-جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
-@Tasiyanc 
 ✅
 </div>
 

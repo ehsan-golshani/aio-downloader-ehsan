@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی
+
+🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
+
++ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9751
+
+<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 🇮🇱 فوری، نتانیاهو در گفتگو با کانال ۱۴ اسرائیل:
+
+من رژیم ایران رو نابود خواهم کرد، اینو بهتون قول میدم و مطمئنم این کار شدنیه.
+اونا خیلی ضعیف تر از قبل شدن.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9748
 
@@ -192,40 +225,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقام آمریکایی:
-
-نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
 </div>
 

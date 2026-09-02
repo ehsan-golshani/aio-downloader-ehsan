@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/11 18:59
+📅 آخرین بروزرسانی: 1405/06/11 22:35
 
 ---
+
+## tasiyanc — post 9814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تسنیم:
+آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9809
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوررری
+
+حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9804
 
@@ -311,49 +338,6 @@ til.ac/0L4vyJf
 
 سایت های معرفی شده معتبر و اثبات شده هستند.
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
-
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9785
-
-<div align="center"><video src="files/post_9785_tasiyanc_9785.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9785_tasiyanc_9785.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کجا میتونی همچین آماری ببینی؟فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)
-😊
-😂
-
-میگی ن ؟ بیا تو چنلمون و ببین
-🔥
-@HUNTTER_BET @HUNTTER_BET
-@HUNTTER_BET @HUNTTER_BET
-@HUNTTER_BET @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9782
-
-<div align="center"><video src="files/post_9782_tasiyanc_9782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9782_tasiyanc_9782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره عکس نودشو گذاشته والپیپر گوشی بعد گوشیو داده تعمیرکار🐸
-
-+احتمالا میخواسته جور دیگه حساب کنه
 
 🩸 @Tasiyanc
 </div>
