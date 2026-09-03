@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 7447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صداوسیما: دقایقی پیش چندین انفجار در شهرستان سیریک، جنوب ایران رخ داده است.
+</div>
+
+## tasiyanc — post 7446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۳ انفجار در قشم
+</div>
+
+## tasiyanc — post 7445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ۴ انفجار شدید در سیریك
+</div>
+
+## tasiyanc — post 7444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آغاز حملات ایالات متحده به ایران
+</div>
+
+## tasiyanc — post 7443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
+
+## tasiyanc — post 7442
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام عزیزان
+یکم دیگه ۵ تا کانفیگ دارک تو گروهمون می‌زارم پین میکنم مثل روال قبلی ، جوین شید بردارید
+https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 7441
 
@@ -159,41 +197,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گگگگگگگگگگگگگللللللللل ایران
-</div>
-
-## tasiyanc — post 7418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صلاح تعویض شد 😐
-</div>
-
-## tasiyanc — post 7417
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗧 𝗔 𝗦 𝗜 𝗬 𝗔 𝗡 pinned «ساب لینک اختصاصی نامحدود 🚀 🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt 130 کانفیگ پروتکل Trojan سرعتی ( هر دوازده ساعت آپدیت خواهد شد ) آموزش ویدیویی اضافه کردن ساب 💘 @Tasiyanc 💠 | اتصال امن»
-</div>
-
-## tasiyanc — post 7416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی گل خوبی زد رامین
-</div>
-
-## tasiyanc — post 7415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللللللللللللل رامین
-</div>
-
-## tasiyanc — post 7414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتی رو خراب می‌کنه طارمی
-</div>
-
-## tasiyanc — post 7413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پنالتیییی ایران
 </div>
 

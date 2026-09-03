@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 9099
+
+<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت Vip جدید 🆕
+
+Prompt 🤖🤖
+عکس دخترانه هم میشه بدید
+A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
+</div>
+
+## tasiyanc — post 9096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
+</div>
+
+## tasiyanc — post 9095
+
+<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت کاپلی VIP اختصاصی تاسیان 
+🆕 😎
+
+عکس خودتون و پارتنرتون بدید به AI
+
+Prompt 🤖🤖
+"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
+</div>
+
+## tasiyanc — post 9093
+
+<div align="center"><video src="files/post_9093_tasiyanc_9093.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9093_tasiyanc_9093.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت VIP 
+🆕
+«پرتره سینمایی با نور گرم کرکره‌ای»
+
+Prompt 
+🤖
+🤖
+اگر پسر هستید جای Woman کلمه Man بزارید
+Close-up portrait of a woman illuminated by soft, warm afternoon light streaming through window blinds, creating striking shadow patterns across her face. She has a natural, glowing complexion with dewy skin and subtly highlighted cheekbones. Her expressive eyes are accented with long lashes and a hint of soft eyeshadow, while her full lips are painted in a soft peach shade. The background features muted teal walls that enhance the warmth of the scene. She wears a dark, pinstriped blazer, adding a touch of elegance. The overall aesthetic is hyperrealistic, capturing intricate details like the texture of her skin and the delicate play of light and shadow, with a color palette of warm neutrals and soft pastels.
+آموزش استفاده 
+👉
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9092
 
@@ -226,78 +300,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 g16
 https://t.me/+5fvta-uF4QA3ZDY0
 https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-•10 سرور سرعتی تست شده تمام اپراتور ها 
-⚡️
-
-• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
-
-•آموزش اتصال 
-⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر مهم 
-🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
-
-بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
-«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9075
-
-<div align="center"><img src="files/post_9075_tasiyanc_9075.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردی در کشور ولز لباس عزرائیل میپوشید هر صبح می‌رفت روبروی بیمارستان به پنجره بیماران زل میزد ، توسط پلیس دستگیر شد 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9074
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 7 آگوست روز جهانی ترویج شیردهی هست
-
-+بفرست برا کسی که میخوای بت شیر بده 😞
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9072
-
-<div align="center"><img src="files/post_9072_tasiyanc_9072.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ در تروث سوشیال :
-"دونالد ترامپ در جنگ با ایران پیروز شد."
-
-
-@TASIYANC ✅
 </div>
 

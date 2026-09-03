@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/12 22:25
+📅 آخرین بروزرسانی: 1405/06/13 01:04
 
 ---
+
+## ProxyMTProto — post 49876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad2.arixo.shop
+Port: 443
+Secret: eed09b88cbbd4e744865b890e5a0bd26876164322e617269786f2e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49875
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn2.librava.click
+Port: 443
+Secret: ee949089dd5eebdb2db7a13f24e981b7d563646e322e6c6962726176612e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49872
 
@@ -145,42 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: ad6.arixo.shop
 Port: 443
 Secret: ee0655739ff0a111810d8529120d2071a66164332e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: OH.OH.Speed-proxy.com
-Port: 443
-Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78792e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49852
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad4.arixo.shop
-Port: 443
-Secret: eec699329f2f8c2d33cd1e1a9f10e5d32d6164312e617269786f2e73686f70
 @ProxyMTProto
 </div>
 

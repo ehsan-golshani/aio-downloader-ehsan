@@ -1,8 +1,196 @@
 # آرشیو کانال VahidOOnLine - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/12 22:25
+📅 آخرین بروزرسانی: 1405/06/13 01:03
 
 ---
+
+## VahidOOnLine — post 258002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوها و گزارش‌های رسیده به ایران‌‌اینترنشنال، یک خودرو شامگاه سه‌شنبه ۱۰ شهریور در بلوار اقبال لاهوری مشهد به گروهی که در تجمع شبانه حکومتی حضور داشتند، برخورد کرده و تعدادی زیر گرفته است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 258001
+
+<div align="center"><img src="files/post_258001_VahidOOnLine_258001.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویر منتشر شده در حساب «وحید آنلاین»، انهدام «دکل مخابراتی کوهستک» در سیریک را نشان می‌دهد. براساس گزارش رسانه‌های داخلی، دوشنبه‌شب، همزمان با آغاز دور تازه حملات آمریکا، صدای انفجار در جزیره لاوان، قشم، بندرعباس، سیریک، جاسک، کنارک و چابهار شنیده شد. خبرگزاری مهر نیز از شنیده شدن صدای پدافند در شرق تهران خبر داد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 258000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌ جمهوری اسلامی را از ملارد در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257999
+
+<div align="center"><video src="files/post_257999_VahidOOnLine_257999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257999_VahidOOnLine_257999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش شبکه «آی۲۴»، تصاویری که از شهر ایلات در اسرائيل ضبط شده‌اند، لحظه برخورد یک موشک بالستیک شلیک‌شده از ایران به نقطه‌ای در اردن را نشان می‌دهند. برخی منابع محل برخورد این موشک را فرودگاه ملک حسین در شهر عقبه اردن اعلام کرده‌اند.
+فارس، خبرگزاری وابسته به سپاه پاسداران، اعلام کرد که پایگاه هوایی «موفق‌السلطی» از جمله اهداف حملات ایران بوده است.
+بر اساس اعلام فرماندهی مرکزی آمریکا، سنتکام، حملات واشنگتن به اهدافی در داخل ایران از ساعت ۱۸:۳۰ به وقت ایران آغاز شد. در مقابل، سپاه پاسداران انقلاب اسلامی و ارتش ایران اعلام کردند که به این اقدام نظامی پاسخ خواهند داد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، موشک جمهوری اسلامی پس از شلیک از شهرکرد در سه‌شنبه ۱۰ شهریور در کوه‌های اطراف این شهر سقوط کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257997
+
+<div align="center"><img src="files/post_257997_VahidOOnLine_257997.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+العربیه گزارش داد موشک‌های ایرانی در مناطق مفرق، عقبه و اربد اردن رهگیری شده‌اند.
+
+هم‌زمان، باراک راوید، خبرنگار اکسیوس، در شبکه اجتماعی ایکس نوشت: «ایران در واکنش به حملات آمریکا، موشک‌های بالستیک به سمت پایگاه‌های آمریکا در اردن شلیک کرد.»
+
+شبکه الحدث نیز گزارش داد پس از رهگیری موشک‌ها، پیامک‌هایی برای شهروندان اردن ارسال و در آنها پایان خطر اعلام شده است.
+
+در همین حال، محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، در ایکس نوشت: «انتقام شرارت و تجاوز از دشمن گرفته می‌شود؛ سریع، کوبنده و گسترده.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257996
+
+<div align="center"><img src="files/post_257996_VahidOOnLine_257996.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر، سه‌شنبه‌شب، همزمان با آغاز دور تازه حملات آمریکا به ایران، از «فعالیت پدافند در شرق تهران» خبر داد. پیش از این، فرماندهی مرکزی ارتش آمریکا (سنتکام) اعلام کرد نیروهای آمریکایی از ساعت ۱۸:۳۰ به وقت تهران حملات به مواضع سپاه پاسداران در ایران را آغاز کرده‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257995
+
+<div align="center"><video src="files/post_257995_VahidOOnLine_257995.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257995_VahidOOnLine_257995.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌ جمهوری اسلامی را از کرمانشاه در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، جمهوری اسلامی شامگاه سه‌شنبه ۱۰ شهریور از شهریار موشک شلیک کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257993
+
+<div align="center"><video src="files/post_257993_VahidOOnLine_257993.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257993_VahidOOnLine_257993.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایسنا روز سه‌شنبه ۱۰ شهریور تصاویری از موشک‌های بالستیک سپاه بر فراز آسمان اردن را منتشر کرد. همزمان گزارش‌هایی از حمله موشکی ایران به مواضع آمریکا در اردن منتشر شده است. فارس، خبرگزاری وابسته به سپاه، اعلام کرد که پایگاه هوایی «موفق‌السلطی» از جمله اهداف این حملات بوده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257992
+
+<div align="center"><video src="files/post_257992_VahidOOnLine_257992.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257992_VahidOOnLine_257992.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌ جمهوری اسلامی را از ساوجبلاغ در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257991
+
+<div align="center"><video src="files/post_257991_VahidOOnLine_257991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257991_VahidOOnLine_257991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌های جمهوری اسلامی را از شهر اندیشه در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی ارسال‌شده به ایران‌اینترنشنال جمهوری اسلامی سه‌شنبه ۱۰ شهریور از تهران موشک شیک کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257989
+
+<div align="center"><video src="files/post_257989_VahidOOnLine_257989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257989_VahidOOnLine_257989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسانه‌ها در ایران، تصاویر محدودی از خانه‌ای در بندر کوهستک در استان هرمزگان منتشر کردند که گفته می‌شود مربوط به محل برگزاری مراسم عروسی‌ای است که در حمله سه‌شنبه‌شب آمریکا هدف قرار گرفت. در این تصاویر تنها بخش ورودی و تخریب بخش‌هایی از دیوار دیده می‌شود. استانداری هرمزگان تایید کرد که در این مراسم، دست‌کم دو نفر کشته شده و ۲۰ نفر زخمی شده‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257988
+
+<div align="center"><img src="files/post_257988_VahidOOnLine_257988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تانکر ترکرز گزارش داد صادرات نفت خام ایران در ماه میلادی آگوست ۲۰۲۶، (۳۱ روز گذشته) به صفر رسیده است.
+
+بر اساس این گزارش، این رقم در مقایسه با سطح پیش از جنگ در زمستان ۱۴۰۵، نشان‌دهنده کاهش ۱۰۰ درصدی صادرات نفت خام ایران است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257987
+
+<div align="center"><img src="files/post_257987_VahidOOnLine_257987.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، از فعالیت پدافند در شرق تهران در شامگاه سه‌شنبه خبر داد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 257968
 
@@ -47,225 +235,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرگزاری‌های فارس و تسنیم، رسانه‌های وابسته به سپاه، شامگاه سه‌شنبه از آغاز حملات موشکی و پهپادی جمهوری اسلامی به مواضع و پایگاه‌های آمریکا در منطقه خبر دادند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257964
-
-<div align="center"><img src="files/post_257964_VahidOOnLine_257964.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابراهیم ذوالفقاری، سخنگوی قرارگاه خاتم‌الانبیاء، سه‌شنبه شب ۱۰ شهریور و در پی موج جدید حملات ارتش آمریکا به نوار جنوبی ایران، با انتشار پیامی در شبکه اجتماعی ایکس نوشت: «هدیه‌ها در راه‌اند. ما دیگر در قبال بحرین و کویت خویشتن‌داری نخواهیم کرد.»
-
-ذوالفقاری توضیح بیشتری درباره علت نام بردن از این دو کشور حاشیه خلیج فارس ارائه نکرد.
-
-پیش‌تر ستاد کل نیروهای مسلح و قرارگاه خاتم‌الانبیاء در بیانیه‌ای هشدار دادند که «هزینه سنگینی» بر آمریکا تحمیل خواهند کرد.
-
-این تهدیدها در حالی انجام می‌شود که دونالد ترامپ هشدار داده است در صورت حمله تلافی‌جویانه ایران، حملات بسیار شدیدتری از سوی نیروهای آمریکا انجام می‌شود. ترامپ در گفتگو با فاکس‌نیوز، با «دیوانه‌وار» خواندن رفتار مقام‌های جمهوری اسلامی، گفت: «اگر دوباره اقدام به حمله کنند، آن‌ها را محو می‌کنیم.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257963
-
-<div align="center"><img src="files/post_257963_VahidOOnLine_257963.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسکندر پاسالار، فرماندار عسلویه، به خبرگزاری فارس، وابسته به سپاه پاسداران، گفت: «حوالی ساعت ۲۰:۱۰ شامگاه سه‌شنبه، صدای یک انفجار در شهرستان عسلویه گزارش شده است.»
-
-فرماندار عسلویه گفت که از خسارات جانی و مالی این انفجار جزئیاتی مخابره نشده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257962
-
-<div align="center"><img src="files/post_257962_VahidOOnLine_257962.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صداوسیما گزارش داد که دقایقی پیش فرودگاه غیرنظامی جیرفت در استان کرمان هدف حمله آمریکا قرار گرفته است.
-بر اساس این گزارش، جزئیات بیشتری درباره ابعاد حمله، میزان خسارت یا تلفات احتمالی منتشر نشده و مقام‌های مسئول هنوز اطلاعات تکمیلی درباره این حادثه ارائه نکرده‌اند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257961
-
-<div align="center"><img src="files/post_257961_VahidOOnLine_257961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صدا و سیمای جمهوری اسلامی از هدف قرار گرفتن فرودگاه جیرفت در استان کرمان در شامگاه سه‌شنبه خبر داد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257960
-
-<div align="center"><img src="files/post_257960_VahidOOnLine_257960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌‌جمهوری آمریکا به فاکس‌نیوز گفت که اگر ایران بارها در واکنش به حملات آمریکا پاسخ دهد، ممکن است «به‌طور کامل به‌عنوان یک کشور نابود شود».
-
-ترامپ درباره حملات سه‌شنبه شب گفت: «اگر آنها تلافی کنند، بسیار سخت‌تر هدف قرار خواهند گرفت. و اگر دوباره این کار را انجام دهند، دیگر وجود نخواهند داشت.»
-
-رییس‌جمهوری آمریکا درباره حکومت ایران گفت: «آنها متوقف نمی‌شوند. آنها دیوانه و احمق هستند.»
-
-ترامپ افزود: «آنها تلاش کردند رادار خود را بازسازی کنند، چون نمی‌توانند چیزی ببینند. ما صبر کردیم تا تقریبا ساخته شود و بعد آن را هدف قرار دادیم.»
-
-رییس‌جمهوری آمریکا گفت: «فکر می‌کنم توافق با آنها حتی ارزش کاغذی را که روی آن نوشته شده ندارد. ما به آنها فرصت‌های زیادی دادیم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257959
-
-<div align="center"><img src="files/post_257959_VahidOOnLine_257959.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده، در گفتگو با تری ینگست، خبرنگار فاکس‌نیوز و در پی آخرین حملات آمریکا به مواضع جمهوری اسلامی، هشداری صریح خطاب به تهران صادر کرد.
-
-ترامپ با اشاره به پاسخ احتمالی ایران گفت: «اگر دست به تلافی بزنند، بسیار سخت‌تر هدف قرار خواهند گرفت؛ و اگر دوباره چنین کاری کنند، دیگر وجود خارجی نخواهند داشت.» او با انتقاد شدید از اقدامات تهران افزود: «آن‌ها دست برنمی‌دارند؛ رفتاری دیوانه‌وار و احمقانه دارند.»
-
-رئیس‌جمهوری آمریکا در ادامه به جزئیات حملات اخیر اشاره کرد و گفت: «آن‌ها سعی داشتند رادارهای خود را بازسازی کنند چون هیچ دیدی نداشتند؛ ما صبر کردیم تا ساخت آن تقریبا تمام شود و سپس آن را زدیم.»
-
-ترامپ همچنین با ابراز بی‌اعتمادی کامل به مسیر دیپلماسی با حکومت ایران تاکید کرد: «معتقدم توافق با آن‌ها حتی به اندازه کاغذی که روی آن نوشته می‌شود هم ارزش ندارد. ما شانس‌های زیادی به آن‌ها دادیم.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257958
-
-<div align="center"><img src="files/post_257958_VahidOOnLine_257958.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آژانس بین‌المللی انرژی اتمی در یک گزارش محرمانه که روز سه‌شنبه ۱۰ شهریور به رویت خبرگزاری فرانسه رسیده، اعلام کرده است که مسئله دسترسی نداشتن این سازمان به مراکز کلیدی هسته‌ای در ایران «باید با فوریت فوق‌العاده مورد رسیدگی قرار گیرد».
-
-آژانس بین‌المللی انرژی اتمی در این گزارش تاکید کرده است: «بی‌اطلاعی آژانس از این مواد هسته‌ای و نداشتن دسترسی به تاسیسات برای راستی‌آزمایی آن، موضوعی نگران‌کننده در زمینه تکثیر تسلیحات هسته‌ای است.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257957
-
-<div align="center"><img src="files/post_257957_VahidOOnLine_257957.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همشهری به نقل از منابع محلی گزارش داد که سه‌شنبه‌شب، ۱۰ شهریور، بعد از یک سکوت کوتاه در آسمان شهرهای استان هرمزگان، بار دیگر صدای انفجار در بندرعباس، قشم و لاوان شنیده شده است.
-
-فرماندهی مرکزی ارتش آمریکا سه‌شنبه شب حملاتی را در نوار ساحلی جنوب ایران انجام داد. سنتکام اعلام کرد که اهداف این حملات، مواضع مرتبط با سپاه پاسداران بوده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257956
-
-<div align="center"><img src="files/post_257956_VahidOOnLine_257956.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یوری اوشاکوف، دستیار رئیس‌جمهوری روسیه، روز سه‌شنبه ۱۰ شهریور اعلام کرد احتمال دارد ولادیمیر پوتین، رئیس‌جمهوری روسیه، دونالد ترامپ، رئیس‌جمهوری ایالات متحده و شی جین‌پینگ، رئیس‌جمهوری چین، در حاشیه اجلاس بعدی انجمن همکاری‌های اقتصادی آسیا–پاسفیک (اپک) دیداری سه‌جانبه داشته باشند.
-
-اجلاس بعدی سران اپک قرار است در روزهای ۲۷ و ۲۸ آبان به میزبانی کشور چین و در شهر شنژن برگزار شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257955
-
-<div align="center"><img src="files/post_257955_VahidOOnLine_257955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صدا و سیمای جمهوری اسلامی از شنیده شدن دوباره صدای انفجار در بندرعباس و جزیره قشم در شامگاه سه‌شنبه خبر داد و افزود: «در جزیره لاوان هم صدای انفجار شنیده شده است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257954
-
-<div align="center"><video src="files/post_257954_VahidOOnLine_257954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257954_VahidOOnLine_257954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید به همراه همسر و دو کودک خردسالش تصمیم به مهاجرت گرفته‌اند: «همسرم در پالایشگاه کار می‌کرد و خودم هم پرستار بودم اما هر دوی ما را تعدیل کرده‌اند. حالا مجبوریم به‌خاطر نبود امنیت مالی و جانی مهاجرت کنیم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257953
-
-<div align="center"><img src="files/post_257953_VahidOOnLine_257953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستادکل نیروهای مسلح جمهوری اسلامی اعلام کرد که در پاسخ به حمله هوایی ارتش آمریکا به نقاطی در سیستان‌وبلوچستان و هرمزگان، نیروهای مسلح جمهوری اسلامی «ضربات کوبنده و شکننده‌ای» را به دشمن آمریکایی وارد خواهند نمود.
-
-همچنین حسین محبی، سخنگوی سپاه پاسداران، در ایکس نوشت که تنبیه سختی در انتظار آمریکا است و این کشور از حملات جدید خود پشیمان خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257952
-
-<div align="center"><img src="files/post_257952_VahidOOnLine_257952.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس یک گزارش محرمانه آژانس بین‌المللی انرژی اتمی که روز سه‌شنبه ۱۰ شهریور به رویت خبرگزاری رویترز رسیده است، دیده‌بان هسته‌ای سازمان ملل پرسش‌های باقی‌مانده درباره تحقیقات مربوط به فعالیت‌های هسته‌ای گذشته و مخفیانه سوریه در دوران حکومت خاندان اسد را حل‌وفصل کرده است.
-
-با این حال، گزارش فصلی و جداگانه آژانس درباره ایران که به کشورهای عضو ارسال شده، نشان می‌دهد کماکان هیچ پیشرفتی در پرونده تهران حاصل نشده است. دسترسی نداشتن آژانس برای راستی‌آزمایی ذخایر اورانیوم ایران از زمان حملات ژوئن ۲۰۲۵ آمریکا و اسرائیل، همچنان یک «نگرانی جدی در زمینه تکثیر تسلیحات هسته‌ای» به شمار می‌رود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257951
-
-<div align="center"><img src="files/post_257951_VahidOOnLine_257951.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-در پی دور جدید حملات آمریکا به مواضعی در جنوب کشور، ستاد کل نیروهای مسلح و قرارگاه مرکزی خاتم‌الانبیا، در بیانیه‌ای، هشدار دادند که «ضربات کوبنده و شکننده‌ای» به مواضع آمریکا در منطقه وارد خواهند کرد.
-
-این بیانیه دقایقی پس از آن منتشر شد که ارتش آمریکا، حملاتی را به شهرستان‌هایی در استان‌های سیستان و بلوچستان و هرمزگان انجام داد. دونالد ترامپ، رئیس‌جمهوری آمریکا اعلام کرد که این حملات در واکنش به تلاش جمهوری اسلامی برای «مین‌گذاری مجدد» در تنگه هرمز انجام شده است. ترامپ همچنین هشدار داد که در صورت اقدام تلافی‌جویانه ایران، پاسخ آمریکا «بسیار شدیدتری» خواهد بود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257950
-
-<div align="center"><img src="files/post_257950_VahidOOnLine_257950.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صدا و سیمای جمهوری اسلامی از شنیده شدن صدای انفجار در در منطقه ۴ عسلویه در حوالی ساعت ۲۰:۱۰ سه‌شنبه خبر داد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257949
-
-<div align="center"><img src="files/post_257949_VahidOOnLine_257949.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، در تروث‌سوشال نوشت که در حال حاضر ارتش ایالات متحده در حال انجام حملاتی به اهداف ایرانی در اطراف تنگه هرمز است.
-
-ترامپ به تهران هشدار داد: «اگر کشور شکست‌خورده ایران در واکنش به این حمله کاملا موجه اقدام تلافی‌جویانه انجام دهد، بار دیگر با حمله‌ای بسیار سخت‌تر و در سطحی بسیار بالاتر هدف قرار خواهد گرفت.»
-
-ترامپ نوشت: «اما این بزرگ‌ترین حمله از همه حملات نخواهد بود؛ آن حمله در حال انتظار است و هنگامی که به پایان برسد، چیز بسیار کمی از جمهوری اسلامی ایران باقی خواهد ماند.»
-
-ترامپ نوشت که حملات سه‌شنبه در واکنش به تلاش ناموفق ایرانی‌ها برای کار گذاشتن مین‌های دریایی در تنگه هرمز و همچنین در واکنش به شلیک هشت موشک به پایگاه نظامی آمریکا در اردن انجام شده‌اند.
 IranintlTV
 
 🤖 @VahidOOnLine

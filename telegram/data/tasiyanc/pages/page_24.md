@@ -1,8 +1,84 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 9306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+✅اسپانسر لیگ انگلستان
+👑 امکان شارژ و برداشت با کارت بانکی
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
+😀Telegram Channel👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9305
+
+<div align="center"><img src="files/post_9305_tasiyanc_9305.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤میخوای مسابقات فوتبال پیش بینی کنی؟!
+🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
+
+⛔دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+⭐دارای لایسنس و مجوز anjuan
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+r24
+🔔کانال دربی بت :👇
+✅https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9304
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
+
+@tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از فوبیاتون بگید .... از چی میترسید؟
+</div>
+
+## tasiyanc — post 9302
+
+<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کد های مخفی ChatGpt که بکارتون میاد🤖
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
 
 ## tasiyanc — post 9300
 
@@ -164,16 +240,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9281
 
 ## tasiyanc — post 9280
-
-## tasiyanc — post 9279
-
-## tasiyanc — post 9278
-
-## tasiyanc — post 9276
-
-## tasiyanc — post 9275
-
-## tasiyanc — post 9274
-
-## tasiyanc — post 9273
 

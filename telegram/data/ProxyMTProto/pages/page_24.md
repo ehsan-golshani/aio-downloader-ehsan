@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/12 22:25
+📅 آخرین بروزرسانی: 1405/06/13 01:04
 
 ---
+
+## ProxyMTProto — post 50338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: irancell-mci-rightell-adsl.mr-moo.co.uk.
+Port: 443
+Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50337
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: hub.savelyev.click
+Port: 443
+Secret: ee609a2ad7e277c6eb2dd39767e12777b86875622e736176656c7965762e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad1.arixo.shop
+Port: 443
+Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50334
 
@@ -145,42 +181,6 @@ Secret: ee1e355000114cdb95628c1564225a404b36326334346231662e6b6f73686b6170726f78
 Server: Unknown
 Port: 443
 Secret: eeb8f5ea85920054511cbb1c19f1baf3553265383964642e73776966742d63646e2e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50317
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 14443
-Secret: ee9e28cf588967add684c5e759fea036d47777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

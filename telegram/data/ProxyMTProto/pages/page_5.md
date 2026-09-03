@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/12 22:25
+📅 آخرین بروزرسانی: 1405/06/13 01:04
 
 ---
+
+## ProxyMTProto — post 50722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.rknsosi.shop
+Port: 443
+Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50720
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50719
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wow.mtproto.baby
+Port: 443
+Secret: dd0bd7534b498f8d1a15d51475698cad49
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50718
 
@@ -145,42 +181,6 @@ Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
 Server: ad1.arixo.shop
 Port: 443
 Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50701
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: t.meow-network.com
-Port: 443
-Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50700
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: admin.valmira.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
 @ProxyMTProto
 </div>
 

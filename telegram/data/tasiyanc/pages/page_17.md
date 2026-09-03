@@ -1,8 +1,146 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 9479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماه تولدت با کدوم رهبر ایرانی یکی بوده؟!
+
+فروردین = علی خامنه‌ای
+اردیبهشت = داریوش بزرگ
+خرداد = خشایارشاه
+تیر = ناصرالدین شاه قاجار
+مرداد = انوشیروان دادگر
+شهریور = کوروش بزرگ
+مهر = نادرشاه افشار
+آبان = محمدرضا شاه
+آذر = شاه عباس
+دی = کریم‌خان زند
+بهمن = بهرام گور
+اسفند = رضا شاه
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9478
+
+<div align="center"><video src="files/post_9478_tasiyanc_9478.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9478_tasiyanc_9478.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+سرور سرعتی مولتی لوکیشن
+⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمینای 
+🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+
+✔️ @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9477
+
+<div align="center"><video src="files/post_9477_tasiyanc_9477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9477_tasiyanc_9477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست موقت
+
+🪙 کاربردی - کسب درامد
+
+⚡️معرفی ربات کسب درامد ماینر (استخراج) تون کوین (گرام) - برداشت داره تایید شدست میتونید با انجام تسک ها به درآمد برسید
+
+👉https://t.me/GramHashes72Bot
+
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Blue Man💙 (1).ovpn
+</div>
+
+## tasiyanc — post 9475
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9474
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4 server 🇩🇪
+DNS 1⚡️
+
+60.154.181.244
+22.137.148.153
+
+DNS 2⚡️
+
+85.0.69.240
+173.193.142.191
+
+
+IPv6 🇩🇪
+DNS 1⚡️
+
+2a0e:1c80:11::5ce4:607c:3c41:e868
+2a0e:1c80:11::dcc8:31c8:1fa2:bd89
+
+DNS 2⚡️
+
+2a0e:1c80:11::9014:410:e8bd:d8fd
+2a0e:1c80:11::cf95:da47:970b:4273
+
+DNS 3⚡️
+
+2a0e:1c80:11::ee5b:4bb1:cd6:e105
+2a0e:1c80:11::7ad2:3896:4a4e:cceb
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9473
 
@@ -265,126 +403,5 @@ https://t.me/+J_q7c-COftQzOGM0
 میگم چیکار میکنیم
 
 https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9455
-
-<div align="center"><img src="files/post_9455_tasiyanc_9455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینترنشنال : آمریکا برای پنج هکر جمهوری اسلامی ۱۰ میلیون دلار جایزه گذاشت
-برنامه «پاداش برای عدالت» وزارت خارجه آمریکا اعلام کرد برای ارائه اطلاعات درباره پنج مرد متهم به هک و سرقت دادههای مرتبط با آمریکا و متحدانش از سوی جمهوری اسلامی، تا سقف ۱۰ میلیون دلار جایزه تعیین کرده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاونت پلیس فتا:
-
-متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
-
-+ مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعدادی DNS برای گیمر های عزیز 😎
-
-IPv4
-DNS 1⚡️
-
-84.200.69.80
-
-DNS 2⚡️
-
-84.208.90.42
-
-
-DNS 1⚡️
-
-114.114.114.114
-
-DNS 2⚡️
-
-78.160.38.248
-
-
-IPv6
-DNS 1⚡️
-
-2a00:801::856b:0fb8:c
-
-DNS 2⚡️
-
-2a00:801::856b:5b73:b
-
-
-DNS 1 ⚡️
-
-2a02:ff01:3344::2903:91b0:c
-
-DNS 2 ⚡️
-
-2a02:ff01:3344::2903:de59:b
-
-
-لینک DNS Changer اندروید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9450
-
-<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 19 August، روز جهانی عکاسیه📸
-یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9448
-
-<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
 </div>
 

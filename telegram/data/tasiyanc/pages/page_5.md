@@ -1,8 +1,84 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 9796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
+
+امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9795
+
+<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
+نظر شما چیه طبیعیه یا غیرطبیعی؟
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9794
+
+<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
+
++ هانا فقط 16 سال سن داشت :)
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفسور همتی بدون اینکه خندش بگیره :
+
+دشمنان هر هفته تحریم جدیدی علیه ایران اعمال می‌کنند، اما سیستم اقتصادی کشور همچنان به کار خود ادامه می‌دهد.
+آمادگی داریم تا ۲ میلیارد دلار ارز در بازار عرضه کنیم.
+گرد و خاک ایجادشده در بازار ارز فروخواهد نشست و افزایش اخیر نرخ ارز نیز بیش از آنکه ناشی از عوامل واقعی باشد، تحت تأثیر فضای روانی است.
++قیمت هر دلار امروز ۱۰ شهریور از ۲۱۱ هم عبور کرد ولی شما ها از اراجیفتون خسته نشدید
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9790
 
@@ -223,84 +299,5 @@ til.ac/0L4vyJf
 •کاهش وسواس فکری
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9765
-
-<div align="center"><img src="files/post_9765_tasiyanc_9765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
-</div>
-
-## tasiyanc — post 9762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت ترامپ :
-ایران یک کشور شکست‌خورده است. مرده! آنها نه نیروی دریایی دارند، نه نیروی هوایی، نه ارز، نه حقوق سربازان و پلیس خود را پرداخت می‌‌کنند، تورم ۳۰۰ درصد است و رهبری آنها کاملاً آشفته و ناتوان از نمایندگی صحیح کشور است. تنها چیزی که دارند اخبار جعلی از ایالات متحده، تمایل به کشتن معترضانشان (که اکنون بیش از ۱۰۰۰۰۰ نفر کشته شده‌اند. آنها باید به جرم جنایات جنگی علیه بشریت محاکمه شوند!) و یک مشت «چرندیات» است. از توجه شما به این موضوع متشکرم!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9761
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری | ترامپ:
-
-ایالات متحده به حمله‌ای که شب گذشته علیه نیروهای آمریکایی انجام شد، پاسخ خواهد داد.
-
-"ما آنها را با قدرت مورد هدف قرار خواهیم داد."
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9758
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖🤖 Gemini - ChatGpt
-</div>
-
-## tasiyanc — post 9757
-
-<div align="center"><video src="files/post_9757_tasiyanc_9757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9757_tasiyanc_9757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴در یک لحظهٔ عادی اما م،رگبار، دانیل ریدِ ۳۲ ساله زنی به نام جسیکا را دید که غرق در گوشی موبایلش، قدم به خیابان می‌گذارد؛ بی‌آنکه متوجه ماشینِ درحال نزدیک شدن باشد. تنها چند ثانیه تا فاجعه وقت باقی بود. دانیل بدون فکر زن را از مرگ نجان داد
-+ چند روز بعد جسیکا از دانیل شکایت کرد که او به حریم خصوصی وی تجاوز کرده و نباید نجاتش میداد 😭
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 8809
+
+<div align="center"><video src="files/post_8809_tasiyanc_8809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8809_tasiyanc_8809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک موش خرما به نام چانک به مدت ۴ سال محصول یک کشاورز را می‌دزدید و آنهارا جلوی دوربین کشاورز میخورد 😂
+
+
+⭐ @TASIYANC ⭐
+</div>
+
+## tasiyanc — post 8808
+
+<div align="center"><video src="files/post_8808_tasiyanc_8808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8808_tasiyanc_8808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
+</div>
+
+## tasiyanc — post 8807
+
+<div align="center"><img src="files/post_8807_tasiyanc_8807.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبر خوب ، نوید زیادخان قره‌داغی مادرج*ده که دخترارو تو لایو اینستاگرام کتک می‌زد دستگیر شد
+
+« مشاهده ویدیو »
+
+
+⭐ @TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 8806
+
+<div align="center"><video src="files/post_8806_tasiyanc_8806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8806_tasiyanc_8806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو های منتشر شده از زار و شیون اعضای حشدالشبی بر سر اجساد بستگانشان
+
+
+⭐ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 معاون استاندار خوزستان:
+مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 8803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8802
 
@@ -176,60 +255,5 @@ Multi Location ⚡
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8786
-
-<div align="center"><video src="files/post_8786_tasiyanc_8786.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8786_tasiyanc_8786.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴انتقال اجساد حشدالشعبی
-
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر گلای توی خونه
-</div>
-
-## tasiyanc — post 8784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
-
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ :
-
-نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8781
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
 </div>
 

@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/12 22:27
+📅 آخرین بروزرسانی: 1405/06/13 01:06
 
 ---
+
+## tasiyanc — post 8392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون 📱
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8391
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر
+</div>
+
+## tasiyanc — post 8390
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 
+🔐 
+🔐 FAST ⚡
+
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.142:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0&sni=185.137.157.142#%40Tasiyanc%20%E2%9A%A1
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%F0%9F%92%A5
+
+IP 
+🇩🇪
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در سیریک
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8385
 
@@ -132,64 +198,5 @@
 ۴انفجار در بندر عباس
 
 @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌دلار ۱۹۵رو شکست
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❌انفجار در بندر عباس و بیرجند
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ دو سرباز آمریکایی در حمله سپاه به اردن کشته شدند
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8362
-
-<div align="center"><video src="files/post_8362_tasiyanc_8362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8362_tasiyanc_8362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹مرگبارترین رکورد گینس
-
-در سال ۱۹۸۳، ریک چارلز با شیرجه از ارتفاع ۵۲ متر در سی‌ورلد، یکی از خطرناک‌ترین شیرجه‌های تاریخ را ثبت کرد. او با سرعتی بیش از ۱۱۶ کیلومتر بر ساعت و ورودی کاملاً عمودی، بدون آسیب جدی از آب بیرون آمد. این شیرجه هنوز هم یکی از شگفت‌انگیزترین اجراهای تاریخ ورزش محسوب می‌شود.
-
-@Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8359
-
-<div align="center"><video src="files/post_8359_tasiyanc_8359.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8359_tasiyanc_8359.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وضعیت مسکو روسیه بعد از حملات امروز اوکراین
-
-انگار فیلم آخر الزمانی هست
-
-
-@Tasiyanc ✅ | مرجع کانفیگ
 </div>
 
