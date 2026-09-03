@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/08 16:58
+📅 آخرین بروزرسانی: 1405/06/12 10:07
 
 ---
+
+## MehdiBudam — post 8127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+127 126 124 117 113 109 106 103 101 99 97 95 92 91 87 86 84 77 73 71 69 65 59 58 57 54 53 45 44 34 32 30 27 25 24 22 21 و بقیه وصلن اگه لازم شد.
+</div>
 
 ## MehdiBudam — post 8126
 
@@ -194,11 +200,5 @@ slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تنظیمات پیشنهادی برای اسلیپنت دانلود برنامه ( تفاوت نسخه ها ) نحوه اتصال با وضعیت فعلی شبکه Auto-connect on boot ❌️ Proxy-only mode✅️ (درصورت استفاده از برنامه هایی که از پروکسی پشتیبانی نمیکنند این گزینه خاموش باشه حتما.) (اگه این گزینه روشن باشه باید…
-</div>
-
-## MehdiBudam — post 8107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوابه؟
 </div>
 
