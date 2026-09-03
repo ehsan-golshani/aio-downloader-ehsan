@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 9734
+
+<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 توییت جدید دونالد ترامپ
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری پرواز های مهرآباد لغو شد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
+</div>
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9728
 
@@ -240,61 +281,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9700
-
-<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9698
-
-<div align="center"><img src="files/post_9698_tasiyanc_9698.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9696
-
-<div align="center"><img src="files/post_9696_tasiyanc_9696.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏐 تیم ملی والیبال زیر ۱۷ سال ایران با شکست فرانسه در دیدار فینال، به هفتمین برد متوالی خود دست یافت و مقتدرانه قهرمان جهان شد.
-
-🇮🇷 25 | 25 | 22 | 25
-🇫🇷 18 | 15 | 25 | 12
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
 </div>
 

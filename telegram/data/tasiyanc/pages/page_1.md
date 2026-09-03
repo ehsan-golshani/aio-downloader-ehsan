@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 9889
+
+<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایران عالیه
+
+یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
++همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9888
+
+<div align="center"><a href="files/post_9888_🇫🇷 @Tasiyanc 🇬🇧 Fast.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇫🇷 @Tasiyanc 🇬🇧 Fast.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون نسخه جدید 
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9887
+
+<div align="center"><img src="files/post_9887_tasiyanc_9887.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9885
+
+<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آگهی عجیب شرکت کاریابی که وایرال شده ،
+گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
+
++ بعد میگید کار نیست
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9884
+
+<div align="center"><img src="files/post_9884_tasiyanc_9884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠علی کریمی: از این به بعد هرکسی اسم رضا پهلوی رو زیر پستای من بنویسه بلاکش میکنم. اسم پدرش مشکلی نداره ولی اسم خودش نه.
+
++ جدیدا هرکی میخواد شاهزاده رو تخریب کنه الکی میاد اسم از پدرشون میاره تا راه باز کنه
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9883
 
@@ -17,8 +88,6 @@
 </div>
 
 ## tasiyanc — post 9882
-
-<div align="center"><a href="files/post_9882_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪آپ اندروید سایت جهانی Melbet💥
@@ -219,70 +288,6 @@ sa11
 🟠 راننده جنسیس که توی مشهد تجمعات همه رو زیر گرفت:
 
 خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9865
-
-<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برخی مضرات رابطه جنسی که نمیدونستی!!
-
-۱.طول بیشتر از ۱۰ سانت به دیواره رحم برخورد و باعث درد زیادی میشه!
-۲.رابطه مقعدی خیلی خطرناکه و باعث انتقال مریضی میشه و هم دردناکه!
-۳.استفاده از قرص های تاخیری معمولا باعث گیجی و سردرد و ضرر میشه!
-۴.رابطه دهانی با زنان، این نوع رابطه مضر نیست اما ممکنه خیلیا بدشون بیاد!
-۵.رابطه جنسی با پیرزن‌ها و پیرمرد‌ها
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9863
-
-<div align="center"><img src="files/post_9863_tasiyanc_9863.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9862
-
-<div align="center"><video src="files/post_9862_tasiyanc_9862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9862_tasiyanc_9862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ درباره ایران:
-
-بیشتر مردم نمی‌توانند این‌گونه مردم خودشان را بکشند. معمولاً سعی می‌کنند مذاکره کنند و با مردم صحبت کنند و بعد ممکن است حکومت سرنگون شود. اما در ایران، مردم را می‌کشند. وقتی برای اعتراض به خیابان می‌آیند، آن‌ها را می‌کشند و مستقیماً به سرشان شلیک می‌کنند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9861
-
-<div align="center"><img src="files/post_9861_tasiyanc_9861.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مدل اسرائیلی به اسم « mia Schem » که حدود 54 روز اسیر حماس بوده
-بعد از آزاد شدنش افسردگی میگیره که چرا اینا منو نکردن حتما خوشگل نیستم و ...
-بخاطر همین میره چندین مدل عمل زیبایی انجام میده و بعدش یه مربی پرورش اندام اسرائیلی بهش داروی بیهوشی میده و بهش تجا*وز میکنه.
-
 
 💋 @Tasiyanc
 </div>

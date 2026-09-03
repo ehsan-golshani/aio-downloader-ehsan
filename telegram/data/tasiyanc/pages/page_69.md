@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 8001
+
+<div align="center"><video src="files/post_8001_tasiyanc_8001.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8001_tasiyanc_8001.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای اینکه مراقب دخترامون باشیم اینطوری باید تا کنین باشون؟؟؟ مرد ایرانی و با مرام و غیر.ت میشناسن جلوی گلوله وایستادن مردا که گلوله نخورن دخترامون ، این چه کاری بود کردید شما بی نا*موسا؟
+پی‌نوشت : اکثر این چنلا برای لرستان بودن که دستگیر شدن ادمیناشون امیدوارم لرستانیا این بیشرفارو ادب کنن .
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8000
+
+<div align="center"><img src="files/post_8000_tasiyanc_8000.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7998
+
+<div align="center"><img src="files/post_7998_tasiyanc_7998.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7997
+
+<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏نسل جدید چه میدونه "بقیه پول" چیه
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7996
+
+<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
+🇮🇷
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 7995
 
@@ -215,53 +273,5 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7960
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed Fast ⚡ 🇩🇪.npvt
-</div>
-
-## tasiyanc — post 7958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر جنگ اسرائیل 🇮🇱: 🔻من و نتانیاهو دستور آماده شدن ارتش برای حملات مستقل به ایران را صادر کردیم @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ حمله سپاه به یک کشتی غول پیکر در تنگه ، در جواب به ترامپ ک‌گفته بود باید تا آخر امشب ایران تنگه رو باز کنه کامل
-</div>
-
-## tasiyanc — post 7944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

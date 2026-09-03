@@ -1,8 +1,159 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 9071
+
+<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
+
+ANDROID 
+🕹
+V2box
+🔐 Npv tunnel 
+🔐  V2rayNG 
+🔐
+iOS  
+📱
+V2BOX 
+🔐  Npv tunnel 
+🔐
+
+Join As @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9070
+
+<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+r16
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9069
+
+<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+r16
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
+
+سرور سرعتی‌ لوکیشن Germany 📍
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال 🔸
+
+اتصال امن برای همه 🇮🇷
+
+📱 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9066
+
+<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9065
 
@@ -203,60 +354,5 @@ Join @TASIYANC
 
 تعدادی از نیروهای عربستان سعودی کشته و زخمی شدند، پس از آنکه یک موشک شلیک شده از یمن مستقیماً به پایگاه‌های نیروهای تیپ واکنش سریع اصابت کرد.
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویس های پخش شده منتسب به سالومه مجری منوتو ، با هوش مصنوعی ساخته شده دیدم وایرال داره میشه گفتم بگم
-
-پ‌ن : انقد سطحی و مبتدیانه ساخته شده بچه ۴ ساله هم میفهمه
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سازمان وظیفه عمومی فراجا شایعه معافیت سربازان فراری را تکذیب کرد
-
-اطلاعیه سازمان وظیفه عمومی:
-▫️آن دسته از کارکنان وظیفه که به هر دلیل خدمت سربازی خود را به اتمام نرسانده‌اند، می‌بایست وضعیت سربازی خود را از طریق یگان خدمتی تعیین تکلیف کنند و هیچ نوع معافیت جدیدی برای آنان در نظر گرفته نشده است.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9038
-
-<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کوثری ؛ از فرماندهان سپاه:
-پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9036
-
-<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
-
-شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
-
-بفرست برا کسی که میخوای عکس پاشو برات بده 😂
-@Tasiyanc ⭐️
 </div>
 

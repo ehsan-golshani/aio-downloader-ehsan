@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 7882
+
+<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
+
+اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
+
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تفاهم ایران و امریکا مثل مهریه‌ست
+کی داده کی گرفته🤣
+
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
+
+1- سایت : TalkEnglish.com
+2- سایت : Storynory.com
+3- سایت : Lingua.com
+4- سایت : Grammerly.com
+5- سایت : Oysterenglish.com
+
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7878
+
+<div align="center"><img src="files/post_7878_tasiyanc_7878.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هالند اینجوری میوفته دنبال بازیکنا تصویر بالا انگار دنبال مرغ افتاده😹
+
+@Tasiyanc✅
+#Mobina
+</div>
+
+## tasiyanc — post 7877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاش دانشمندان می‌توانستند دستگاهی اختراع کنند که خاطرات را مثل عطر توی یک بطری حفظ کنند. آن‌وقت می‌شد هر زمان که آرزو کردیم بطری را برداریم و آن لحظه را دوباره زندگی کنیم.
+- ربکا | دافنه دوموریه
+✔️ @Tasiyanc 🔋
+#Petros
+</div>
 
 ## tasiyanc — post 7876
 
@@ -251,87 +309,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جنگ رسما و شرعا آغاز شد
-</div>
-
-## tasiyanc — post 7832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 4 تا کانفیگ پرسرعت OpenVpn 
-📶 گذاشتم تو ربات خودمون برید بردارید چون ظرفیت محدوده چنل نمیزارم
-
-
-👈 دریافت کانفیگ ها 
-👆
-</div>
-
-## tasiyanc — post 7829
-
-<div align="center"><video src="files/post_7829_tasiyanc_7829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7829_tasiyanc_7829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی İnjector  
-📶
-
-سه سرور سرعتی‌ تست شده
-💥
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه آیفون 
-📱
-
-آموزش اتصال به اینجکتور ✨
-
-
-مناسب دانلود 
-⬇️ وب‌گردی 
-🔍 اینستاگرام 
-📸 جمینای 
-🤖 گیم 
-🎮
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه پاسداران : تنگه هرمز اکنون به طور دائم بسته شده است و ایالات متحده و متحدان آن دیگر هرگز از خلیج فارس نفت دریافت نخواهند کرد @Tasiyanproxy
-</div>
-
-## tasiyanc — post 7824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت ملی در صورت قطعی 👉 ظرفیت محدود کاملا رایگان ربات مجموعه تاسیان ❤️
-</div>
-
-## tasiyanc — post 7823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-سرور سرعتی پرمیوم متد جدید سرور ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

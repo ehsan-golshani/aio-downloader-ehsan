@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/12 18:54
+📅 آخرین بروزرسانی: 1405/06/12 22:27
 
 ---
+
+## tasiyanc — post 8484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇹🇷 İstanbul ⚡️ VeryFast 🔥🚀.npvt
+</div>
+
+## tasiyanc — post 8483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+10سرور سرعتی پرمیوم سرور ترکیه⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8482
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
+</div>
+
+## tasiyanc — post 8481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بخوابید آروم شد
+</div>
 
 ## tasiyanc — post 8476
 
@@ -125,51 +192,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ میخواست با بازیکنا اسپانیا قهرمانیو جشن بگیره که رئیس فیفا اومد بهش گفت مشتی بیا اینور 😂😂😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8460
-
-<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8459
-
-<div align="center"><img src="files/post_8459_tasiyanc_8459.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقای ترامپ دنس معروفشم زد موقع اهدای کاپ به اسپانیا
-</div>
-
-## tasiyanc — post 8457
-
-<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
 
 @TASIYANC ✅
 </div>
