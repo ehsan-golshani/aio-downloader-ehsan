@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/12 01:23
+📅 آخرین بروزرسانی: 1405/06/12 15:19
 
 ---
+
+## tasiyanc — post 8852
+
+<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبر ترین دانشگاه ها در سال 2026 🌐
+
+پروکسی متصل | پروکسی متصل
+
+
+✈️@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8851
+
+<div align="center"><video src="files/post_8851_tasiyanc_8851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8851_tasiyanc_8851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+«ویدیوی وایرال شده این روزها » صبحانه ای که برای سربازان ارتش آمریکا در میدان جنگ / بیرون مرزها دور از وطنشون « سرو » میشود
+
+پروکسی متصل | پروکسی متصل
+
+✈️@TASIYANC
+</div>
+
+## tasiyanc — post 8850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻کد های مخفی ChatGpt - Gemini 🤖🤖
+
+کد : 10x THINK - به سوالاتت دقیق تر و عمیق تر جواب میده
+
+کد : EL10 - پاسخ سوالاتت رو ساده توضیح میده ، انگار بچه ده ساله ای
+
+کد : KILL CRITIC - گذاشتن این کد در اول سوالاتت باعث میشه باهات صادقانه و رک باشه و موافق نباشه باهات
+کد : ALT3 - با این کد به جای یک جواب سه تا گزینه بهت میده بابت سوالاتت
+
+
+✈️@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8849
+
+<div align="center"><video src="files/post_8849_tasiyanc_8849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8849_tasiyanc_8849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاول دوروف مالک تلگرام میگه هیچ خانه، زمین، ملک، جت شخصی یا قایق تفریحی ندارد!!
+
+✈️@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+R8
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8847
+
+<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 8845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+4 سرور سرعتی لوکییشن 🇮🇹
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8844
 
@@ -177,104 +285,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
 
 ⭐@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
-</div>
-
-## tasiyanc — post 8815
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن
-🇩🇪🇮🇹🇸🇪🇯🇵🇹🇼🇹🇷
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8814
-
-<div align="center"><img src="files/post_8814_tasiyanc_8814.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 اینترنت استارلینک به‌صورت رسمی در عراق فعال شد.
-
-هزینه اشتراک‌ها با نرخ هر دینار عراق = 147 تومان :
-
-💰 طرح 100 مگابیت با دانلود نامحدود: حدود 9 میلیون و 200 هزار تومان در ماه
-
-💰 طرح 400 مگابیت با دانلود نامحدود: حدود 14 میلیون و 500 هزار تومان در ماه
-
-شاید در نگاه اول گرون به نظر برسه، اما از اونجایی که هر دیش استارلینک می‌تونه اینترنت یه آپارتمان یا چند واحد رو تأمین کنه، اگه مثلاً 6 یا 7 خانواده هزینه رو با هم تقسیم کنن، مبلغی که به هر خانواده می‌رسه کاملاً منطقی و مقرون‌به‌صرفه میشه.
-﻿
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-⭐ @TASIYANC✅
-</div>
-
-## tasiyanc — post 8811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم! 3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن! چند تا از خلبانان جنگنده هم کشته شده. 🐸🐸🐸🐸 
-⭐@Tasiyanc ⭐
-</div>
-
-## tasiyanc — post 8810
-
-<div align="center"><img src="files/post_8810_tasiyanc_8810.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، صداوسیما خیلی جدی : امروز صبح در حملات آمریکا به ایران، 6 تا جنگنده F-35 رو زدیم!
-
-3 تاشون کامل منهدم شدن، 3 تاشون هم خسارت دیدن!
-چند تا از خلبانان جنگنده هم کشته شده.
-🐸🐸🐸🐸
-
-
-⭐@Tasiyanc ⭐
-</div>
-
-## tasiyanc — post 8809
-
-<div align="center"><video src="files/post_8809_tasiyanc_8809.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8809_tasiyanc_8809.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک موش خرما به نام چانک به مدت ۴ سال محصول یک کشاورز را می‌دزدید و آنهارا جلوی دوربین کشاورز میخورد 😂
-
-
-⭐ @TASIYANC ⭐
-</div>
-
-## tasiyanc — post 8808
-
-<div align="center"><video src="files/post_8808_tasiyanc_8808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8808_tasiyanc_8808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر وقت ایرانیا فهمیدن عادل فرقی با میساکی نداره بازیو بردن
 </div>
 

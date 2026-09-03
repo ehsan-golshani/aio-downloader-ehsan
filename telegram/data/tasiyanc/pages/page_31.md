@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/12 01:23
+📅 آخرین بروزرسانی: 1405/06/12 15:19
 
 ---
+
+## tasiyanc — post 9106
+
+<div align="center"><img src="files/post_9106_tasiyanc_9106.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 🆕
+
+Prompt 🤖🤖
+
+fashion editorial photography, front shot, upper body, professional female model, shot with hasselblad x2d 100c, xcd 90mm f/2.5 lens, cinematic sepia color grading with golden hour warmth, dramatic black silhouette against burnt umber to honey amber gradient backdrop, avant-garde composition with tilted head pose, staring to camera, profound gaze, elongated body stance, flowing black turtleneck, professional main fresnel light at 60 degree angle with silk diffusion, rim light with cto gel at 75 degree angle, haze machine for ethereal atmosphere, feathered shadows, contrast curve manipulation, selective dodge and burn, grain texture overlay, color temperature adjustment at 5500k to 3200k gradient, ultra sharp details, raw format, inspired by paolo roversi lighting technique, hyper realistic, 16K, rich detail --ar 9:16 --quality 2 --style raw --personalize nq7rq2j --stylize 500 --v 6.1
+
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9105
+
+<div align="center"><img src="files/post_9105_tasiyanc_9105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خورخه مسی، پدر لیونل مسی درگذشت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فوری سپاه پاسداران:
+بازگشایی تنگه هرمز منوط به پذیرش کامل شرایط ما از سوی ایالات متحده است.
+بازگشایی تنگه هرمز تابع سازوکارها و شرایط تعیین‌شده توسط جمهوری اسلامی ایران است و ارتباطی با مذاکرات ایران و عمان ندارد.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9103
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9102
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قوه قضاییه : آیت‌الله خرازی به دلیل حرف های کذب و دروغش تحت تعقیب قرار گرفت و براش تشکیل پرونده دادیم.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9099
+
+<div align="center"><img src="files/post_9099_tasiyanc_9099.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت Vip جدید 🆕
+
+Prompt 🤖🤖
+عکس دخترانه هم میشه بدید
+A person with slicked-back dark hair wearing oversized square sunglasses is shown in a dramatic, cinematic portrait. The lighting creates a strong shadow across the face, revealing only part of the skin tone and features, while the background is a vibrant gradient of deep red to orange, forming a glowing circular or sun-like halo effect behind the head. The clothing is dark, almost blending into the shadows, giving the portrait a bold, fashion-editorial, and futuristic mood.
+آموزش استفاده 👉
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از تیم اتکر تاسیان تشکر میکنم بخاطر کار خوبی ک چند روزه کردن ، خط قرمز کانال و اعضاء رد بشه تیم اتکر ورود میکنن
+</div>
 
 ## tasiyanc — post 9096
 
@@ -183,136 +253,5 @@ Prompt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
-</div>
-
-## tasiyanc — post 9083
-
-<div align="center"><video src="files/post_9083_tasiyanc_9083.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9083_tasiyanc_9083.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مورگان فریمن ستاره هالیوود : من زرتشتی هستم !!
-
-🤴 دین زرتشت یکی از کهن‌ترین آیین‌های توحیدی جهان است که در ایران باستان ظهور کرد و پایه‌گذار آن «اشوزرتشت» پیامبر بزرگ ایرانی بود و اصول بنیاد آن پرستش خدای یکتا ( اهورا مزدا) بود ، ایرانیان ۳۵۰۰ سال پیش با پیروی از دین زرتشت از اولین یکتا پرستان جهان بودند !!
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9081
-
-<div align="center"><video src="files/post_9081_tasiyanc_9081.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9081_tasiyanc_9081.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕کانفیگ اختصاصی نامحدود اینجکتور
-📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
-⚡️
-
-سرور سرعتی‌ لوکیشن USA - Germany 
-📍
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون  
-📱
-
-آموزش اتصال 
-🔸
-
-اتصال امن برای همه 
-🇮🇷
-
-
-📱 @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 مارک لوین:
-
-اگر قرار باشه رژیم ایران شکست بخوره، باید مردم ایران مسلح بشن.
-
-به‌جای توافق با جمهوری اسلامی، باید از مردم ایران برای سرنگونی حکومت حمایت بشه.
-
-@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 9079
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود با استراتژی بدست میاد نه ادعا 
-👌
-
-
-امروز پاریس
-⚡️ و منچستر یونایتد 
-⚡️بازی دارن بیا استراتژی مو ببین و یاد بگیر
-
-
-⚠️مخصوص کسایی که بالا ۵۰میلیون سرمایه دارن
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9078
-
-<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 شب و 6 برد پشت هم 
-✅
-
-من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
-
-آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
-🚀
-g16
-https://t.me/+5fvta-uF4QA3ZDY0
-https://t.me/+5fvta-uF4QA3ZDY0
-</div>
-
-## tasiyanc — post 9077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت
-📱
-
-•10 سرور سرعتی تست شده تمام اپراتور ها 
-⚡️
-
-• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
-
-•آموزش اتصال 
-⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9076
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر مهم 
-🔴 توافق مکه بین کشور های ترکیه ، پاکستان و عربستان امضاء شد
-
-بعد امضاء این توافق رجب طیب اردوغان «رییس جمهور ترکیه» گفت :
-«هرگونه حمله مسلحانه به هر یک از کشورها، از جمله ترکیه، عربستان سعودی و پاکستان، به عنوان یک حمله به همه آن‌ها تلقی می‌شود.»
-@TASIYANC 
-✅
 </div>
 

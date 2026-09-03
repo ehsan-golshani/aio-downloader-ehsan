@@ -1,8 +1,159 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/12 01:23
+📅 آخرین بروزرسانی: 1405/06/12 15:19
 
 ---
+
+## tasiyanc — post 9632
+
+<div align="center"><img src="files/post_9632_tasiyanc_9632.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         
+😃
+😃😃
+😃
+         
+😃
+😃😃
+😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9631
+
+<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آپدیت جدید برنامه نپستر را دانلود کنید
+
+کانفیگ حجم نامحدود نپسترنت
+سرور سرعتی مولتی لوکیشن
+
+تست شده روی همه نت ها ⚡️
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9630
+
+<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
+
+این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9628
+
+<div align="center"><img src="files/post_9628_tasiyanc_9628.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📹20 تا فیلم برتر سینمایی پیشنهادی که میتونید ببینید !
+در دو ژانر متفاوت « عاشقانه و اکشن »
+
+سایت پیشنهادی دانلود و پخش بدون سانسور
+https://www.novigrad.top
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
+😉
+
+با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
+🔥
+
+بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
+JOIN JOIN JOIN
+JOIN JOIN JOIN
+</div>
+
+## tasiyanc — post 9626
+
+<div align="center"><img src="files/post_9626_tasiyanc_9626.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات هوش مصنوعی فوتبال
+🤖
+
+ربات دستیار هوش مصنوعی و آنالیز مسابقات و پیشبینی بازی‌ها بر پایه AI 
+🔥
+
+ویژگی های کلیدی
+
+1- 10+ سایت شرطبندی بزرگ، از بازارهای آسیایی و اروپایی را پوشش می‌دهد.
+- هشدارهای زمان واقعی برای تحرکات مشکوک بازار.
+- کاهش ضریب، حرکات خط و قفل بازار را دنبال می کند.
+
+
+💠 لینک عضویت کانال راهنما ربات:
+https://t.me/+86B34ioXJtUwODg6
+https://t.me/+86B34ioXJtUwODg6
+</div>
+
+## tasiyanc — post 9625
+
+<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
+
+بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9624
 
@@ -191,152 +342,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9610
-
-<div align="center"><img src="files/post_9610_tasiyanc_9610.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9607
-
-<div align="center"><img src="files/post_9607_tasiyanc_9607.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ممکنه در آینده تولد پسرها متوقف بشه ؟
-یک مطالعه علمی هشدار داده که کروموزوم Y، عامل اصلی تعیین جنسیت مردانه، در طول میلیون‌ها سال به‌شدت کوچک شده و بخش بزرگی از ژن‌های خود را از دست داده است؛ روندی که این سؤال نگران‌کننده را مطرح کرده: اگر این روند در آینده ادامه پیدا کند، آیا ممکن است روزی تولد پسرها متوقف شود؟!
-+منبع داخل بنر
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡ 05.ovpn
-</div>
-
-## tasiyanc — post 9605
-
-<div align="center"><img src="files/post_9605_tasiyanc_9605.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏✅آپدیت 12.10.1 تلگرام منتشر شد !
-
-🟠 اضافه شدن قابلیت Rich Text:
-تلگرام قابلیت Rich Text رو برای کاربران پریمیوم بهبود داده و علاوه بر جدول‌سازی و... حالا میشه دکمه های مختلف با چند رنگ برای لینک، منشن و کپی یک متن خاص در اون ها قرار داد و پشتیبانی از آپلود فایل هم به اون اضافه شده.
-🟠پیام خوش آمد گویی:
-
-تلگرام در آپدیت جدید 12.10 امکان اضافه کردن پیام خوش آمدگویی به اعضای جدید رو اضافه کرده. برای فعال کردن پیام خوش آمدگویی فقط کافیه به تنظیمات کانال یا گروه مدنظرتون برین و در اونجا گزینه Welcome Message رو انتخاب کنید.
-
-🟠پیام کاستوم شده ی گیفت‌ها
-
-و در نهایت حالا در هنگام خرید گیفت های آپگرید شده و هدیه دادن اون ها، میتونین یادداشتی برای طرف مقابل روی گیفت درج کنید تا عشقتون رو بیش از پیش با شوآف کردنش به طرف ثابت کنید
-⬇️دانلود آپدیت «Android» و «iOS»
-🕹 اندروید Play Store
-📱  آیفون   Apple Store
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9603
-
-<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃😃
-         😃
-😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
