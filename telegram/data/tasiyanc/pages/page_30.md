@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 9133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕 اسم : Mountain Embrace 
+❤️ آموزش استفاده 
+👉 دریافت پرامپت 
+👉 @TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9132
+
+<div align="center"><img src="files/post_9132_tasiyanc_9132.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Mountain Embrace ❤️
+
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمانی به این درجه از سود توی بت میرسی که بدونی کی و کجا وارد شی🚀
+
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
+
+## tasiyanc — post 9130
+
+<div align="center"><img src="files/post_9130_tasiyanc_9130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پول درآوردن از بت دقیقا جاییه که فرق استراتژی داشتن و ادعا داشتن رو مشخص میکنه 👌
+
+15 بازی 15 برد ✅
+
+من به پول شما نیاز ندارم و چیزیم به شما نمیخوام بفروشم
+g18
+لینک چنل
+https://t.me/+_btGj-rRAxs3NGVk
+https://t.me/+_btGj-rRAxs3NGVk
+</div>
 
 ## tasiyanc — post 9129
 
@@ -252,46 +304,5 @@ r18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
-</div>
-
-## tasiyanc — post 9112
-
-<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید 
-🆕
-
-prompt Cinematic Winter Fashion Portrait 
-🤖
-🤖
-cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9111
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
-</div>
-
-## tasiyanc — post 9110
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی پرسرعت نپسترنت📱
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9109
-
-<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
 </div>
 

@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 9614
+
+<div align="center"><img src="files/post_9614_tasiyanc_9614.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هکر ها دوس دارن شما این 5 کار رو انجام بدید تا به راحتی به اطلاعاتتون دسترسی پیدا کنند
+
++ حتما مراقب باشید این روزا ممکنه سر همه بیاد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9613
+
+<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
+
++ قهرمان ایران مسعود ذات‌پرور هست نه تو
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9612
+
+<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
+
++ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
+
+🩸 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9610
 
@@ -284,67 +333,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده بچه ها واقن نایی واسه پست گذاشتن ندارم با این وضعیت
-وقتی حال همه بده مطالب طنز نمیشه گذاشت
-وقتی حال همه بده نایی نمی‌مونه برا فعالیت ، جوانی ما در این مملکت الکی بگا رفت ، طفلی دهه نودی ها ، هشتادی ها و این نوجوان‌های تازه بدوران رسیده ، باز ما به یه چیزایی رسیدیم .. ولی اینا حقشون این نبود چیز های عادی براشون بشه آرزو « دوستون دارم امیدوارم حالتون خوب باشه»
-
-+کانفیگا ضعیف بشه میزارم .
-</div>
-
-## tasiyanc — post 9583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡ Number One Pre.npvt
-</div>
-
-## tasiyanc — post 9582
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9581
-
-<div align="center"><img src="files/post_9581_tasiyanc_9581.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تغییر دامنه بانک‌ها؛ دردسر تازه برای مشتریانشون
-
-بعد از بانک ملی، حالا نام بانک ملت و چند بانک دیگر هم در ارتباط با محدودیت‌های گواهی‌های Let’s Encrypt مطرح شده است.
-
-در مورد بانک ملت، آدرس قدیمی ebanking.bankmellat.ir در حال هدایت کاربران به ebanking.mellat.ir است.
-
-
-تغییر دامنه شاید در کوتاه‌مدت راه‌حل به نظر برسد، اما تبعات خودش را دارد؛ از لینک‌های قدیمی و اپلیکیشن‌ها گرفته تا نتایج جست‌وجو و سردرگمی کاربران درباره اینکه آدرس رسمی بانک دقیقاً کدام است.
-
-این موضوع از نظر امنیتی هم حساس است؛ چون وقتی کاربران به تغییر مداوم آدرس‌های بانکی عادت کنند، تشخیص دامنه‌های جعلی و صفحات فیشینگ سخت‌تر می‌شود.
-در چنین شرایطی، اطلاع‌رسانی شفاف بانک‌ها و معرفی دقیق دامنه‌های رسمی اهمیت بسیار بیشتری پیدا می‌کند.
-چون کوچک‌ترین سردرگمی در آدرس یک سامانه بانکی می‌تواند فرصت مناسبی برای کلاهبرداری ایجاد کند.
-
-
-﻿
-
-🩸 @Tasiyanc
 </div>
 

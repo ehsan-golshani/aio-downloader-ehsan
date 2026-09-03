@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 8961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دردناک است ، زندگی در مملکتی که مردمش ؛ تاوان نفهمیِ عده ای را میدهند که حاضر نیستند حقیقت را ببینند
+
+پروکسی | پروکسی | پروکسی
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8960
+
+<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
+جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تقدیم به مردم سرزمینم 
+🖤
+🇮🇷
+
+کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+۵ سرور سرعتی تست شده  لوکیشن ایتالیا 
+📍
+
+آموزش اتصال 
+⚡️
+
+اتصال امن برای همه
+
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 8957
+
+<div align="center"><img src="files/post_8957_tasiyanc_8957.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طومار جدید ترامپ:
+ـ‌ رهبران ایران واقعاً دورو و غیرقابل‌باورن! خودشون درخواست مذاکره دادن، اونا حتی التماس کردن.
+مذاکرات شروع شده و قرار هم هست به‌زودی ادامه پیدا کنه، ولی بعدش میان جلوی دوربین می‌گن اصلاً مذاکره‌ای در کار نیست و فقط با عمان در ارتباطن.
+بعد هم طبق معمول شروع می‌کنن به حرف زدن و میگن تنگه هرمز با قدرت دست خودشونه؛ در حالی که الان عملاً نیروی دریایی آمریکا کنترل کاملش رو در اختیار داره و چیزی که بعضیا اسمش رو گذاشتن “دیوار فولادی آمریکا” اونجاست. هیچ چیزی بدون اجازه ما به ایران نمی‌رسه و تا وقتی توافقی انجام نشه یا ایران کاملاً تسلیم نشه، هم چیزی وارد ایران نمی‌شه. چه ایران قبول بکنه چه نکنه، ما در حال مذاکره برای حل مشکلی هستیم که خودش دهه‌ها ایجادش کرده. موضوع خیلی ساده است؛ ایران هیچ‌وقت به سلاح هسته‌ای دست پیدا نخواهد کرد.
+
+👹@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8956
 
@@ -231,46 +289,5 @@ https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت نتتون بگید؟
-</div>
-
-## tasiyanc — post 8937
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 🖤 Config Unlimated ⚡️ ━━━╮
-
-vless://70df38ff-5a22-4ffc-a3f9-1725515e0ea5@205.237.109.211:448?security=reality&encryption=none&pbk=IuB1jsALd-wN_8jRTGxVLBbVG5eSxNbOXjvFyZlm3UU&headerType=none&fp=chrome&type=tcp&sni=www.samsung.com&sid=113241ad01e99a2d#GB%20%20%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
-
-vless://7216b4e8-e935-4d68-b959-73d145accdee@154.222.9.240:443?security=reality&encryption=none&pbk=ISa-DZOI4LRRb9DHMFYm5oFqBXDjYzz0hVWUfWvzLmo&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=8d3293f0066e129a#DE%20%40Tasiyanc%20%E2%9A%A1
-
-vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&encryption=none&pbk=zii4nGNapnFKL6SN8GzWNqFlElBvUCUFUThEP0kFH04&headerType=none&fp=chrome&type=tcp&flow=xtls-rprx-vision&sni=storage.yandex.net&sid=c6ef72e4635d15a5#%F0%9F%87%B9%F0%9F%87%B7%20%40Tasiyanc%20%E2%9A%A1
-
-📍Location 🇹🇷 🇬🇧 🇩🇪
-
-⚡️ By  @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8936
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گزارش درگیری در تنگه هرمز - تایید یا رد نمیشه
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-
-👹@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
 </div>
 

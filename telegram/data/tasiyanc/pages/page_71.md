@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 7915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅⚡️ WAR.npvt
+</div>
+
+## tasiyanc — post 7914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندار پاکدشت:
+
+🔻صدای انفجارهایی که چندی پیش در شرق استان تهران شنیده شد، نتیجه یک عملیات کنترل شده برای خنثی سازی مواد منفجره بود.
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 7902
 
@@ -184,112 +230,5 @@
 - ربکا | دافنه دوموریه
 ✔️ @Tasiyanc 🔋
 #Petros
-</div>
-
-## tasiyanc — post 7876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
-@Tasiyanc 
-⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7874
-
-<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
-
-
-@Tasiyanc 
-😌
-#Tina
-</div>
-
-## tasiyanc — post 7868
-
-<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7865
-
-<div align="center"><video src="files/post_7865_tasiyanc_7865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7865_tasiyanc_7865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
 </div>
 

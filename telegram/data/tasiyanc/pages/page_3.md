@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 9835
+
+<div align="center"><img src="files/post_9835_tasiyanc_9835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قاتل سریالی ای که باید براش سر تعظیم فرود آورد 💀
+
+آقای توی عکس اسمش پدرو رودریگزه، و برزیلیه، یه باند خلافکار دوس دختر باردارشو به قتل میرسونن،اونم میفته دنبال این گروه و تمام اعضای این گروه که ۳۰ نفرو بودنو میکشه بعد از این قتل ها میفته زندان و چندین سال از عمرشو تو زندان میمونه
+تو زندان هم ۴۷ زندانی که اکثرشون پدوفیل و یا متجاوز بودن رو هم به قتل میرسونه، با اینکه یک قاتل سریالیه تو برزیل بشدت براش احترام قائلن.
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9833
+
+<div align="center"><img src="files/post_9833_tasiyanc_9833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9832
+
+<div align="center"><video src="files/post_9832_tasiyanc_9832.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9832_tasiyanc_9832.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظه ی برخورد موشک به پایگاه آمریکا در اردن
+
+
+🩸@Tasiyanc
+</div>
 
 ## tasiyanc — post 9831
 
@@ -185,44 +254,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨تسنیم:
 آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوررری
-
-حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Low Ping Game & download
-IR server
-</div>
-
-## tasiyanc — post 9803
-
-<div align="center"><video src="files/post_9803_tasiyanc_9803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9803_tasiyanc_9803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
-
 
 🩸 @Tasiyanc
 </div>

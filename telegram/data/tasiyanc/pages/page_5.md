@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 9785
+
+<div align="center"><video src="files/post_9785_tasiyanc_9785.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9785_tasiyanc_9785.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کجا میتونی همچین آماری ببینی؟فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)
+😊
+😂
+
+میگی ن ؟ بیا تو چنلمون و ببین
+🔥
+@HUNTTER_BET @HUNTTER_BET
+@HUNTTER_BET @HUNTTER_BET
+@HUNTTER_BET @HUNTTER_BET
+</div>
+
+## tasiyanc — post 9782
+
+<div align="center"><video src="files/post_9782_tasiyanc_9782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9782_tasiyanc_9782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره عکس نودشو گذاشته والپیپر گوشی بعد گوشیو داده تعمیرکار🐸
+
++احتمالا میخواسته جور دیگه حساب کنه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9775
+
+<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی‌ها 😐
+پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
+
+یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9773
+
+<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
+
+بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
+
++ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9772
 
@@ -202,70 +261,5 @@ https://Winamit.com/fa
 + تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9751
-
-<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9750
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 🇮🇱 فوری، نتانیاهو در گفتگو با کانال ۱۴ اسرائیل:
-
-من رژیم ایران رو نابود خواهم کرد، اینو بهتون قول میدم و مطمئنم این کار شدنیه.
-اونا خیلی ضعیف تر از قبل شدن.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9747
-
-<div align="center"><img src="files/post_9747_tasiyanc_9747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

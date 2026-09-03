@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/12 15:19
+📅 آخرین بروزرسانی: 1405/06/12 18:54
 
 ---
+
+## tasiyanc — post 7660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
+</div>
+
+## tasiyanc — post 7659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودتون خوبین قربونتون برم؟
+</div>
+
+## tasiyanc — post 7658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدیتیشن تموم شد 😂
+</div>
+
+## tasiyanc — post 7655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی 🍑 🤬🍆
+</div>
 
 ## tasiyanc — post 7654
 
@@ -134,29 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این گل بشه تمومه
-</div>
-
-## tasiyanc — post 7625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
-</div>
-
-## tasiyanc — post 7623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
 </div>
 
