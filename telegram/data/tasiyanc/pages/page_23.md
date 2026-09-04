@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 9366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9365
+
+<div align="center"><img src="files/post_9365_tasiyanc_9365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+sa25
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥
+💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
 
 ## tasiyanc — post 9364
 
@@ -223,22 +246,5 @@ g25
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9345
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9344
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂این بازی خیلی این روزا ترند💥
-راحت میتونی پولت چند برابر کنی💖
-فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
 </div>
 

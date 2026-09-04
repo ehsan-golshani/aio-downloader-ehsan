@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 8569
+
+<div align="center"><img src="files/post_8569_tasiyanc_8569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 NEW prompt
+عکساتو زیباتر کن 🦦
+
+آموزش استفاده 👉
+
+دانلود Gemini 🤖
+
+دانلود ChatGpt 🤖
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8562
+
+<div align="center"><img src="files/post_8562_tasiyanc_8562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 پرامپت جدید برای کاپلی ها 🤖🤖
+
+
+Vertical 9:16 ultra-realistic smartphone selfie at night inside a home; single integrated couple portrait, exactly two people only: one young adult female and one young adult male together in the same scene, no split screen, no collage, no two-panel layout. built 100% from the unaltered facial features of the reference image; use the uploaded reference image as the ONLY identity source, preserve the original face 100% exactly, hair unchanged, facial hair unchanged, preserving facial identity, features, proportions, age, skin tone, skin texture, eyes, eyebrows, nose, lips, jawline, hairstyle and natural asymmetry with no reshaping, beautification, enhancement, smoothing, retouching or identity drift. Extreme close-up diagonal composition with both faces filling most of the frame: young adult female in the upper-right, long reference-faithful hair with a few strands crossing her cheek and lips, large glossy eyes looking into the camera, long lashes, glossy lips in a playful kissing expression, exposed shoulder entering from the left; young adult male in the lower half from a very close low angle, face partially cropped by the bottom edge, thick eyebrows, half-closed eyes and calm expression, with the woman’s pink-manicured hand near his hair. Simple pale wall background with one small pink two-heart emoji sticker near the upper-left, soft diffused evening frontal light, shallow depth of field, sharp facial focus, high-end cinematic photography, professional depth of field, natural/cinematic color grading, realistic skin texture, natural facial shadows, realistic lens rendering, no plastic skin, no over-retouching. Gender expression must come only from outfit, styling, pose, and body presentation; do not alter facial identity or hair. STRICT MASCULINE LOCK: strictly masculine styling only, menswear tailoring; structured shoulders, straighter silhouette, boxier fit; men’s fit, masculine proportions, sharp lines; minimal masculine accessory: metal watch / signet ring / thick chain; grooming consistent with the reference image; keep facial hair if present; if not, clean-shaven. no feminine elements, no makeup, no lipstick, no eyeliner, no nail polish, no long manicured nails no dress, no skirt, no corset, no lace lingerie vibe, no delicate jewelry, no handbag/purse no feminine pose or feminine body language. Keep both subjects as young adults, not teenage, not older adults; natural anatomy, realistic hands, realistic eyes, no distorted face, no extra fingers, no warped body, no extra people, no duplicate face, no cloned body, no text, no logo, no watermark. completely clean and soft background, smooth uniform gradient, no noise, no grain, no film grain, no sensor noise, no compression artifacts, no banding, perfectly smooth color transitions, extremely high and sharp image quality, soft clean bokeh, no noisy texture in the background
+
+
+Join As @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8560
 
@@ -210,18 +241,5 @@ Location 🤯 🇫🇷
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 انفجار در شیراز ، تایید میکنید شیرازیا؟
-</div>
-
-## tasiyanc — post 8516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اختلال اینترنت در سراسر ایران
-</div>
-
-## tasiyanc — post 8515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان. مشاهده فیلم 👉 @Tasiyanc 
-⭐️
 </div>
 

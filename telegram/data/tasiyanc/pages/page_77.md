@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 7722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مصر گل دوم رو زد
+</div>
+
+## tasiyanc — post 7721
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7720
 
@@ -139,55 +168,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه خبرا خوبید؟
-</div>
-
-## tasiyanc — post 7697
-
-<div align="center"><video src="files/post_7697_tasiyanc_7697.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7697_tasiyanc_7697.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-11 سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
- 
-Password @Tasiyanc 
-💘
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7696
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc _ SuperFast⚡.npvt
 </div>
 

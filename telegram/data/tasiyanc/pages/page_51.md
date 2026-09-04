@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
+
+## tasiyanc — post 8625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیك موشك به کویت
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8624
 
@@ -226,24 +240,5 @@ Fact @TASIYANC ✅
 واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8603
-
-<div align="center"><video src="files/post_8603_tasiyanc_8603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8603_tasiyanc_8603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
 </div>
 

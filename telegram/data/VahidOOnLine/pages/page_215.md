@@ -1,8 +1,150 @@
 # آرشیو کانال VahidOOnLine - صفحه 215
 
-📅 آخرین بروزرسانی: 1405/06/13 22:09
+📅 آخرین بروزرسانی: 1405/06/14 00:38
 
 ---
+
+## VahidOOnLine — post 252886
+
+<div align="center"><video src="files/post_252886_VahidOOnLine_252886.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252886_VahidOOnLine_252886.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تصاویر رسیده به ایران‌اینترنشنال نشان می‌دهد که هشتم مرداد، گروهی از پرسنل پرستاری بیمارستان فیاض‌بخش تهران در اعتراض به حجم بالای کار و مشکلات معیشتی اعتصاب کردند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252885
+
+<div align="center"><img src="files/post_252885_VahidOOnLine_252885.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️به گزارش عرب‌نیوز، جاسم محمد البدیوی، دبیرکل شورای همکاری خلیج فارس، حملات شبه‌نظامیان همسو با ایران در عراق به منافع نفتی عربستان سعودی را به‌شدت محکوم کرد.
+البدیوی این اقدامات را «تشدیدی خطرناک، نقض آشکار حاکمیت پادشاهی عربستان و تهدیدی مستقیم علیه امنیت و ثبات آن و نیز علیه صلح و امنیت منطقه‌ای» دانست.
+در بیانیه شورای همکاری آمده است: «ادامه این حملات تروریستی تهدیدی مستقیم علیه صلح و امنیت منطقه‌ای به شمار می‌رود و تلاش‌های بین‌المللی برای کاهش تنش‌ها و تقویت امنیت و ثبات را تضعیف می‌کند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252884
+
+<div align="center"><img src="files/post_252884_VahidOOnLine_252884.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیوان عالی کشور حکم اعدام بنیامین نقدی، ورزشکار ۲۶ ساله کیک‌بوکسینگ و موی‌تای و از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴ را تایید کرد. او پیش‌تر از سوی دادگاه انقلاب شیراز به اتهام «افساد فی‌الارض» به اعدام محکوم شده بود.
+
+مصطفی نیلی، وکیل او، گفت شعبه ۴۱ دیوان عالی کشور با رد فرجام‌خواهی، حکم اعدام را تایید کرده است. به گفته او، وکلا درخواست اعاده دادرسی خواهند داد.
+
+نقدی ۱۳ دی ۱۴۰۴ در شیراز، پس از شعله‌ور کردن محتویات یک کپسول آتش‌نشانی و حرکت به سمت ماموران جمهوری اسلامی بازداشت شد. کمی بعد، رسانه‌های حکومتی ویدیویی را با عنوان «اعترافات» او منتشر کردند.
+
+نیلی گفت اتهام اولیه «شروع به قتل» بود که بعدا به «محاربه» تغییر کرد. سپس برای او با اتهام‌های «محاربه»، «عضویت در گروه‌های برهم‌زننده امنیت کشور»، «اجتماع و تبانی علیه امنیت کشور» و «فعالیت تبلیغی علیه نظام» کیفرخواست صادر شد.
+
+درباره اتهام‌های «ایراد صدمه جسمانی به ماموران» و «حمل سلاح سرد» نیز قرار منع تعقیب صادر شد. دادگاه مجموعه اتهام‌ها را مصداق «افساد فی‌الارض» دانست و او را به اعدام محکوم کرد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️استاندار خوزستان: در حملات بامداد پنجشنبه آمریکا ۲ خوابگاه دانشگاه علوپزشکی و چمران اهواز آسیب دید
+
+♦️محمدرضا موالی‌زاده، استاندار خوزستان، روز پنجشنبه هشتم مرداد ماه در گفتگو با خبرنگاران اعلام کرد، طی حملات بامدادی آمریکا به خوزستان، مناطقی در آبادان، اروندکنار، شادگان و اهواز آسیب دیدند.
+موالی‌زاده همچنین گفت ۲ مجموعه خوابگاهی دانشجویی دانشگاه علوم پزشکی و چمران، در مرکز این استان نیز هدف حملات قرار گرفته است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252882
+
+<div align="center"><video src="files/post_252882_VahidOOnLine_252882.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252882_VahidOOnLine_252882.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی منتشرشده در شبکه‌های اجتماعی نشان‌دهنده برگزاری مراسم سوگواری برای ابوالفضل سپاهی است.
+
+بامداد سه‌شنبه حکم اعدام این شهروند بازداشت‌شده در اعتراضات دی‌ماه در اصفهان، با دستور قوه قضاییه جمهوری اسلامی اجرا شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252881
+
+<div align="center"><video src="files/post_252881_VahidOOnLine_252881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252881_VahidOOnLine_252881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+♦️نیروی هوافضای سپاه پاسداران، روز پنجشنبه هشتم مرداد ماه در بیانیه‌ای اعلام کرد، در واکنش به حمله آمریکا به دو خانه مسکونی در جزیره قشم، به پایگاه هوایی الازرق در اردن حمله کرده و سه فروند جنگنده اف-۳۵ آمریکا را منهدم کرده است.
+بر اساس این بیانیه، با چند موشک بالستیک به «رمپ استقرار و سوله تعمیراتی جنگنده‌های اف-۳۵» در پایگاه الازرق آمریکا حمله شده است. به گفته سپاه، علاوه بر انهدام کامل سه جنگنده در این حملات، به سه جنگنده دیگر آمریکایی نیز خسارت سنگینی وارد شده است.
+سپاه در ادامه ادعا کرد، در این حمله همچنین چند افسر و نیروی فنی و تعمیراتی آمریکا کشته شده‌اند.
+سپاه پاسداران در این اطلاعیه همچنین خطاب به مردم اردن مدعی شد که حملات خود را با هدف کمک به «رهایی سرزمین اسلامی اردن از اشغالگران آمریکایی» ادامه خواهد داد و تاکید کرد که «مبارزه» تا خروج آخرین نیروی آمریکایی از سرزمین‌های اسلامی ادامه خواهد داشت.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252880
+
+<div align="center"><video src="files/post_252880_VahidOOnLine_252880.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252880_VahidOOnLine_252880.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مخاطبان ایران‌اینترنشنال از شهرهای مختلف ایران روایت‌هایی از شنیده شدن صدای حملات در بامداد پنج‌شنبه ارسال کردند. این گزارش‌های مردمی از شدت انفجارها، زمان وقوع آن‌ها و تاثیرشان بر ساکنان شهرهای مختلف حکایت دارد.
+
+سبا حیدرخانی، عضو تحریریه ایران‌اینترنشنال، گزارش می‌دهد
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252879
+
+<div align="center"><video src="files/post_252879_VahidOOnLine_252879.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252879_VahidOOnLine_252879.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بن سبطی، پژوهشگر ایران و اسرائیل، در واکنش به اظهارات بنیامین نتانیاهو درباره تردید نسبت به مذاکرات جمهوری اسلامی و آمریکا گفت اسرائیل هیچ امیدی به این مذاکرات ندارد، زیرا حکومت ایران بارها این مذاکرات را نقض کرده است.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252878
+
+<div align="center"><video src="files/post_252878_VahidOOnLine_252878.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252878_VahidOOnLine_252878.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیوید دی‌روش، مدیر پیشین سیاستگذاری حوزه خلیج فارس در پنتاگون، گفت به نظر نمی‌رسد دونالد ترامپ بخواهد پرونده جمهوری اسلامی را نیمه‌تمام رها کند و ممکن است دامنه حملات را به زیرساخت‌های دومنظوره، از جمله پل‌ها، نیروگاه‌ها و حتی اهدافی در پایتخت ایران، گسترش دهد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 252877
+
+<div align="center"><video src="files/post_252877_VahidOOnLine_252877.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_252877_VahidOOnLine_252877.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی شیرازی، عضو تحریریه ایران‌اینترنشنال، درباره دور جدید حملات آمریکا به مواضع جمهوری اسلامی در ایران گفت به نظر می‌رسد پس از دو شب توقف حملات و به نتیجه نرسیدن مذاکرات، دونالد ترامپ به این نتیجه رسیده که جمهوری اسلامی بدون یک کارزار گسترده نظامی به پای میز مذاکرات بازنمی‌گردد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 252876
 
@@ -159,155 +301,6 @@
 
 🔹از قم پیام می‌دهم. تورم در بخش ساختمان‌سازی وحشتناکه، کسی هم پول نداره ساختمان بخره، کسی جرات شروع پروژه جدید نداره، با اینکه خرج زندگی ده برابر شده، دستمزد نیروهای اجرایی زیاد نشده تو یک‌سال گذشته از بس کار نیست.
 ‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252857
-
-<div align="center"><video src="files/post_252857_VahidOOnLine_252857.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252857_VahidOOnLine_252857.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️دو شهروند ساکن قشم در جنوب ایران، با انتشار ویدیویی در شبکه‌های اجتماعی از وضعیت این جزیره پس از حملات گسترده آمریکا در بامداد پنجشنبه هشتم مرداد روایت کردند.
-در یکی از این تصاویر، شهروندی اهل قشم، طلوع خورشید در شرق جزیره را هنگام برخاستن ستون دود از محل حملات آمریکا به تصویر کشید و آن را به حضور «خیر و شر» همزمان توصیف کرد.
-
-به گزارش این کاربر شبکه‌های اجتماعی، حملات از حدود ساعت ۳:۳۰ بامداد آغاز شد و چند نقطه در قشم هدف قرار گرفت.
-
-این روایت‌ها در حالی منتشر می‌شود که دونالد ترامپ، رئیس‌جمهوری آمریکا، پیش‌تر در واکنش به حملات موشکی جمهوری اسلامی به اردن گفته بود: «حالا ما سخت به ایران حمله می‌کنیم.»
-
-دانشگاه علوم پزشکی هرمزگان گزارش کرده است، در نتیجه حملات آمریکا به منطقه چاهتنگو در قشم، سه تن از اعضای یک خانواده کشته شده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252856
-
-<div align="center"><img src="files/post_252856_VahidOOnLine_252856.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️به گزارش العربیه، وزارت خارجه عربستان سعودی ظهر پنجشنبه اعلام کرد این کشور حملات مداوم ایران علیه اردن را به‌شدت محکوم می‌کند.
-این وزارتخانه افزود که عربستان همبستگی خود را با اردن اعلام می‌کند و از اقدام‌های این کشور برای پاسخ به «تجاوز ایران» حمایت می‌کند. اردن پیش‌تر از رهگیری موشک‌های ایران خبر داده بود.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252851
-
-<div align="center"><video src="files/post_252851_VahidOOnLine_252851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252851_VahidOOnLine_252851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روح‌الله رحیم‌پور، تحلیل‌گر سیاسی، درباره تاثیر تهدیدهای جمهوری اسلامی علیه کشورهای منطقه گفت هدف تهران نزدیک شدن کشورهای منطقه به خود بود، اما نتیجه معکوس داد و این تهدیدها به تشدید مواضع کشورهای منطقه علیه جمهوری اسلامی منجر شده است.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252850
-
-<div align="center"><video src="files/post_252850_VahidOOnLine_252850.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252850_VahidOOnLine_252850.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرتضی کاظمیان، عضو تحریریه ایران‌اینترنشنال، درباره از سرگیری حملات آمریکا به تاسیسات نظامی جمهوری اسلامی پس از وقفه‌ای چندروزه توضیح داد و از شکل‌گیری جنگی فرسایشی و بسیار پرهزینه برای مردم ایران، در نتیجه سیاست‌های ضدملی حکومت، گفت.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252849
-
-<div align="center"><video src="files/post_252849_VahidOOnLine_252849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252849_VahidOOnLine_252849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت خارجه نیوزیلند در پاسخ به ایران‌اینترنشنال بر مخالفت خود با اعدام و حمایت از حق اعتراض مسالمت‌آمیز در ایران تاکید کرد و استرالیا نیز با محکوم کردن اعدام مخالفان سیاسی از سوی جمهوری اسلامی، خواستار توقف فوری اعدام‌ها شد.
-
-گفت‌وگو با علیرضا محبی، خبرنگار ایران‌اینترنشنال
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252848
-
-<div align="center"><video src="files/post_252848_VahidOOnLine_252848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252848_VahidOOnLine_252848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کتی امیری‌یونسی، وکیل مدنی، درباره اعدام معترضان در ایران از سوی جمهوری اسلامی به ایران‌اینترنشنال گفت نهادهای بین‌المللی حقوق بشری در حال ثبت جنایت‌های جمهوری اسلامی هستند و عاملان این جنایت‌ها باید در آینده پاسخ‌گو شوند.
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252847
-
-<div align="center"><video src="files/post_252847_VahidOOnLine_252847.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252847_VahidOOnLine_252847.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم‌زمان با دور تازه اعدام معترضان در ایران، رهبر محافظه‌کاران مجلس سنای کانادا، به دولت و متحدان این کشور هشدار داد که از مدارا با جمهوری اسلامی دست بردارند. لئو هوساکوس، در پاسخ اختصاصی به ایران‌اینترنشنال درباره اعدام معترضان ایرانی گفت که این اعدام‌ها با هدف ارعاب مردمی طراحی شده که شجاعانه برای آزادی خود می‌جنگند.
-
-مهسا مرتضوی، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252846
-
-<div align="center"><img src="files/post_252846_VahidOOnLine_252846.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-♦️سخنگوی وزارت امور خارجه پاکستان روز پنج‌شنبه هشتم مرداد ماه اعلام کرد مذاکرات میان آمریکا و ایران با هدف کاهش تنش در خاورمیانه و درباره وضعیت تنگه هرمز همچنان ادامه دارد.
-طاهر اندربی، سخنگوی وزارت امور خارجه پاکستان، در گفتگو با خبرنگاران در اسلام‌آباد گفت: «مذاکرات میان طرف‌ها در جریان است، به‌ویژه درباره تنگه هرمز و کاهش تنش.»
-پاکستان در ماه‌های اخیر تلاش کرده است در میان تنش‌های فزاینده میان ایران و آمریکا نقش میانجی را ایفا کند. این اظهارات در حالی مطرح می‌شود که درگیری‌ها در منطقه بار دیگر شدت گرفته و آمریکا و ایران حملات متقابلی انجام داده‌اند.
-‌🇸🇦 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252845
-
-<div align="center"><video src="files/post_252845_VahidOOnLine_252845.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_252845_VahidOOnLine_252845.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با وجود مشارکت عربستان سعودی در حملات مشترک با آمریکا علیه شبه‌نظامیان مورد حمایت جمهوری اسلامی در عراق، ریاض همچنان بر کاهش تنش با تهران تاکید دارد.
-
-هم‌زمان، وزیر دفاع عربستان سعودی در دیدار با معاون رییس‌جمهوری آمریکا، پیام محمد بن سلمان درباره جنگ با ایران و تحولات منطقه را به کاخ سفید منتقل کرد.
-
-نیلوفر منصوری، خبرنگار ایران‌اینترنشنال گزارش می‌دهد
-‌🏁 🇬🇧 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 252844
-
-<div align="center"><img src="files/post_252844_VahidOOnLine_252844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️نتانیاهو: با شکاف عمیقی که پس از کشتار دی‌ماه بین مردم و رژیم ایجاد شد؛ حکومت ایران در نهایت سقوط می‌کند
-
-♦️بنیامین نتانیاهو، نخست‌وزیر اسرائیل در پاسخ به مجری ای‌بی‌سی که به او گفت طبق گزارش نیویورک‌تایمز شما به ترامپ گفته بودید که ظرفیت موشکی حکومت ایران ظرف چند هفته نابود می‌شود و تغییر رژیم ممکن است رخ دهد، گفت: این ارزیابی اولیه من نبود و این بیان نادرستی از آنچه گفتم است.
-
-برآورد من این بود که باید برای جلوگیری از دستیابی ایران به سلاح هسته‌ای اقدام کنیم. نتانیاهو گفت، من گفته بودم که می‌توانیم شرایط را برای ضعیف‌تر شدن رژیم فراهم کنیم اما بر عهده مردم ایران خواهد بود که سرنوشت خود را تعیین کنند. او درباره احتمال تغییر حکومت در ایران گفت: «فکر می‌کنم ایران از همیشه ضعیف‌تر و اسرائیل از همیشه قوی‌تر است، اما نمی‌توانم بگویم رژیم هم‌اکنون فروپاشیده است.» نتانیاهو گفت: بگذارید یک پیش‌بینی کنم؛ پس از چنین شکاف بزرگی که به دنبال آن قتل‌عام (کشتار ۱۸ و ۱۹ دی‌ماه ۱۴۰۴) بین مردم و رژیم ایجاد شده، فکر می‌کنم که رژیم ایران در نهایت سقوط خواهد کرد.
-
-نتانیاهو هشدار داد اگر ایران، اسرائیل را هدف حمله قرار دهد، «اشتباهی بسیار خطرناک» مرتکب خواهد شد و اسرائیل «بسیار شدید» پاسخ خواهد داد.
-او در پایان گفت: «هدف من این است که مطمئن شوم ایران با این حکومت به سلاح هسته‌ای دست پیدا نمی‌کند. این موضوعی است که من و رئیس‌جمهور ترامپ هر دو بر سر آن توافق داریم، زیرا در آن صورت جهان متفاوتی خواهد بود.»
-‌🇸🇦 Indypersian
 
 🤖 @VahidOOnLine
 </div>

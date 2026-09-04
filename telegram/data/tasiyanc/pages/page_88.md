@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 7309
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ   OpenVpn   📶
+
+تست شده تمام نتها 🛜🛜🛜
+
+دانلود 📱 Android  🕹  iOS
+
+آموزش اتصال 
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7308
 
 ## tasiyanc — post 7307
 
@@ -178,24 +195,4 @@ hysteria2://18cf8030-1ceb-4b7d-8c0c-c036413c144e@202.61.205.86:4433?security=tls
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪⚡ Fast 🚀.npvt
 </div>
-
-## tasiyanc — post 7280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایر Windscribe 🔐
-
-🟢حجم و کاربر نامحدود 🟢
-
-تمام اپراتورا 🔺
-
-مناسب گیم 🎲 دانلود⬇️ وب‌گردی🔍 جمینای
-
-دانلود ویندسکرایب : Android 📱  iOS 🕹
-
-آموزش اتصال به سرور ⏩
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7279
 

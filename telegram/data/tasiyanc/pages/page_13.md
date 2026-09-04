@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/13 22:11
+📅 آخرین بروزرسانی: 1405/06/14 00:40
 
 ---
+
+## tasiyanc — post 9613
+
+<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
+
++ قهرمان ایران مسعود ذات‌پرور هست نه تو
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9612
+
+<div align="center"><video src="files/post_9612_tasiyanc_9612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9612_tasiyanc_9612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 امروز ۴ شهریور زادروز کوروش بزرگ هست 🤴
+
++ وطن پرستی شفا نمی‌دهد ، شرافت میدهد !
+
+🩸 @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9611
 
@@ -304,33 +330,5 @@ til.ac/0L4vyJf
 وقتی حال همه بده نایی نمی‌مونه برا فعالیت ، جوانی ما در این مملکت الکی بگا رفت ، طفلی دهه نودی ها ، هشتادی ها و این نوجوان‌های تازه بدوران رسیده ، باز ما به یه چیزایی رسیدیم .. ولی اینا حقشون این نبود چیز های عادی براشون بشه آرزو « دوستون دارم امیدوارم حالتون خوب باشه»
 
 +کانفیگا ضعیف بشه میزارم .
-</div>
-
-## tasiyanc — post 9583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡ Number One Pre.npvt
-</div>
-
-## tasiyanc — post 9582
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
 </div>
 
