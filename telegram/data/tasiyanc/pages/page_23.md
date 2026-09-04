@@ -1,8 +1,133 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9346
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂این بازی خیلی این روزا ترند💥
+راحت میتونی پولت چند برابر کنی💖
+فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
+</div>
+
+## tasiyanc — post 9343
+
+<div align="center"><video src="files/post_9343_tasiyanc_9343.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9343_tasiyanc_9343.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr25
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
+
+## tasiyanc — post 9342
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای همراه اول و بقیه اوپراتور ها
+
+ساب نامحدود - ارسالی از GTXll
+
+https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
+
+آموزش ویدیویی اضافه کردن ساب 💘
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9338
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
+🎲 بازگشت هفتگی 🤩🤩 درصد
+🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
+
+🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
+👇🏻👇🏻
+🎲  🌐winro.io🎲
+
+کانال اخبار و هدایا👇🏻
+🌐Telegram
+</div>
 
 ## tasiyanc — post 9337
 
@@ -150,126 +275,5 @@ https://sub.connecti24.info/roKRodKdpbqkdXXk
 ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9317
-
-<div align="center"><img src="files/post_9317_tasiyanc_9317.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-g24
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نپسترنت📱📍
-
-•آموزش اتصال ⚡️
-
-🔴پینگ نگیرید
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡ناو هواپیمابر ابراهام لینکلن پس از بیش از 260 روز عملیات و در پی بررسی شرایط گزارش‌شده، این ناو در حال بازگشت به خانه است
-
-@Tasiyanc 
-☑️
-</div>
-
-## tasiyanc — post 9311
-
-<div align="center"><video src="files/post_9311_tasiyanc_9311.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9311_tasiyanc_9311.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات دیوانه وار اسرائیل به جنوب لبنان
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 15، روز آرامش و ریلکس کردنه.
-
-تو این روز باید استرس رو بریزین دور، و در کمال آرامش، از لحظه به لحظه زندگی، لذت ببرین.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست افرادی که در پویش جان فدا ثبت‌نام کرده بودن توسط هکرهای اسرائیلی منتشر شد
-تا این لحظه مشخصات 4.7 میلیون نفر با اسامی کامل ، کد ملی ، شماره تلفن ، شغل ، تخصص و محدوده زندگی انتشار یافته است
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
 </div>
 

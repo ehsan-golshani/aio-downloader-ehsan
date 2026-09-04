@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9266
+
+## tasiyanc — post 9265
+
+## tasiyanc — post 9264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شرایط
+
+میو میکنید ، ویسشو میدید پیوی ادمین تو کانال میزاریم اگر ریکشن زیاد بگیرید برنده میشید
+
+جایزه
+نفر اول: کانفیگ نامحدود اوپن VPN دو کاربر - وایرگارد
+
+نفر دوم وایرگارد - ویتوری
+
+نفر سوم وایرگارد
+
+Admin : @Tssub
+</div>
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
+
+## tasiyanc — post 9262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+در صورت ارور چند بار بزنید
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9258
+
+<div align="center"><video src="files/post_9258_tasiyanc_9258.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9258_tasiyanc_9258.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز تلگرام وارد ۱۳ سالگیش شد 
+📱
+
+
+تولدت مبارک بهترین پیام‌رسان جهان 
+💖
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9257
+
+<div align="center"><video src="files/post_9257_tasiyanc_9257.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9257_tasiyanc_9257.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
+
+✅اسپانسر لیگ انگلستان
+
+👑 امکان شارژ و برداشت با کارت بانکی
+
+⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....
+📢
+
+😀Telegram Channel
+👇
+https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9256
+
+<div align="center"><img src="files/post_9256_tasiyanc_9256.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤میخوای مسابقات فوتبال پیش بینی کنی؟!
+
+🥇پس نیاز داری به یه سایت بین المللی و معتبر
+🥇
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+r23
+
+🔔کانال دربی بت :
+👇
+
+✅https://t.me/+c5jwC3lt9z45NTE0
+</div>
 
 ## tasiyanc — post 9255
 
@@ -139,128 +270,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 حمام‌ها کپک زده، توالت‌ها خراب شده، ماشین‌های لباسشویی هفته‌هاست که از کار افتادن، آب گرم نیست و غذا هم که بعضی وقت‌ها فقط نصف لیوان برنج و دو تا نونِ تورتیلاست، دیگه حتى صابون و خمیردندون هم ندارن!
 
 @Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9239
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📌فقط ۲۴ ساعت عضویت رایگان باز شده از همین امشب چک کن ببین چجوری میشه پول دراورد💵💸
-🛒این فرصت محدود رو از دست ندید
-https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9238
-
-<div align="center"><video src="files/post_9238_tasiyanc_9238.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9238_tasiyanc_9238.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💯تنها کانالی که حتما باید توش عضو باشی
-
-✅چون راه پول درآوردن رو بهت نشون میده
-
-📝 حتما آمار کانالشو ببینید فعلا به مدت محدود عضویت رایگان باز شده فقط تا پایان فردا شب🚫⚠️
-
-نمونه آموزش بازی Apple of Furtuneکه سودش تضمینیه رو براتون گذاشتیم پیش بینی های معتبر فوتبالی هم دارن z22:
-📶https://t.me/+MT03hkV78q9kMTc0
-📶https://t.me/+MT03hkV78q9kMTc0
-</div>
-
-## tasiyanc — post 9237
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9232
-
-<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
-جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅اپلیکیشن حرفه ای اندروید سایت بین المللی دربی بت
-✅اسپانسر لیگ انگلستان
-👑 امکان شارژ و برداشت با کارت بانکی
-⚠️ برای ورود فیلترشکن روشن کرده روی کانادا یا سنگاپور یا آلمان و ....📢
-😀Telegram Channel👇
-https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9230
-
-<div align="center"><img src="files/post_9230_tasiyanc_9230.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😤میخوای مسابقات فوتبال پیش بینی کنی؟!
-🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
-
-⛔دربی بت همون انتخاب  100%
-
-💎ویژگی های سایت جهانی Derby Bet:
-⬅️امکان شارژ امن با کارت بانکی
-⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
-⬅️پر اپشن ترین سایت فعال در ایران
-⬅️تسویه حساب کمتر از 5 دقیقه
-⬅️برگشت بخشی از باخت به صورت هفتگی
-⭐دارای لایسنس و مجوز anjuan
-
-🚨کد هدیه ثبت نام:GG007
-
-⚠️برای دانلود اپلکیشن کلیک کنید👉
-r22
-🔔کانال دربی بت :👇
-✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
-
-@Tasiyanc ⭐️
 </div>
 

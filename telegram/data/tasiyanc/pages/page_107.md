@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 6634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+غربالگری چنل ، انگل زدایی چنل ✅
+</div>
+
+## tasiyanc — post 6632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
+
+## tasiyanc — post 6630
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Homayoun Shajarian & Sohrab Pournazeri – Irane Man
+</div>
+
+## tasiyanc — post 6629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد فرزندان ایران 🖤 ۱۸ & ۱۹
+</div>
+
+## tasiyanc — post 6622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرعت سرویس ساب نامحدود ک براتون گذاشتیم 🚀 داخل چنل پروکسی پین شده ❤️ https://t.me/+v0wRP5SGNrg5MThk 👆
+</div>
+
+## tasiyanc — post 6621
+
+<div align="center"><img src="files/post_6621_tasiyanc_6621.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
+
+## tasiyanc — post 6620
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم https://t.me/+v0wRP5SGNrg5MThk
+</div>
+
+## tasiyanc — post 6618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب نامحدود سرعت موشکی در چنل پروکسی پین کردیم
+https://t.me/+v0wRP5SGNrg5MThk
+</div>
+
+## tasiyanc — post 6617
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+
+vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=auto&path=%2F&security=reality&encryption=none&pbk=QLamtir13xwzyWVlPRN3C7lw_fhSBU7X4H3A8zAl5Fg&fp=chrome&type=xhttp&sni=www.yahoo.com&sid=6f3192#T.me%2FTasiYanc%20%E2%9A%A1%F0%9F%9A%80
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6616
 
@@ -110,99 +170,5 @@ VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ سیریک و قشم مورد حمله قرار گرفت
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6576
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پخت پز ب عشق خودتون ، قطعی باشه نباشه پیش همیم🩷🤝
-</div>
-
-## tasiyanc — post 6575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6574
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آمریکا میخواد بزنه تقصیر منه ریکشن نمیزنین؟
-</div>
-
-## tasiyanc — post 6573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی متد جدید همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-PASSWORD 🔑 : @Tasiyanc
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6570
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ⭕️هگست : اگر لازم باشد با بمب‌ها مذاکره کنیم، با بمب‌ها مذاکره خواهیم کرد.
-ما در این کار بسیار ماهریم
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تکمیلی
-
-🇺🇸⭕️ هگست:
-ایران فرصتی برای انجام یک معامله عالی دارد. آنها تمایلی به انجام آن نداشته‌اند. بمب‌ها به صورت ضربه‌ضربه بر روی تأسیسات کلیدی در ایران از سوی آمریکا فرود خواهند آمد؛ این کار برای شروع مجدد جنگ نیست بلکه برای تعیین شرایط یک معامله است.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
-وزیر جنگ آمریکا پیت هگست : امشب تاسیسات ایران را بمباران خواهیم کرد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk
-گپ تاسیان - تحلیلگران جنگ بیان
-</div>
-
-## tasiyanc — post 6566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-4سرور سرعتی مناسب همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

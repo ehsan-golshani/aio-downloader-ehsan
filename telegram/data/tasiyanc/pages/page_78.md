@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 7660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
+</div>
+
+## tasiyanc — post 7659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودتون خوبین قربونتون برم؟
+</div>
+
+## tasiyanc — post 7658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدیتیشن تموم شد 😂
+</div>
+
+## tasiyanc — post 7655
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عرزشی 🍑 🤬🍆
+</div>
+
+## tasiyanc — post 7654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
+</div>
+
+## tasiyanc — post 7653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فستیوال این مادرقهبه ها تموم نشد؟
+</div>
+
+## tasiyanc — post 7652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☕⚡Mocha Fast.npvt
+</div>
+
+## tasiyanc — post 7651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Canada 🇨🇦 & Morocco 🇲🇦 🏆
+
+کی میبره
+</div>
+
+## tasiyanc — post 7645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی İnjector  📶
+
+2 سرور حجم و کاربر نامحدود ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜
+
+دانلود برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+آموزش اتصال به اینجکتور ✨
+
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+</div>
 
 ## tasiyanc — post 7643
 
@@ -89,72 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این گل بشه تمومه
-</div>
-
-## tasiyanc — post 7625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
-</div>
-
-## tasiyanc — post 7623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات فقید 2 , استرالیا 1
-</div>
-
-## tasiyanc — post 7622
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید برد تیم بزرگ مصر میراث انور سادات فقید رفیق واقعی ایرانیان
-</div>
-
-## tasiyanc — post 7621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
-</div>
-
-## tasiyanc — post 7620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد @TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7619
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد
-@TasiyanAploadBot
-</div>
-
-## tasiyanc — post 7618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید گپ کارتون دارم
-https://t.me/+DhVkjFb6qhZmYTFk
-</div>
-
-## tasiyanc — post 7617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 کانفیگ اختصاصی نت مود 🚀
-
-سرور  سرعتی پرمیوم ⚡️
-
-آموزش اتصال ⛓
-
-دانلود برنامه 🕹
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

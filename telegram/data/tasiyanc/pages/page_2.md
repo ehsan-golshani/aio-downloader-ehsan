@@ -1,8 +1,133 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9883
+
+<div align="center"><video src="files/post_9883_tasiyanc_9883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9883_tasiyanc_9883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گوشی اقتصادی A17 سامسونگ از ۱۵ میلیون پارسال، شد ۹۷ میلیون
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9881
+
+<div align="center"><img src="files/post_9881_tasiyanc_9881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+sg12
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠طبق گزارش ها؛
+روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
++ دلیلشم انجام برخی کارهای +۱۸ بوده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9878
+
+<div align="center"><img src="files/post_9878_tasiyanc_9878.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠عکسی که میبینید متعلق به خودکشی دسته جمعی جونزتاون گویان در سال ۱۹۷۸ هست.
+
+جیم جونز، رهبر یه فرقه مذهبی که به مرور کنترل زیادی روی زندگی اعضای فرقه پیدا کرده بود، تو این منطقه اعضا رو با تهدید و زور حبس میکرد و با ضرب و شتم به کار اجباری وادار میکرد.
+
+یه نماینده از کنگره آمریکا به اسم لئو رایان برای بازدید به جونزتاون رفت و یه عده از مردم اونجا ازش درخواست کردن که یواشکی از جونزتاون خارجشون کنه. جیم جونز که از این قضیه مطلع شده بود، رایان و ۴ همراهش رو حین خروج با شلیک گلوله به قتل رسوند.
+
+بعد از این اتفاق، جونز دستور مرگ دسته جمعی داد و گفت این آخرین اعتراض به دنیای فاسد و ظالم هست.
+به اعضای فرقه نوشیدنی انگور حاوی سیانور داده شد. یه عده خودشون نوشیدن و یه عده هم که مقاومت کردن با زور و اجبار مجبور به نوشیدن شدن. تعدادی هم که خواستن فرار کنن، با شلیک نیروهای امنیتی وابسته به جونز کشته شدن.
+
+اون روز مجموعا ۹۱۸ نفر تو جونزتاون کشته شدن که ۲۷۰ نفرشون بچه بودن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9877
+
+<div align="center"><video src="files/post_9877_tasiyanc_9877.dat" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9877_tasiyanc_9877.dat" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9876
+
+<div align="center"><video src="files/post_9876_tasiyanc_9876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9876_tasiyanc_9876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠خدمه‌ی نام هواپیمابر آبراهام لینکلن که چندین ماه در خلیج فارس و جنگ با جمهوری اسلامی حضور داشتن ، به تایلند رسیدن و رفتن چند روزی عشق حال کنن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9875
+
+<div align="center"><video src="files/post_9875_tasiyanc_9875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9875_tasiyanc_9875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با انجام دادن این حرکات ورزشی، قوز کمرتان را اصلاح کرده و درد شانه‌ را برطرف کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9873
 
@@ -156,190 +281,6 @@ sa11
 بعد از آزاد شدنش افسردگی میگیره که چرا اینا منو نکردن حتما خوشگل نیستم و ...
 بخاطر همین میره چندین مدل عمل زیبایی انجام میده و بعدش یه مربی پرورش اندام اسرائیلی بهش داروی بیهوشی میده و بهش تجا*وز میکنه.
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ (شاخ توییتر) :
-
-اکنون که این منطقه تحت کنترل ایالات متحده قرار دارد، آیا باید نام تنگه هرمز را به «تنگه ترامپ» تغییر دهیم؟ درست مانند خود آمریکا، این منطقه از همیشه داغ‌تر خواهد بود!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9859
-
-<div align="center"><img src="files/post_9859_tasiyanc_9859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری وزارت بهداشت هشدار داد
-
-ویروس جدیدی که مردم درگیرش شدن کروناست که دوباره شیوع پیدا کرده توی کشور!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9857
-
-<div align="center"><video src="files/post_9857_tasiyanc_9857.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9857_tasiyanc_9857.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - Gemini & ChatGpt- اینستاگرام 
-📸 یوتوب 
-🎥
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-درصورت ارور چند بار بزنید 
-⭕️
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9856
-
-<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
-
-ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9855
-
-<div align="center"><video src="files/post_9855_tasiyanc_9855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9855_tasiyanc_9855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید فکر کنید پسرا دنبال زیبایی و هیکل خوبن‌، ولی تنها چیزی که یه مرد میخواد همچین دختریه که تو هر شرایطی کنارش باشه.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9854
-
-<div align="center"><video src="files/post_9854_tasiyanc_9854.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9854_tasiyanc_9854.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9853
-
-<div align="center"><video src="files/post_9853_tasiyanc_9853.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9853_tasiyanc_9853.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-sg11
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9849
-
-<div align="center"><video src="files/post_9849_tasiyanc_9849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9849_tasiyanc_9849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9848
-
-<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
 
 💋 @Tasiyanc
 </div>

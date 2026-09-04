@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9468
+
+<div align="center"><video src="files/post_9468_tasiyanc_9468.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9468_tasiyanc_9468.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
+
+https://t.me/+Mcyp10mcfFA2MTM0
+جوین بدید
+</div>
+
+## tasiyanc — post 9461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+دانلود اندروید 🕹
+
+
+دانلود آیفون 📱
+
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
+
+## tasiyanc — post 9458
+
+<div align="center"><img src="files/post_9458_tasiyanc_9458.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
+
+⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 🔥
+
+💵با عمو خسرو، آروم آروم به آرزوهات برس
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+J_q7c-COftQzOGM0
+https://t.me/+J_q7c-COftQzOGM0
+</div>
+
+## tasiyanc — post 9457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه اتکر شروع بکار کرد کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن عضو بشید به پیام پین شده توجه کنید میگم چیکار میکنیم https://t.me/+Iayni3h0j24yYzE0
+</div>
+
+## tasiyanc — post 9456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه اتکر شروع بکار کرد
+
+کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن
+عضو بشید به پیام پین شده توجه کنید
+میگم چیکار میکنیم
+
+https://t.me/+Iayni3h0j24yYzE0
+</div>
 
 ## tasiyanc — post 9455
 
@@ -212,120 +343,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9442
-
-<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
-
-وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
-انگیزش قتلش هم اختلافات خانوادگی بوده.
-‌
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9441
-
-<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Decarys 🔥.ovpn
-</div>
-
-## tasiyanc — post 9439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیرم و گاهی دلم یاد جوانی می‌کند
-بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
-
-نفری یه بیت بگید تو کامنت
-</div>
-
-## tasiyanc — post 9438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ :
-
-دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
-
-محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9436
-
-<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
-
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 9434
-
-<div align="center"><img src="files/post_9434_tasiyanc_9434.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☝فاصله ی تو با پول دراوردن فقط یک کلیک
-
-🔺فقط فوتبال تماشا نکن از پبشبینی فوتبال پول در بیار چطوری ⁉️ بیا تا بهت بگم
-
-⚡️ پلتفرم جهانی ریتزوبت به کاربران فارسی زبان خودش 100% هدیه شارژ اولیه میده
-
-🔺 یعنی اگه 1.000.000 داشته باشی 1.000.000 هم ریتزوبت بهت میده
-
-☑️ این یه بیزنس بین المللی و جهانی شرط بندی اما در محیط امن و سالم
-
-🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇g27
-
-⚡️@RitzoBetsupports
 </div>
 

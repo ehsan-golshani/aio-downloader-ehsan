@@ -1,8 +1,208 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9666
+
+<div align="center"><video src="files/post_9666_tasiyanc_9666.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9666_tasiyanc_9666.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9665
+
+<div align="center"><img src="files/post_9665_tasiyanc_9665.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولینگو (معروفترین برنامه آموزش زبان جهان) اعلام کرد آزمون‌های این برنامه از ۱ سپتامبر (۱۰ شهریور) برای ایرانیا متوقف خواهد شد و دیگه از ایرانیا آزمون نمیگیره.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9664
+
+<div align="center"><img src="files/post_9664_tasiyanc_9664.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 بهترین برندها در هر زمینه دیجیتال طبق رضایت استفاده کننده‌ها ..
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9663
+
+<div align="center"><video src="files/post_9663_tasiyanc_9663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9663_tasiyanc_9663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پشت پرده ی تلخ داستان کارتون پلنگ صورتی 💔
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9661
+
+<div align="center"><video src="files/post_9661_tasiyanc_9661.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9661_tasiyanc_9661.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید نسخه جدید
+
+دانلود آیفون نسخه جدید
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمنای 
+🤖
+
+
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9659
+
+## tasiyanc — post 9658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9657
+
+<div align="center"><video src="files/post_9657_tasiyanc_9657.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9657_tasiyanc_9657.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9656
+
+<div align="center"><img src="files/post_9656_tasiyanc_9656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 سوغاتی شهرهای ایران در قدیم
+
++شما کدوم شهری سوغاتتون چیه؟
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9653
 
@@ -235,177 +435,5 @@ til.ac/0L4vyJf
 🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9636
-
-<div align="center"><video src="files/post_9636_tasiyanc_9636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9636_tasiyanc_9636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - وبگردی
-
-تست شده تمام نت‌ها
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-⭕️ در صورت ارور چند بار بزنید
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9634
-
-<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی
-- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9632
-
-<div align="center"><img src="files/post_9632_tasiyanc_9632.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃
-😃
-         
-😃
-😃😃
-😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9631
-
-<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آپدیت جدید برنامه نپستر را دانلود کنید
-
-کانفیگ حجم نامحدود نپسترنت
-سرور سرعتی مولتی لوکیشن
-
-تست شده روی همه نت ها ⚡️
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9630
-
-<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
-
-این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9628
-
-<div align="center"><img src="files/post_9628_tasiyanc_9628.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📹20 تا فیلم برتر سینمایی پیشنهادی که میتونید ببینید !
-در دو ژانر متفاوت « عاشقانه و اکشن »
-
-سایت پیشنهادی دانلود و پخش بدون سانسور
-https://www.novigrad.top
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
-😉
-
-با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
-🔥
-
-بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
-JOIN JOIN JOIN
-JOIN JOIN JOIN
 </div>
 

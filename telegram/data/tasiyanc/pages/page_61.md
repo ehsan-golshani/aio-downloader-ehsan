@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 8287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی با عرزشی بحث میکنم احساس میکنم نجس میشم و مثل این میمونه ۱ ماه تو تابستون نری حموم
+</div>
+
+## tasiyanc — post 8286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
+
+## tasiyanc — post 8285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
+</div>
+
+## tasiyanc — post 8284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+JAVID SHAH 👑
+</div>
+
+## tasiyanc — post 8281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+JAVID SHAH 👑
+</div>
+
+## tasiyanc — post 8280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ، ولی درختان هنوز به تبر رای میدادن چون اون قانعشون کرده بود دستش چوبیه پس از خودشونه :) @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگل داشت نابود میشد ،
+ولی درختان هنوز به تبر رای میدادن
+چون اون قانعشون کرده بود
+دستش چوبیه پس از خودشونه :)
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8278
+
+<div align="center"><video src="files/post_8278_tasiyanc_8278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8278_tasiyanc_8278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8277
 
@@ -97,95 +164,5 @@
 🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
-
-بله 👍 نه 👎
-</div>
-
-## tasiyanc — post 8262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💪🚨 ترامپ:
-توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8258
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت تون چطوره؟
-</div>
-
-## tasiyanc — post 8255
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-6سرور سرعتی پرمیوم متد جدید ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8252
-
-<div align="center"><img src="files/post_8252_tasiyanc_8252.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل
-فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
-
-مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8249
-
-<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چی میشه گفت واقن به اینا :)
-
-کامنت آزاد ☺️
-
-@Tasiyanc ⭐️
 </div>
 

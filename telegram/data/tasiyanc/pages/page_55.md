@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 8456
+
+<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
+
+@TASIYANC⭐️
+</div>
+
+## tasiyanc — post 8455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
+</div>
+
+## tasiyanc — post 8454
+
+<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
+
+## tasiyanc — post 8451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه اسپانیا از کون اورد
+</div>
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
 
 ## tasiyanc — post 8447
 
@@ -88,61 +151,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
-</div>
-
-## tasiyanc — post 8434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
-</div>
-
-## tasiyanc — post 8433
-
-<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
-</div>
-
-## tasiyanc — post 8429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
 </div>
 

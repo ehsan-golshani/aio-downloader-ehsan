@@ -1,8 +1,116 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 7915
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅⚡️ WAR.npvt
+</div>
+
+## tasiyanc — post 7914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7910
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ 🌟 : در صورتی ک جمهوری اسلامی منو ترور کنه بلافاصله هزاران موشک تا یکسال آماده شلیک هستند
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرماندار پاکدشت:
+
+🔻صدای انفجارهایی که چندی پیش در شرق استان تهران شنیده شد، نتیجه یک عملیات کنترل شده برای خنثی سازی مواد منفجره بود.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 7902
+
+<div align="center"><img src="files/post_7902_tasiyanc_7902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاکدشت - پارچین
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7897
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🦅 FALCON VIP ⚡.npvt
+</div>
+
+## tasiyanc — post 7896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7895
+
+<div align="center"><img src="files/post_7895_tasiyanc_7895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مارک لوین از ارتش امریکا خواسته این ساختمان تخریب شود.
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7894
+
+<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
+
+
+@Tasiyanc ⭐️
+#Navid
+</div>
 
 ## tasiyanc — post 7893
 
@@ -122,173 +230,5 @@
 - ربکا | دافنه دوموریه
 ✔️ @Tasiyanc 🔋
 #Petros
-</div>
-
-## tasiyanc — post 7876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حس میکنم نه دیگه ما می‌دونیم چی میشه، نه جمهوری اسلامی نه ترامپ. سرنوشت‌مون رو دادن دست کارگردان سریال فرام.
-@Tasiyanc 
-⭐️
-#Navid
-</div>
-
-## tasiyanc — post 7874
-
-<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
-
-
-@Tasiyanc 
-😌
-#Tina
-</div>
-
-## tasiyanc — post 7868
-
-<div align="center"><video src="files/post_7868_tasiyanc_7868.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7868_tasiyanc_7868.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 
-📱
-
-3سرور  سرعتی پرمیوم 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال روی اندروید 
-⛓
-آموزش اتصال روی ویندوز  
-⛓
-
-دانلود برنامه اندروید 
-🕹
-
-دانلود برنامه برای ویندوز 
-💻
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 جمینای 
-🤖
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7865
-
-<div align="center"><video src="files/post_7865_tasiyanc_7865.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7865_tasiyanc_7865.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ پر سرعت نت مود 
-👉
-</div>
-
-## tasiyanc — post 7859
-
-<div align="center"><video src="files/post_7859_tasiyanc_7859.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7859_tasiyanc_7859.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   
-📶
-
-تست شده تمام نتها 
-🛜
-🛜
-🛜
-
-دانلود 
-📱 Android  
-🕹  iOS
-
-آموزش اتصال 
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ختم کلام
-
-از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
-
-مجموعه تاسیان ❤️‍🔥
-
-آدرس پابلیک
-@Tasiyanc
 </div>
 

@@ -1,8 +1,117 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 8153
+
+<div align="center"><img src="files/post_8153_tasiyanc_8153.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢بوسیدن کچل ها باعث افزایش طول عمر دخترا میشه.
+
+محققای هاروارد بعد از سال‌ها تحقیق به این نتیجه رسیدن که دخترا با بوسیدن پسرای کچل عمرشون بیشتر میشه؛ تازه میگن میزان افزایش عمر هم با درجه کچلی نسبت مستقیم داره.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8152
+
+<div align="center"><img src="files/post_8152_tasiyanc_8152.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه سایت کاربردی معرفی کنم:
+
+اگر در پروسه یادگیری زبان هستید یا یه روز تصمیم گرفتید زبان شروع کنید،
+یکی از سایت‌هایی که می‌تونه کمک بزرگی در استفاده درست از دایره واژگان انگلیسی شما کنه، همین سایت YouGlish هست.
+
+تو این سایت هر کلمه‌ای که سرچ کنید، تمام لحظاتی که در ویدئوهای یوتیوب از این کلمه استفاده شده رو نشونتون میده تا با کاربرد صحیحش در مکالمات آشنا بشید.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زندگی در میان گروهی نادان دشوار است ، اما زندگی در جایی که قدرت در دست همان نادان ها باشد ، هولناك است
+آلبر کامو
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8148
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 8145
+
+<div align="center"><img src="files/post_8145_tasiyanc_8145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏔 روستای کندوان تبریز از معدود روستاهای صخره‌ای جهان است طبیعت زیبا، آب‌وهوای خنک و معماری منحصربه‌فرد، کندوان را به یکی از محبوب‌ترین جاذبه‌های گردشگری ایران تبدیل کرده است.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8142
+
+<div align="center"><img src="files/post_8142_tasiyanc_8142.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو Ester هستن زید مدل اسپانیایی امباپه بازیکن رئال 🦥
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8140
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گزارش هایی مبنی بر اینکه حرم امام رضا اتیش گرفته تاییذ و تکذیب نمیشه @TasiyanProxy✅
+</div>
+
+## tasiyanc — post 8138
+
+<div align="center"><video src="files/post_8138_tasiyanc_8138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8138_tasiyanc_8138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈یکی از مقام‌های طالبان که خودش 63 ساله بوده، یه دختر 14 ساله به اسم نازگل رو میخره و باهاش ازدواج می‌کنه.
+
+و اما بعد از چند روز، این دختر معصوم رو بخاطر پخش شدن فیلم عروسی خفه می‌کنه و به قتل میرسونه!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸 ترامپ در مصاحبه با فاکس نیوز:
+تغییر حکومت در ایران شدنی است بشرطی که مردم ایران بتوانند با سلاح از خودشان دفاع کنند
+اگر لازم بدونم نیروی زمینی به ایران اعزام خواهم کرد هنوز وضعیت رو نهایی نکردیم
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8136
 
@@ -112,78 +221,5 @@
 🔴قرارگاه مرکزی سپاه پاسداران در راسک توسط آمریکا هدف قرار گرفت
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8118
-
-<div align="center"><video src="files/post_8118_tasiyanc_8118.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8118_tasiyanc_8118.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ جی دی ونس:
-ـ اگه مردم ایران بخوان قیام کنن و حکومتشون رو عوض کنن، این مربوط به خودشونه.
-ـ ما قرار نیست ۱۵۰ هزار نیروی زمینی بفرستیم تا برای تغییر حکومت ایران بجنگن.
-ـ ما در هر صورت نیرو اعزام نمی‌کنیم.
-چون اگه چنین کاری بکنیم، یعنی ارتش آمریکا داره کار مردم ایران رو انجام می‌ده.
-ـ دیگه وارد چنین بازی‌هایی نمی‌شیم؛ اون دوران گذشته.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز عزیز طاقت بیار ...
-</div>
-
-## tasiyanc — post 8116
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اهواز زیر دود بمباران 💔
-</div>
-
-## tasiyanc — post 8115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاش جنوب ایران هم اندازه جنوب لبنان براتون مهم بود
-</div>
-
-## tasiyanc — post 8114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حملات شدید آمریکا به اهواز عزیز
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتیجه دقیق بازی آرژانتین 🇦🇷 و انگلیس 🏴󠁧󠁢󠁥󠁮󠁧󠁿 بگید کانفیگ وایرگارد بگیرید
-</div>
-
-## tasiyanc — post 8112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ👂 به فاکس نیوز:
-
-🔻 حملات علیه ایران هفته آینده گسترش خواهد یافت و خاورمیانه برای آنچه بعداً رخ خواهد داد آماده میشود
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️💪 ترامپ :امشب، فردا و پس‌فردا به ایران حمله سختی خواهیم کرد و در آخر اگر تسلیم نشن، تمام پل‌‌ها و نیروگاه هاشون رو نابود میکنیم
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8108
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی مسجد سلیمان یه خانم 31 ساله بعد از اینکه به خواستگارش جواب رد میده، خواستگارِ حرومزاده‌اش با 5 تا گلوله، این خانوم رو جلوی دختر 12 سالش به قتل می‌رسونه. اون بارها به مقامات اعلام کرده بود که جونش توسط این شخص در خطره، ولی توجهی نکردن! @Tasiyanc ⭐️ |…
 </div>
 

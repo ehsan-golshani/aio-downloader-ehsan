@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[SuperFast] @Tasiyanc 🔥.npvt
+</div>
+
+## tasiyanc — post 9064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 📍
+
+•آموزش اتصال ⚡️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9063
+
+<div align="center"><img src="files/post_9063_tasiyanc_9063.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قالیباف:
+حمله بزرگی در راه است... صبر کنید، نه، آن‌ها می‌خواهند مذاکره کنند. این دیپلماسی نمایشی است که بارها تکرار شده است.
+استفاده از زور و تهدید، همراه با وعده‌های دروغین و اخبار جعلی، یک استراتژی شکست‌خورده است.
+حقایق را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتر نیازی نداریم.
+
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ⭕️ اطلاع رسانی حداکثری ... کلاهبرداری ..
+
+🚨 جدیدا برخی کانالهای تلگرامی در حوزه ارز دیجیتال شروع به معرفی شت‌کوین ( توکن های کلاهبرداری) بدون پشتوانه میکنن که بخرید قراره پامپ شه میلیونر بشید ...
+از جایی که ۹ ساله کارم فارکس و ارزدیجیتاله باید به شما هشدار بدم به هیچ عنوان حتی ۱ دلار هم بابت خرید این توکنهای دیجیتال پول ندید ، بعد خرید حتی نمیتونید بفروشید ، لیکوییدیتی (پشتوانه) این توکنها دست خود سازنده توکن قرار میگیره و فروش توکنو میبندن و شما نمیتوانید بفروشید چون لاک میشه و پولتون حروم میشه ، این روزا داره شدیداً ترند میشه ، حتی شما هم میتونید با یه برنامه نویسی ساده ارز دیجیتال ( توکن) بسازید با هر اسمی بر پایه شبکه اسمارت چین یا اتریوم ، به دام این کلاهبردارهای بی ریشه نیوفتید ، اطلاع رسانی کنید به همه تا سرشون کلاه نره .
+
+Join @TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9059
+
+<div align="center"><img src="files/post_9059_tasiyanc_9059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴قتل پسر به دست پدر در شاهرود، بخاطر اینکه پسر ۲۵ ساله از باباش موتور میخواست براش بخره
+
+توی شاهرود، یه پسر 25 ساله بخاطر اینکه یه مدت اصرار میکرده و از باباش موتور می‌خواسته؛
+باباش با سنگ میزنه تو سرش و به قتل میرسونتش و بعدش جنازه‌شو میندازه تو یه چاه 40 متری!!
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9058
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟اپلیکیشن‌های کاربردی برای ادیت :
+
+
+⚡️ Picsart
+• کلاژ، فیلترای خوب، همه کار
+⚡️ Ps Express
+•روتوش چهره
+⚡️ Snapedit
+•حذف سوژه‌ی اضافه
+⚡️ Lightroom
+•خدای رنگ و نور
+⚡️ VN
+•ادیت Cash ویدئو
+⚡️ Instories
+•ساخت استوری‌های متفاوت
+
+👹@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥با این سایت به راحتی میتونی کل ضرر های جام جهانی رو جبران کنی
+بونوس هاش واقعا عالیه👌🏼بدون قیدوشرط
+❌با هر 1 میلیون شارژ ، 🤩🤩🤩 هزارتومان شارژ اضافی بگیر🅰️
+
+❌❌طرح شارژ رایگان فقط تا پایان مرداد ماه
+</div>
+
+## tasiyanc — post 9056
+
+<div align="center"><img src="files/post_9056_tasiyanc_9056.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 #بایرن_مونیخ Vs #استون_ویلا
+
+زمان: جمعه ساعت 15
+
+🚨 تجربه پیشبینی مطمئن با
+🤩 🤩 🅰️ شارژ اضافی و ریسک خیلی پایین در #بت_اینجا رو از دست نده❌
+
+🤩 🤩 درصد برگشت وجه در صورت باخت:
+🌐 betinja.bet
+🌐 betinja.bet
+کانال بونوس های رایگان g15
+@betinjabet
+</div>
+
+## tasiyanc — post 9055
+
+<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔱 @Tasiyanc - R²all.hc
+</div>
 
 ## tasiyanc — post 9054
 
@@ -137,113 +258,5 @@
 
 بفرست برا کسی که میخوای عکس پاشو برات بده 😂
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9034
-
-<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9032
-
-<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
-
-شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان درباره 18 و 19 دی : هنوز که هنوزه من اون حادثه رو نمی‌تونم فراموش کنم، نباید کارمون به اينجا می‌رسید!
-
-البته خود ترامپ نامرد هم گفت که ما اینا رو مسلح کردیم.
-یه عده بی‌گناه هم با اینا قاطی شده بودن. وقتی شورش میشه، آدم نمی‌تونه دوست و دشمن رو تشخیص بده.
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9028
-
-<div align="center"><img src="files/post_9028_tasiyanc_9028.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو اربعین یه موکب زدن که هرکسی تنها بوده میتونسته شب بره اینجا یه نفرو به یه مبلغ خوب صیغه کنه حتی از اینجا میتونسته زن ایندشو هم انتخاب کنه 😞
-
-
-@TASIYANC 🕒
-</div>
-
-## tasiyanc — post 9027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ #پنالتی راحترین بازی پولساز ⚠️
-🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید راحتو سریع برنده شو👌🏼
-💖 مرجع بازی های روز دنیا در ‌پلتفرم جهانی بت اینجا ⭐
-</div>
-
-## tasiyanc — post 9026
-
-<div align="center"><video src="files/post_9026_tasiyanc_9026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9026_tasiyanc_9026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ آقاآآ این بازی #پنالتی چقدر خفنه⚽
-
-🟢 بازی خیلی حرفه ای و‌ #پولساز پنالتی فقط‌ پلتفرم جهانی و معتبر #بت_اینجا
-
-✊همین الان ویدیو #آموزش پنالتی زدن ‌رو ببین و با شارژ اضافی 🤩🤩 درصدی که سایت بهت میده.
-
-💖 حتما ویدیو #آموزش رو ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r15
-@betinjabet
-</div>
-
-## tasiyanc — post 9025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ترامپ: ترجیح می‌دهم با ایران به توافق برسم تا بجنگم
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کاهش پهنای باند هم اکنون در سراسر کشور
-
-پی‌نوشت : اختلاله و درست میشه نرید پول بدید یه وقت
-</div>
-
-## tasiyanc — post 9022
-
-<div align="center"><img src="files/post_9022_tasiyanc_9022.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔠هشدار
-
-به همین راحتی از همین عکس‌هایی که می‌ذارید توی سوشال می‌تونن هویتتون رو جعل کنن.
-تازه ویدیو هم ازش می‌تونن بسازن که چالش سایت‌هایی که با ویدیو تایید هویت می‌کنن رو هم حل کنن!
-
-حالا هی سلفی بذارید، هی برید تو این اپ‌هایی که ترند می‌شن عکس آپلود کنید سرتون رو بذاره جای فلان بازیگر.
-
-
-⚡️ @TASIYANC ⭐️
 </div>
 

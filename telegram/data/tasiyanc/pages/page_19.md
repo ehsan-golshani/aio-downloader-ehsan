@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 9442
+
+<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
+
+وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
+انگیزش قتلش هم اختلافات خانوادگی بوده.
+‌
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9441
+
+<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Decarys 🔥.ovpn
+</div>
+
+## tasiyanc — post 9439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیرم و گاهی دلم یاد جوانی می‌کند
+بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
+
+نفری یه بیت بگید تو کامنت
+</div>
+
+## tasiyanc — post 9438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ :
+
+دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
+
+محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 9434
+
+<div align="center"><img src="files/post_9434_tasiyanc_9434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☝فاصله ی تو با پول دراوردن فقط یک کلیک
+
+🔺فقط فوتبال تماشا نکن از پبشبینی فوتبال پول در بیار چطوری ⁉️ بیا تا بهت بگم
+
+⚡️ پلتفرم جهانی ریتزوبت به کاربران فارسی زبان خودش 100% هدیه شارژ اولیه میده
+
+🔺 یعنی اگه 1.000.000 داشته باشی 1.000.000 هم ریتزوبت بهت میده
+
+☑️ این یه بیزنس بین المللی و جهانی شرط بندی اما در محیط امن و سالم
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇g27
+
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 9433
 
@@ -151,66 +266,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 جهت اطلاع ساعت ۲ پست ها پاک میشه
-</div>
-
-## tasiyanc — post 9420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
-</div>
-
-## tasiyanc — post 9419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-آیدی عددی
-8973915004
-</div>
-
-## tasiyanc — post 9418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین ساعت ۲ پاک میشه
-دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
-</div>
-
-## tasiyanc — post 9416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
-</div>
-
-## tasiyanc — post 9415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
-همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
-پستها پاک میشه
-</div>
-
-## tasiyanc — post 9414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
-</div>
-
-## tasiyanc — post 9411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
 </div>
 

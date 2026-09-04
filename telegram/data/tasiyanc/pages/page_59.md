@@ -1,8 +1,120 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/06/13 01:06
+📅 آخرین بروزرسانی: 1405/06/13 15:22
 
 ---
+
+## tasiyanc — post 8346
+
+<div align="center"><img src="files/post_8346_tasiyanc_8346.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کوله‌ی دخترش رو انداخته بود،
+براش آواز هم می‌خوند تا خستگی مهد از تنش در بره...🫠💘
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8345
+
+<div align="center"><img src="files/post_8345_tasiyanc_8345.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July؛ روز ملی خوشگلا | Attractive Day هست🥹.
+
++این پست رو به خوشگل ترین فرد تو زندگیت بفرست و روزشو تبریک بگو.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴رسمی : امتحانات نهایی لغو شد ولی باز هم فقط واسه 4 استان!
+
+■ هرمزگان
+■ بوشهر
+■ خوزستان
+■ سیستان و بلوچستان
+
+- پایه یازدهم و دوازدهم
+- روزهای یکشنبه و دوشنبه، 28 و 29 تیر
+
+پروکسی |  پروکسی | پروکسی
+پروکسی |  پروکسی | پروکسی
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8343
+
+<div align="center"><img src="files/post_8343_tasiyanc_8343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خانواده بندرعباسی بچه‌شونو داخل یه تیکه کائوچو میذارن که کنار دریا بازی کنه
+حواس خانواده پرت میشه آب بچه رو میبره و نیروی دریایی ارتش این بچه رو لب مرز دریایی امارات پیدا میکنن و برمیگردونن🤣🤣
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8342
+
+<div align="center"><img src="files/post_8342_tasiyanc_8342.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معلم جلوی پروژکتور معلم کنار پروژکتور
+
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8341
+
+<div align="center"><img src="files/post_8341_tasiyanc_8341.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴10 فیلم معروفی که پایان‌بندی‌شون غافلگیرتون می‌کنه و پشماتون از دیدنشون میریزه:
+
+▪️The Sixth Sense 1999
+▫️Se7en 1995
+▪️Fight Club 1999
+▫️The Prestige 2006
+▪️Shutter Island 2010
+▫️The Usual Suspects 1995
+▪️ Oldboy 2003
+▫️Primal Fear 1996
+▪️The Mist 2007
+▫️Incendies 2010
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8339
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 18 July، روز جهانی گوش دادن
+گوش دادن به آهنگ و چیزای دیگه مثل کسشرای رفیقته
+
+@Tasiyanc ✅| مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8335
+
+<div align="center"><img src="files/post_8335_tasiyanc_8335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایي کوههای مریخيِ چابهارِ زیبا
+
+پروکسی | پروکسی | پروکسی | پروکسی
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ از امروز دوستان عزیزی ک لف میدن بن میشن که برنگردن به چنل فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️ مدیریت مجموعه تاسیان
+</div>
 
 ## tasiyanc — post 8324
 
@@ -98,89 +210,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن با ربات دیتا بیس تیم خودمون با بانک اطلاعاتی خودمون بیاد اطلاعات فیک از ما بزارن با یه share contact کل اطلاعاتتو می‌دیدی به خودم که میخوای با من دشمنی کنی ، خود زنی تا کی ایرانی😐
-</div>
-
-## tasiyanc — post 8309
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه کانفیگ مخصوص نت ملی رو بگیرید دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار ۱۰ مین پیش در یزد از اعضای عزیز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8307
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خاورمیانه آرومه امشب انگار؟
-</div>
-
-## tasiyanc — post 8306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️ شنیده شدن صدای انفجار در اهواز
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاهش پهنای باند داره گزارش میشه
-کانفیگ مخصوص نت ملی رو بگیرید
-
-دریافت کانفیگ 👉
-</div>
-
-## tasiyanc — post 8303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاطمه مهاجرانی، سخنگوی دولت:
-
-دولت پزشکیان تا پای جان کنار مردم خونگرم جنوبه و از صبر و ایستادگیشون تو دوران متشنج جنگی تشکر میکنه
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 کویت اعلام کرد که موشک‌های بالستیک و پهپادهای ایرانی را که وارد فضای هوایی این کشور شده بودند، رهگیری کرده است.
-
-@Tasiyanc ✅
 </div>
 
