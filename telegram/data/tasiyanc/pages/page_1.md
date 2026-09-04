@@ -1,8 +1,178 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/13 18:51
+📅 آخرین بروزرسانی: 1405/06/13 22:11
 
 ---
+
+## tasiyanc — post 9924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 کانفیگ  پرمیوم OpenVpn 📶
+
+مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
+
+دریافت کانفیگ ها 👉
+
+💋 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9923
+
+<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9922
+
+<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه نصیحت
+اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
+چون اگه منصرف بشی پلیس میکشتت 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
+
++ خوشبختانه حالش خوبه❤️
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله موشکی از سیریک به تنگه هرمز
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9919
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9916
+
+<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9915
+
+<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9914
+
+<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سپاه هفته قبل: اگه اسرائیل به تپه‌های علی الطاهر حمله کنه با خشم ما روبرو میشه
++ اسرائیل دیشب اونجا رو فتح کرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9910
+
+<div align="center"><video src="files/post_9910_tasiyanc_9910.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9910_tasiyanc_9910.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠وزیر خزانه داری آمریکا در مورد ایران:
+همه می‌خواهند این وضعیت به پایان برسد. ۴۷ سال است که با این رژیم شیطانی زندگی می‌کنیم و مردم جهان از این وضعیت خسته شده‌اند.
+مردم ایران، مردمی بزرگ هستند. اما متاسفانه، یک رژیم سرکوبگر بر آن‌ها حاکم است. یا این رژیم از درون تغییر خواهد کرد، یا مردم قیام خواهند کرد، وگرنه باید ببینیم چه اتفاقی می‌افتد.
+ما آن‌ها را از نظر اقتصادی به زانو درخواهیم آورد. آن‌ها در چیزی که من "چنگال مرگ اقتصادی" می‌نامم، گرفتار شده‌اند.
+ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9909
 
@@ -18,8 +188,6 @@
 </div>
 
 ## tasiyanc — post 9908
-
-<div align="center"><a href="files/post_9908_@Tasiyanc For Honey's 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc For Honey's 🔥.npvt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
@@ -78,244 +246,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨فوری / ‌به دنبال تهدید ترامپ مبنی بر کاهش همکاری نظامی: دفتر ریاست جمهوری کره جنوبی اعلام کرد که این کشور در حال آماده شدن برای اعزام نیروهای نظامی به تنگه هرمز است تا به تضمین عبور آزاد کشتی‌ها در این منطقه کمک کند
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9904
-
-<div align="center"><img src="files/post_9904_tasiyanc_9904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ۴ سپتامبر روز جهانی سرطان خون است
-🎗
-
-هدف از این پست افزایش آگاهی و پیشگیری از بیماری هست ، امیدوارم تن همتون سالم باشه تا آخر عمر ❤️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9902
-
-<div align="center"><video src="files/post_9902_tasiyanc_9902.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9902_tasiyanc_9902.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9901
-
-<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9900
-
-<div align="center"><video src="files/post_9900_tasiyanc_9900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9900_tasiyanc_9900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئوی دوربین مداربسته از حمله دو نفر سارق به یک زن میانسال در خیابان و سرقت وحشیانه طلاهای او
-
-در مکانهای خلوت، احتیاط بیشتری کنید و وسایل و اشیای ارزشمند خود را در معرض دید قرار ندید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9898
-
-<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-🔗https://www.novigrad.top
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه دلار به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9895
-
-<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
-
-⭕️پس همین الان وارد کانال Evil Bet شو
-چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
-
-💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+TmGWkUYH_8c0OWZk
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9893
-
-<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9892
-
-<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری
-
-با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9890
-
-<div align="center"><img src="files/post_9890_tasiyanc_9890.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 متاسفانه یه دختر ۱۹ ساله توی توییتر بعد از انتشار این پست‌ها، دست به خودکشی کرده و خبری ازش نیست .
-
-علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
-خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
-خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9887
-
-<div align="center"><img src="files/post_9887_tasiyanc_9887.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
 
 💋 @Tasiyanc
 </div>

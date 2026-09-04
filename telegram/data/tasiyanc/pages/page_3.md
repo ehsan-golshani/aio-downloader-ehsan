@@ -1,8 +1,212 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/13 18:51
+📅 آخرین بروزرسانی: 1405/06/13 22:11
 
 ---
+
+## tasiyanc — post 9879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠طبق گزارش ها؛
+روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
++ دلیلشم انجام برخی کارهای +۱۸ بوده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9878
+
+<div align="center"><img src="files/post_9878_tasiyanc_9878.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠عکسی که میبینید متعلق به خودکشی دسته جمعی جونزتاون گویان در سال ۱۹۷۸ هست.
+
+جیم جونز، رهبر یه فرقه مذهبی که به مرور کنترل زیادی روی زندگی اعضای فرقه پیدا کرده بود، تو این منطقه اعضا رو با تهدید و زور حبس میکرد و با ضرب و شتم به کار اجباری وادار میکرد.
+
+یه نماینده از کنگره آمریکا به اسم لئو رایان برای بازدید به جونزتاون رفت و یه عده از مردم اونجا ازش درخواست کردن که یواشکی از جونزتاون خارجشون کنه. جیم جونز که از این قضیه مطلع شده بود، رایان و ۴ همراهش رو حین خروج با شلیک گلوله به قتل رسوند.
+
+بعد از این اتفاق، جونز دستور مرگ دسته جمعی داد و گفت این آخرین اعتراض به دنیای فاسد و ظالم هست.
+به اعضای فرقه نوشیدنی انگور حاوی سیانور داده شد. یه عده خودشون نوشیدن و یه عده هم که مقاومت کردن با زور و اجبار مجبور به نوشیدن شدن. تعدادی هم که خواستن فرار کنن، با شلیک نیروهای امنیتی وابسته به جونز کشته شدن.
+
+اون روز مجموعا ۹۱۸ نفر تو جونزتاون کشته شدن که ۲۷۰ نفرشون بچه بودن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9877
+
+<div align="center"><video src="files/post_9877_tasiyanc_9877.dat" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9877_tasiyanc_9877.dat" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9876
+
+<div align="center"><video src="files/post_9876_tasiyanc_9876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9876_tasiyanc_9876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠خدمه‌ی نام هواپیمابر آبراهام لینکلن که چندین ماه در خلیج فارس و جنگ با جمهوری اسلامی حضور داشتن ، به تایلند رسیدن و رفتن چند روزی عشق حال کنن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9875
+
+<div align="center"><video src="files/post_9875_tasiyanc_9875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9875_tasiyanc_9875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با انجام دادن این حرکات ورزشی، قوز کمرتان را اصلاح کرده و درد شانه‌ را برطرف کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9873
+
+<div align="center"><img src="files/post_9873_tasiyanc_9873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9870
+
+<div align="center"><video src="files/post_9870_tasiyanc_9870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9870_tasiyanc_9870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9869
+
+<div align="center"><video src="files/post_9869_tasiyanc_9869.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9869_tasiyanc_9869.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
+
+## tasiyanc — post 9867
+
+<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+sa11
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
+
+## tasiyanc — post 9866
+
+<div align="center"><video src="files/post_9866_tasiyanc_9866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9866_tasiyanc_9866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 راننده جنسیس که توی مشهد تجمعات همه رو زیر گرفت:
+
+خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9865
+
+<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برخی مضرات رابطه جنسی که نمیدونستی!!
+
+۱.طول بیشتر از ۱۰ سانت به دیواره رحم برخورد و باعث درد زیادی میشه!
+۲.رابطه مقعدی خیلی خطرناکه و باعث انتقال مریضی میشه و هم دردناکه!
+۳.استفاده از قرص های تاخیری معمولا باعث گیجی و سردرد و ضرر میشه!
+۴.رابطه دهانی با زنان، این نوع رابطه مضر نیست اما ممکنه خیلیا بدشون بیاد!
+۵.رابطه جنسی با پیرزن‌ها و پیرمرد‌ها
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9863
+
+<div align="center"><img src="files/post_9863_tasiyanc_9863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9862
 
@@ -82,265 +286,5 @@
 ⭕️
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9856
-
-<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
-
-ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9855
-
-<div align="center"><video src="files/post_9855_tasiyanc_9855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9855_tasiyanc_9855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید فکر کنید پسرا دنبال زیبایی و هیکل خوبن‌، ولی تنها چیزی که یه مرد میخواد همچین دختریه که تو هر شرایطی کنارش باشه.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9854
-
-<div align="center"><video src="files/post_9854_tasiyanc_9854.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9854_tasiyanc_9854.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9853
-
-<div align="center"><video src="files/post_9853_tasiyanc_9853.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9853_tasiyanc_9853.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-sg11
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9849
-
-<div align="center"><video src="files/post_9849_tasiyanc_9849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9849_tasiyanc_9849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9848
-
-<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9846
-
-<div align="center"><video src="files/post_9846_tasiyanc_9846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9846_tasiyanc_9846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیروز توی تبریز برای اولین بار ایونت مد و فشن برگزار شد:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاجعه اقتصادی هر دلار 218000 طلای ۱۸ عیار 22.500.000 سکه تمام بهار 222.600.000 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9844
-
-<div align="center"><img src="files/post_9844_tasiyanc_9844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره به دوست‌پسرش شک داشته و طی یه حرکت بشدت لاشیانه این پیام رو با شماره ناشناس به دوست‌پسرش داده 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9843
-
-<div align="center"><video src="files/post_9843_tasiyanc_9843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9843_tasiyanc_9843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9841
-
-<div align="center"><img src="files/post_9841_tasiyanc_9841.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (نصب کنید)
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9839
-
-<div align="center"><img src="files/post_9839_tasiyanc_9839.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ:
-
-دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9838
-
-<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
-
-+ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
-
-🩸 @Tasiyanc
 </div>
 
