@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
+</div>
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9728
 
@@ -275,26 +290,5 @@ til.ac/0L4vyJf
 @HUNTTER_BET
 @HUNTTER_BET
 @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9696
-
-<div align="center"><img src="files/post_9696_tasiyanc_9696.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏐 تیم ملی والیبال زیر ۱۷ سال ایران با شکست فرانسه در دیدار فینال، به هفتمین برد متوالی خود دست یافت و مقتدرانه قهرمان جهان شد.
-
-🇮🇷 25 | 25 | 22 | 25
-🇫🇷 18 | 15 | 25 | 12
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد  😎
+
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
+
+زمینه سازی میکنید گرون کنید جا*شا؟
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9395
 
@@ -213,22 +248,6 @@ g26
 🚨 آخرین ویدیویی که مادر جاویدنام عسل شفیعی، با دخترش ضبط کرده بود رو منتشر کرد.
 
 عسل دانشجوی ۲۱ ساله مهندسی کامپیوتر بود که ۱۸ دی ماه به ضرب گلوله به قتل رسید.
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف: ۹۰ میلیون ایرانی حامی نظام جمهوری اسلامی هستن
-@Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ناو هواپیمابر جورج بوش از ژاپن سمت خاورمیانه راه افتاده و ۱۰ روز دیگه به سواحل جنوبی ایران میرسه
-
-گفته میشه قراره جانشین ناو لینکلن بشه
 @Tasiyanc ⭐️
 </div>
 

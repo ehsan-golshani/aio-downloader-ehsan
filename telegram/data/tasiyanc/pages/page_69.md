@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 8059
+
+<div align="center"><img src="files/post_8059_tasiyanc_8059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سری جدید پول سلامتی نمیاره😐
+
+بانو شکیرا خواننده محبوب با ۵۰ سال سن :
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8058
+
+<div align="center"><video src="files/post_8058_tasiyanc_8058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8058_tasiyanc_8058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
+ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8055
 
@@ -250,29 +274,5 @@
 هرکی گفت پول خوشبختی نمیاره اینو نشونش بده خفه شه؛ تعطیلات وینیسیوس با دوست دخترش:
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7997
-
-<div align="center"><img src="files/post_7997_tasiyanc_7997.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏نسل جدید چه میدونه "بقیه پول" چیه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 7996
-
-<div align="center"><video src="files/post_7996_tasiyanc_7996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7996_tasiyanc_7996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادیتی از محمدرضا شاه فقید که تو چند ساعت، میلیونی بازدید خورده
-🇮🇷
-
-@Tasiyanc 
-⭐️
 </div>
 

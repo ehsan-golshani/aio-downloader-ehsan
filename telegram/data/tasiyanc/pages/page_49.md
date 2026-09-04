@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 8663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8662
+
+<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی
+نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8661
 
@@ -207,22 +226,5 @@
 
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8629
-
-<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات توافق :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
-@Tasiyanc 😐
 </div>
 

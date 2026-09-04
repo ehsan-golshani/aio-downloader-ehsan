@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9668
+
+<div align="center"><img src="files/post_9668_tasiyanc_9668.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طبق یک پیشبینی ریاضی که به یک دانشمند آمریکایی نسبت داده میشود ، دنیا روز جمعه ۱۳ نوامبر ۲۰۲۶ به پایان می‌رسد تقریبا ۷۸ روز دیگه .
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9666
 
@@ -394,46 +415,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9639
-
-<div align="center"><video src="files/post_9639_tasiyanc_9639.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9639_tasiyanc_9639.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای دانلود ، اینستاگرام 📸 یوتوب 
-🎥
-
-تست شده تمام نت‌ها
-
-آموزش اتصال 
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-در صورت ارور چند بار بزنید
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9637
-
-<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی
+
+🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
+
++ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
+
+🩸@Tasiyanc
+</div>
 
 ## tasiyanc — post 9751
 
@@ -206,21 +228,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقام آمریکایی:
-
-نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
 🩸 @Tasiyanc
 </div>
 

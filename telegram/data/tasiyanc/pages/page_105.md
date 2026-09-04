@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 6688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون ورود جنگنده ها و هواپیماهای سوخترسان برای امضای توافق
+</div>
+
+## tasiyanc — post 6687
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%E2%9A%A1%40Tasiyanc%F0%9F%94%B7
+🌐🇩🇪
+
+@Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6686
 
@@ -156,17 +173,5 @@ https://ritsatv.ru/mobile-version/movie-id901190-trt1
 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@151.101.109.223:80?path=%2F&security=none&encryption=none&host=max-gb1.global.ssl.fastly.net&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20vip%20%40Tasiyanc%20%E2%99%82%EF%B8%8F
 vless://0058c215-ab1e-400c-a403-b5b2fda7e846@104.16.0.0:8080?path=%2F&security=none&encryption=none&host=tr-cd.sublink-vip2.com&type=ws#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc%20%F0%9F%94%B1
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لیست پخش کانالهای خارجی افتتاحیه و بازیهای جام‌جهانی 🔻Persiana Sports HD 🗣 Yahsat / TurkmenAlem 🟢10762 V 27500 🟢 10803 H 27500 🟢 11420 V 27500 🟢 11383 H 27500 🔻​TRT 1 HD 🇹🇷 🗣 Turksat 42°E 🟢 11794 V 30000 🔻​ ATN HD 🗣 Yahsat1A 🟢11938 H 27500 🟢 BISS:1234569C7890ABB3…
-</div>
-
-## tasiyanc — post 6664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌎🚀World Cup ⚡.npvt
 </div>
 

@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9909
+
+<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9908
+
+<div align="center"><a href="files/post_9908_@Tasiyanc For Honey's 🔥.npvt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc For Honey's 🔥.npvt</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9907
 
@@ -63,8 +97,6 @@
 </div>
 
 ## tasiyanc — post 9903
-
-<div align="center"><a href="files/post_9903_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -285,29 +317,6 @@ https://t.me/+TmGWkUYH_8c0OWZk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9885
-
-<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آگهی عجیب شرکت کاریابی که وایرال شده ،
-گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
-
-+ بعد میگید کار نیست
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9884
-
-<div align="center"><img src="files/post_9884_tasiyanc_9884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی کریمی: از این به بعد هرکسی اسم رضا پهلوی رو زیر پستای من بنویسه بلاکش میکنم. اسم پدرش مشکلی نداره ولی اسم خودش نه.
-
-+ جدیدا هرکی میخواد شاهزاده رو تخریب کنه الکی میاد اسم از پدرشون میاره تا راه باز کنه
 💋 @Tasiyanc
 </div>
 

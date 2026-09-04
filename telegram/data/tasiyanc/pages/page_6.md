@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9787
+
+<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی_سایت
+
+
+💵12 سایت عالی برای فریلنسری
+(گرفتن پروژه دورکاری ; خونه بشین کار کن)
+
+
+🔗 www.fiverr.com
+
+🔗 www.odesk.com
+
+🔗 www.elance.com
+
+🔗 www.99designs.com
+
+🔗 www.freelancer.com
+
+🔗 www.freelanced.com
+
+🔗 www.ifreelance.com
+
+🔗 www.peopleperhour.com
+
+🔗 www.peopleperhour.com
+
+🔗 www.upwork.com
+
+سایت های معرفی شده معتبر و اثبات شده هستند.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
+
+@HUNTTER_BET  @HUNTTER_BET
+@HUNTTER_BET  @HUNTTER_BET
+@HUNTTER_BET  @HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9785
 
@@ -239,27 +288,5 @@ https://Winamit.com/fa
 + همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار رسیده 211000 تومان 😞
-
-+ زندگی روی خوشی با ما ایرانیا نداره
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانستنی
-
-🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
-
-+ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
-
-🩸@Tasiyanc
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تسنیم:
+آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9809
 
@@ -293,54 +311,5 @@ til.ac/0L4vyJf
 رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9787
-
-<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-
-
-💵12 سایت عالی برای فریلنسری
-(گرفتن پروژه دورکاری ; خونه بشین کار کن)
-
-
-🔗 www.fiverr.com
-
-🔗 www.odesk.com
-
-🔗 www.elance.com
-
-🔗 www.99designs.com
-
-🔗 www.freelancer.com
-
-🔗 www.freelanced.com
-
-🔗 www.ifreelance.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.upwork.com
-
-سایت های معرفی شده معتبر و اثبات شده هستند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
-
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
 </div>
 

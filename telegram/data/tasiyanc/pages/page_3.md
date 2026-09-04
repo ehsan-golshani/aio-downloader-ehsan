@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/13 15:22
+📅 آخرین بروزرسانی: 1405/06/13 18:51
 
 ---
+
+## tasiyanc — post 9862
+
+<div align="center"><video src="files/post_9862_tasiyanc_9862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9862_tasiyanc_9862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ درباره ایران:
+
+بیشتر مردم نمی‌توانند این‌گونه مردم خودشان را بکشند. معمولاً سعی می‌کنند مذاکره کنند و با مردم صحبت کنند و بعد ممکن است حکومت سرنگون شود. اما در ایران، مردم را می‌کشند. وقتی برای اعتراض به خیابان می‌آیند، آن‌ها را می‌کشند و مستقیماً به سرشان شلیک می‌کنند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9861
+
+<div align="center"><img src="files/post_9861_tasiyanc_9861.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مدل اسرائیلی به اسم « mia Schem » که حدود 54 روز اسیر حماس بوده
+بعد از آزاد شدنش افسردگی میگیره که چرا اینا منو نکردن حتما خوشگل نیستم و ...
+بخاطر همین میره چندین مدل عمل زیبایی انجام میده و بعدش یه مربی پرورش اندام اسرائیلی بهش داروی بیهوشی میده و بهش تجا*وز میکنه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9860
 
@@ -313,33 +340,6 @@ til.ac/0L4vyJf
 🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
 
 + علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9837
-
-<div align="center"><video src="files/post_9837_tasiyanc_9837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9837_tasiyanc_9837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دارو هارو ببینید نسبت به سال گذشته فاجعه بار کشیده بالا ...
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاجعه اقتصادی
-
-هر دلار 218000
-
-طلای ۱۸ عیار 22.500.000
-
-سکه تمام بهار 222.600.000
 
 🩸 @Tasiyanc
 </div>

@@ -1,8 +1,71 @@
 # آرشیو کانال ProxyMTProto - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/06/13 15:20
+📅 آخرین بروزرسانی: 1405/06/13 18:49
 
 ---
+
+## ProxyMTProto — post 48028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: flux.proxytop.space
+Port: 443
+Secret: ee939c94e58cb9ac7dec74ae86d8461089666c75782e70726f7879746f702e7370616365
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25566
+Secret: FgMBAgABAAH8AxOG4kw63Q
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 51.250.82.201
+Port: 443
+Secret: eeb290d308106db4562c44aa36686c2c7c617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp.nowabst.net
+Port: 853
+Secret: 7oLOH4SvQDPMfnsCEGm-PVthZHMueDUucnU
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jet.proxyux.site
+Port: 443
+Secret: eed2024b83c7a14889f7d69bd82ca087c16a65742e70726f787975782e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48021
 
@@ -118,69 +181,6 @@ Secret: eeedca657d767c71c26de484e74182c3076a65742e717569636b726f7574656170702e78
 Server: north.nolags.pw
 Port: 443
 Secret: dd9760e74174fb9717de21cc7e17027e34
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: hub.nowabst.net
-Port: 853
-Secret: ee55aabc9752a9d9d379e02943cf8117956164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg.nowabst.net
-Port: 853
-Secret: eebfbfb8093b088269716ea5262d483e1d6164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ%3D%3D
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 6775
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: yours.nolags.pw
-Port: 443
-Secret: ddaed3f129a293bdfc23d67204b50bbf87
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ge.nowabst.net
-Port: 853
-Secret: eefdf6175e50069c01bd22d786534aa2b26164732e78352e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
 @ProxyMTProto
 </div>
 
