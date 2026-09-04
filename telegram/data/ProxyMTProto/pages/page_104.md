@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/06/13 01:04
+📅 آخرین بروزرسانی: 1405/06/13 10:08
 
 ---
+
+## ProxyMTProto — post 48733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 31.76.94.172
+Port: 443
+Secret: 8f3c7a1d4b92e6c51a7d0fb843c2e91f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: openhostings.co.uk.
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: i-love.ascel.la
+Port: 443
+Secret: eef1a12a129e596c84f0d0edad1ad331c6692d6c6f76652e617363656c2e6c61
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48730
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 48729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: one.gram.blog
+Port: 443
+Secret: ee1e500c27b5ca23c07c56738e9309344e62726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 48728
 
@@ -136,51 +181,6 @@ Secret: 7t3____FoRaLL_Proxy___93ZWIuYmFsZS5haQ==
 Server: gate.soluqent.pro
 Port: 443
 Secret: ee204d0b60a6b41370c66a64551f06b233676174652e736f6c7571656e742e70726f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: pl.nowabst.net
-Port: 853
-Secret: ee82ce1f84af4033cc7e7b021069be3d5b766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48711
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: full-vasl.ir-xyz.gdhbvjshjrf.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48710
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: i-love.ascel.la
-Port: 443
-Secret: eef1a12a129e596c84f0d0edad1ad331c6692d6c6f76652e617363656c2e6c61
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 48709
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
