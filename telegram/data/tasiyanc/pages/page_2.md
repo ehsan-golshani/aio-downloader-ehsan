@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/14 00:40
+📅 آخرین بروزرسانی: 1405/06/14 02:41
 
 ---
+
+## tasiyanc — post 9909
+
+<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9907
+
+<div align="center"><img src="files/post_9907_tasiyanc_9907.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 تکرار حادثه تلخ الهه حسین نژاد برای ملیکا دادپور در تهران
+
++ ملیکا دادپور، دختر ۲۲ ساله ، پس از ترک محل کارش در میدان آرژانتین تهران سوار یک خودروی عبوری شد به مقصد خونشون تو قرچک. او هنگام سفر به دوستش گفت راننده رفتار مشکوکی دارد و مقصد مکانی خود را برای او فرستاد. کمی بعد مسیر خودرو تغییر کرد و دوستش هنگام تماس، صدای کمک‌خواهی ملیکا را شنید.
+خانواده‌اش به پلیس اطلاع دادند. دو روز بعد (عجیبه واقن با اینکه لوکیشن و همه چی فرستاده نتونستن پیدا کنن؟!) ، جسد ملیکا در حوالی فشافویه در کانال آب پیدا شد و طبق بررسی‌های پزشکی قانونی، او بر اثر ضربات چاقو و درگیری جان باخته بود.
+همچنین برخی وسایل ملیکا مثل طلا و آیفون ، اپل واچ به سرقت رفته بود. پلیس پس از بررسی دوربین‌ها و پلاک خودرو، راننده را ۱۲ روز بعد دستگیر کرد. متهم آرمین ۳۹ ساله قتل را انکار کرده بود، اما تحقیقات پلیس ادامه یافت و مشخص شد آرمین ۳۹ ساله حرامزاده دخترک بی دفاع را کشته و داخل کانال آب انداخته ، به امید اع*دام و منقرض شدن این حرامزاده‌ها.
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9906
 
@@ -267,41 +314,6 @@ https://t.me/+TmGWkUYH_8c0OWZk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9885
-
-<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آگهی عجیب شرکت کاریابی که وایرال شده ،
-گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
-
-+ بعد میگید کار نیست
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9884
-
-<div align="center"><img src="files/post_9884_tasiyanc_9884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی کریمی: از این به بعد هرکسی اسم رضا پهلوی رو زیر پستای من بنویسه بلاکش میکنم. اسم پدرش مشکلی نداره ولی اسم خودش نه.
-
-+ جدیدا هرکی میخواد شاهزاده رو تخریب کنه الکی میاد اسم از پدرشون میاره تا راه باز کنه
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9883
-
-<div align="center"><video src="files/post_9883_tasiyanc_9883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9883_tasiyanc_9883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گوشی اقتصادی A17 سامسونگ از ۱۵ میلیون پارسال، شد ۹۷ میلیون
 
 💋 @Tasiyanc
 </div>

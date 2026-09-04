@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/14 00:40
+📅 آخرین بروزرسانی: 1405/06/14 02:41
 
 ---
+
+## tasiyanc — post 9114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+متاسفانه توسعه دهنده های NPV TUNNEL بیشتر از ۳ ماه هست که رو آپدیت جدید و رفع باگ های این برنامه محبوب کار نکردن ، جوری شده کانفیگ ها با پینگ Real 60 رو برنامه های دیگه با سرعت وصله ولی تو نپستر پینگ Out میده و علاوه بر این سرعت مورد نظر مارو نمیدن
+</div>
+
+## tasiyanc — post 9113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارما چیزیه ک سراغ همه میاد عزیزم حتی شما دوست عزیز چه اعتقاد داشته باشی چه نه کارای خوبت و بدت پیش کسی که می‌پرستی چرتکه میندازن تعادل باید برقرار باشه😞
+</div>
+
+## tasiyanc — post 9112
+
+<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 
+🆕
+
+prompt Cinematic Winter Fashion Portrait 
+🤖
+🤖
+cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9111
 
@@ -210,44 +240,5 @@ Prompt
 
 
 🤩 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتاق جنگ ارتش اسرائیل:
-آمریکا امروز فروش بیش از ۵ هزار فروند موشک رهگیر را به بحرین، کویت، قطر و امارات متحده عربی تأیید کرد تا ذخایر سامانه‌های پدافند هوایی این کشورها دوباره تأمین شود.
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9088
-
-<div align="center"><img src="files/post_9088_tasiyanc_9088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده :
-🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 
-📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 

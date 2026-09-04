@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 55
 
-📅 آخرین بروزرسانی: 1405/06/14 00:40
+📅 آخرین بروزرسانی: 1405/06/14 02:41
 
 ---
+
+## tasiyanc — post 8481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+5سرور سرعتی پرمیوم دارای ۲لوکیشن  ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 8479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بخوابید آروم شد
+</div>
+
+## tasiyanc — post 8476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 دو انفجار در بندر امام
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8475
 
@@ -147,31 +187,5 @@
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آقای ترامپ دنس معروفشم زد موقع اهدای کاپ به اسپانیا
-</div>
-
-## tasiyanc — post 8457
-
-<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8456
-
-<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
-
-@TASIYANC⭐️
 </div>
 

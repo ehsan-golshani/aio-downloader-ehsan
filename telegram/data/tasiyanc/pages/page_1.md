@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/14 00:40
+📅 آخرین بروزرسانی: 1405/06/14 02:41
 
 ---
+
+## tasiyanc — post 9929
+
+<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
+
++کمر به نابودی مردم بستن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9928
+
+<div align="center"><a href="files/post_9928_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9927
+
+<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9926
 
@@ -193,52 +266,5 @@
 ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9909
-
-<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9907
-
-<div align="center"><img src="files/post_9907_tasiyanc_9907.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 تکرار حادثه تلخ الهه حسین نژاد برای ملیکا دادپور در تهران
-
-+ ملیکا دادپور، دختر ۲۲ ساله ، پس از ترک محل کارش در میدان آرژانتین تهران سوار یک خودروی عبوری شد به مقصد خونشون تو قرچک. او هنگام سفر به دوستش گفت راننده رفتار مشکوکی دارد و مقصد مکانی خود را برای او فرستاد. کمی بعد مسیر خودرو تغییر کرد و دوستش هنگام تماس، صدای کمک‌خواهی ملیکا را شنید.
-خانواده‌اش به پلیس اطلاع دادند. دو روز بعد (عجیبه واقن با اینکه لوکیشن و همه چی فرستاده نتونستن پیدا کنن؟!) ، جسد ملیکا در حوالی فشافویه در کانال آب پیدا شد و طبق بررسی‌های پزشکی قانونی، او بر اثر ضربات چاقو و درگیری جان باخته بود.
-همچنین برخی وسایل ملیکا مثل طلا و آیفون ، اپل واچ به سرقت رفته بود. پلیس پس از بررسی دوربین‌ها و پلاک خودرو، راننده را ۱۲ روز بعد دستگیر کرد. متهم آرمین ۳۹ ساله قتل را انکار کرده بود، اما تحقیقات پلیس ادامه یافت و مشخص شد آرمین ۳۹ ساله حرامزاده دخترک بی دفاع را کشته و داخل کانال آب انداخته ، به امید اع*دام و منقرض شدن این حرامزاده‌ها.
-
-
-💋@Tasiyanc
 </div>
 

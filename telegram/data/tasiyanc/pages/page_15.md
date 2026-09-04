@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/14 00:40
+📅 آخرین بروزرسانی: 1405/06/14 02:41
 
 ---
+
+## tasiyanc — post 9559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ اپراتورها بدون اجازه کاربران رومینگ رو برای اکثر خطوط فعال کردن و همین باعث میشه کلی قبض پیام بین الملل براتون بیاد، یا اگر در برخی مناطق هستید اینترنتتون چندین برابر حالت عادی مصرف میشه !
+
+برای غیرفعال کردنش در ایرانسل من یا همراه من میتونید اقدام کنید.
+
+یا از کد های دستوری زیر استفاده کنید:
+
+ایرانسل: #2*1111*
+همراه اول: #29*10*
+رایتل: #210*
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💵قیمت هر دلار 203.000 تومان ایرانی
+</div>
+
+## tasiyanc — post 9556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9555
 
@@ -260,40 +303,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بنظر میاد دلمون بزودی به همین دلار ۲۰۰ تومنی ام تنگ میشه
-</div>
-
-## tasiyanc — post 9538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
-</div>
-
-## tasiyanc — post 9537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-
-آموزش اتصال ⛓
-
-🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
-
-
-اتصال پر سرعت برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
-@TasiyanProxy
-@TasiyanProxy
-@TasiyanProxy
-ارائه پروکسی های پر سرعت 📡
 </div>
 
