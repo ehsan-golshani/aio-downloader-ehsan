@@ -1,8 +1,93 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 9901
+
+<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9900
+
+<div align="center"><video src="files/post_9900_tasiyanc_9900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9900_tasiyanc_9900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدئوی دوربین مداربسته از حمله دو نفر سارق به یک زن میانسال در خیابان و سرقت وحشیانه طلاهای او
+
+در مکانهای خلوت، احتیاط بیشتری کنید و وسایل و اشیای ارزشمند خود را در معرض دید قرار ندید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9899
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9898
+
+<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
+
+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه دلار به جیب بزنی ✅
+همین حالا وارد کانال  Evil Bet شو👇
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9895
+
+<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
+
+⭕️پس همین الان وارد کانال Evil Bet شو
+چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
+
+💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+TmGWkUYH_8c0OWZk
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9893
+
+<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9892
 
@@ -190,105 +275,5 @@ sg12
 🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9876
-
-<div align="center"><video src="files/post_9876_tasiyanc_9876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9876_tasiyanc_9876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠خدمه‌ی نام هواپیمابر آبراهام لینکلن که چندین ماه در خلیج فارس و جنگ با جمهوری اسلامی حضور داشتن ، به تایلند رسیدن و رفتن چند روزی عشق حال کنن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9875
-
-<div align="center"><video src="files/post_9875_tasiyanc_9875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9875_tasiyanc_9875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با انجام دادن این حرکات ورزشی، قوز کمرتان را اصلاح کرده و درد شانه‌ را برطرف کنید.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9874
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9873
-
-<div align="center"><img src="files/post_9873_tasiyanc_9873.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9870
-
-<div align="center"><video src="files/post_9870_tasiyanc_9870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9870_tasiyanc_9870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9869
-
-<div align="center"><video src="files/post_9869_tasiyanc_9869.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9869_tasiyanc_9869.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
 </div>
 

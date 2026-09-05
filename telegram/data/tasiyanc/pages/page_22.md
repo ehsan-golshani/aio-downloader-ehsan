@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 9434
+
+<div align="center"><img src="files/post_9434_tasiyanc_9434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☝فاصله ی تو با پول دراوردن فقط یک کلیک
+
+🔺فقط فوتبال تماشا نکن از پبشبینی فوتبال پول در بیار چطوری ⁉️ بیا تا بهت بگم
+
+⚡️ پلتفرم جهانی ریتزوبت به کاربران فارسی زبان خودش 100% هدیه شارژ اولیه میده
+
+🔺 یعنی اگه 1.000.000 داشته باشی 1.000.000 هم ریتزوبت بهت میده
+
+☑️ این یه بیزنس بین المللی و جهانی شرط بندی اما در محیط امن و سالم
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇g27
+
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 9433
+
+<div align="center"><video src="files/post_9433_tasiyanc_9433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9433_tasiyanc_9433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام و بچه قهرمان ایران ملینا اسدی ؛
+
+دختر بچه ی ۳ ساله ای که به ضرب گلوله در ۱۸ دیماه غرق در خون شد و برای همیشه چشمان زیبایش را بست
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9432
+
+<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
+
+پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برید به ChatGpt بگید ...
+
+Roast me , no filter , no mercy
+
+اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
+
+#N
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9429
 
@@ -138,72 +242,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
-</div>
-
-## tasiyanc — post 9411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
-
-هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
-
-@TSSUB
-</div>
-
-## tasiyanc — post 9408
-
-<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
-
-📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
-
-❓ چطوری ازش استفاده کنیم ؟!
-
-1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
-
-2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
-
-3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
-
-📥 دانلود و کد پروژه : لینک گیت‌هاب
-
-🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
 </div>
 

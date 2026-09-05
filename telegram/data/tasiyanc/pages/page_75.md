@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 75
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 7896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7895
+
+<div align="center"><img src="files/post_7895_tasiyanc_7895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺مارک لوین از ارتش امریکا خواسته این ساختمان تخریب شود.
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7894
+
+<div align="center"><img src="files/post_7894_tasiyanc_7894.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺امروز 11 July، روز شاد کردن آدم‌های تنهاست.
+
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7893
+
+<div align="center"><img src="files/post_7893_tasiyanc_7893.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نقش پدر در زندگی:
+
+روح تمام پدر های آسمانی شاد🖤
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7892
+
+<div align="center"><video src="files/post_7892_tasiyanc_7892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_7892_tasiyanc_7892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعتان چووونه رفته نوکِ چرخ و فلک داره تبلیغ بالشت و پتو میکنه😐
+
+بالشتش هم اون وسط پرت شد پایین، میگه عیبی نداره یکم ترسو بود...
+
+@Tasiyanc ⭐️
+#Navid
+</div>
+
+## tasiyanc — post 7891
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای خالیشان قدر یک وطن درد میکند ؛ نه فقط در خانه هایشان که در دل تمام ایران
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برای فرزندانی که سهمشان از وطن یک گلوله بود 🖤
+
+@Tasiyanc ☑️
+</div>
 
 ## tasiyanc — post 7884
 
@@ -199,122 +288,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
-</div>
-
-## tasiyanc — post 7861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ پر سرعت نت مود 
-👉
-</div>
-
-## tasiyanc — post 7859
-
-<div align="center"><video src="files/post_7859_tasiyanc_7859.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7859_tasiyanc_7859.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ   OpenVpn   
-📶
-
-تست شده تمام نتها 
-🛜
-🛜
-🛜
-
-دانلود 
-📱 Android  
-🕹  iOS
-
-آموزش اتصال 
-
-
-اتصال امن برای همه 
-🇮🇷
-
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ختم کلام
-
-از اونجایی ک رسالت ما وصل کردن مردم بود تو قطعیا و تو دوران وصل شدن اینترنت شاهد افت چنل و جذب نبودم خیلی چیزا ثابت شد برام ، پس لف و جذب مهم نیست برامون تو قطعی اینترنت، ما چنلو پرایوت خواهیم کرد عضو جدید نخواهیم پذیرفت و اونایی که الان کنارم هستن باید وصل باشن ❤️
-
-مجموعه تاسیان ❤️‍🔥
-
-آدرس پابلیک
-@Tasiyanc
-</div>
-
-## tasiyanc — post 7843
-
-<div align="center"><video src="files/post_7843_tasiyanc_7843.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7843_tasiyanc_7843.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دریافت کانفیگ نت مود مخصوص شرایط اضطراری پر سرعت ( برای گیم و دانلود و اینستاگرام)
-
-
-👈 دریافت کانفیگ ها 
-👉
-</div>
-
-## tasiyanc — post 7842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-انفجار در چابهار 😐
-</div>
-
-## tasiyanc — post 7840
-
-<div align="center"><video src="files/post_7840_tasiyanc_7840.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7840_tasiyanc_7840.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-سرور سرعتی پرمیوم متد جدید سرور 
-⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-مناسب دانلود
-⬇️ وب‌گردی
-🔍 اینستاگرام 
-📸 جمینای 
-🤖
-
-
-
-اتصال امن برای همه 
-🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار جدید درباره تعویق امتحانات 👉 🔴خبرهای جنگ و تعویق امتحانات از اینجا پیگیری کنید
 </div>
 

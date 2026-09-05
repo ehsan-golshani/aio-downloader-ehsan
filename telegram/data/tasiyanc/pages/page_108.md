@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 6679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️خبرگزاری فارس:
+
+با توجه به اینکه امریکا متن پیشنهادی ایران را پذیرفته است احتمال تایید این متن در مراجع اصلی‌نظام بالا است‌
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای NPV ک زدم امروز وصلن
+</div>
+
+## tasiyanc — post 6677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc - DE VIP 🇩🇪⚡.npvt
+</div>
+
+## tasiyanc — post 6676
+
+<div align="center"><video src="files/post_6676_tasiyanc_6676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6676_tasiyanc_6676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 😎
+
+۳سرور سرعتی همه نت ها 
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 🕹 IOS 
+📱 Android 
+
+آموزش اتصال 🔹
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ موفق شد قیمت نفت رو با این خبر به زیر ۹۰ دلار برسونه
+ذات ترامپ :
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6673
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6672
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیویورک پست : ترامپ الان اعلام کرد توافق نهایی شده و تمومه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6671
 
@@ -147,64 +212,5 @@ Fotmob iOS
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6655
-
-<div align="center"><video src="files/post_6655_tasiyanc_6655.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6655_tasiyanc_6655.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به امید قهرمانی پرتغال به عشق آقام کریس 
-😱
-🤔
-</div>
-
-## tasiyanc — post 6654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆افتتاحیه جام‌جهانی امشب ساعت 22.30
-
-جدال مکزیک و آفریقا
-</div>
-
-## tasiyanc — post 6651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩 🔴ترامپ : نمی‌خواهم کاری کنم که مردم ایران تشنگی بکشند و آبی برای خوردن نداشته باشند، پس توافق کنید!
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 6650
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩🔴ترامپ: ایران بزودی به پایان می‌رسد، امشب هم بشدت بمباران خواهند شد!
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6649
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ رویترز :
-لشکر 82 هوابرد آمریکا ملقب به لشکر شیطان به زودی جزایر نفتی ایران را تصرف خواهند کرد
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6647
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔩🔴ترامپ: ما با جنگنده و هواپیما‌های خود بر فراز تهران پرواز می‌کنیم و ایرانی‌ها از آن خبر ندارن. ایران در تبلیغات خوبه اما در جنگیدن خوب نیست.
-@Tasiyanc ✅
 </div>
 

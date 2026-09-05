@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9360
+
+<div align="center"><img src="files/post_9360_tasiyanc_9360.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 🆕
+
+" Shadow Queen — Target: You ♟️🖤 "
+
+Prompt 🤖🤖
+
+
+A realistic photo of a powerful, mysterious young woman with dark, tousled hair, wearing a black blazer and several rings. She sits at a wooden table in a dimly lit, shadowy war room or study, holding a pen to her chin and looking directly at the camera with a confident, piercing gaze. In the foreground, a single black chess king piece sits on a detailed map. Behind her, a dark chalkboard reveals handwritten text: 'TARGET: YOU', with bullet points below: 'WEAKNESSES', 'ROUTINES', 'ALLIES', 'NEXT MOVE'. Surveillance photos are pinned to the wall next to the board. The atmosphere is intense, cold, and dramatic. The lighting is low and focused on her face and the text, creating depth and shadows.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
+
+## tasiyanc — post 9358
+
+<div align="center"><img src="files/post_9358_tasiyanc_9358.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
+1️⃣ شارژ و برداشت اسان و سریع
+2️⃣پر اپشن ترین سایت فعال در ایران
+3️⃣دارای مجوز رسمی curacao
+4️⃣کارت به کارت همیشه فعال
+
+➖هدایا بی نظیر ماف بت:👇
+🎁 100% بونوس خوشامدگویی
+🎁 تا 20%برگشت باخت هفتگی
+🎁10% شارژ اضافی روی شارژ دلاری
+🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
+
+👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
+g25
+🎯ادرس بدون فیلتر سایت:
+✅https://mafbet.com/fa/?btag=260368
+✔️ کانال تلگرام سایت:
+👑https://t.me/+8eCDvbzSV5JlZjlk
+</div>
+
+## tasiyanc — post 9356
+
+<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
+فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
+
+«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9353
 
@@ -155,106 +253,5 @@
 
 
 @Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9339
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 16 August، روز جهانی جوک گفتن و کصخل بازیه
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
-🎲 بازگشت هفتگی 🤩🤩 درصد
-🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
-
-🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
-👇🏻👇🏻
-🎲  🌐winro.io🎲
-
-کانال اخبار و هدایا👇🏻
-🌐Telegram
-</div>
-
-## tasiyanc — post 9337
-
-<div align="center"><img src="files/post_9337_tasiyanc_9337.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆 بیمه ی 🤩🤩🤩 درصدی سوپرکاپ فرانسه
-
-🎲 در صورت شارژ حساب و پیش بینی اشتباه بازی سوپرکاپ فرانسه 100 درصد مبلغ شرط را از وینرو هدیه بگیرید‼️
-
-⚽️ لانس⚽️✖️⚽️ پاری سن ژرمن
-⏰ امشب ساعت 22:15
-🚨 ورزشگاه بولار دللیس
-
-🎲ثبت نام آسان و سریع کلیک کنید🎲
-
-✅🤩🤩🤩🤩 بونوس اولین واریز
-✅🤩🤩🤩بونوس واریز کریپتو
-✅تا🤩🤩🤩🤩 بونوس روی برگه‌های ترکیبی
-✅پخش زنده ی تمام مسابقات 🎰
-✅درگاه اختصاصی برای کاربران 💰
-🔊اپلیکیشن حرفه ای 📱
-sr25
-    🎲🎲🎲🎲🎲  معتبرترین سایت ایران
-</div>
-
-## tasiyanc — post 9336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9335
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐 05.conf
-</div>
-
-## tasiyanc — post 9332
-
-<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
-
-«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
-
-
-@Tasiyanc ☑️
 </div>
 

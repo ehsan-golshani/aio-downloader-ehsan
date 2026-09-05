@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 115
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 6455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+new@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  OpenVPN♻️
+
+تست شده  سامانتل ، رایتل ، وای‌فای 🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال 🎚
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
+
+## tasiyanc — post 6451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 🚀⚡.txt
+</div>
+
+## tasiyanc — post 6450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی تاسیان 🆕
+
+✅160 کانفیگ تست شده
+
+فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+300 GB ⚡ VİP.npvt
+</div>
+
+## tasiyanc — post 6448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+2سرور   سرعتی پرمیوم متد جدید🚀
+
+حجم 300GB - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6447
 
@@ -137,62 +207,5 @@ Fast ⚡🪐 متد جدید.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رسما بخاطر اعراب لبنان و یه کشور دیگه وارد جنگ شدن بعد میگن جنگ طلب نیستیم 🤣🤣🤣
-</div>
-
-## tasiyanc — post 6427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST⚡TASIYAN🚀.npvt
-</div>
-
-## tasiyanc — post 6426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون سپاه :
-آغاز عملیات نصر 🚀
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مقدار نقض نمک آتش بسه
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر فوری
-هم اکنون حمله اسرائیل به چند سایت راداری در تهران
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨کانال ۱۲ اسرائیل:
-طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 6422
-
-<div align="center"><video src="files/post_6422_tasiyanc_6422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6422_tasiyanc_6422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوووری فارس :
-مجتمع پتروشیمی کارون رو زدن
-
-@TasiyanProxy
-</div>
-
-## tasiyanc — post 6421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️
 </div>
 

@@ -1,8 +1,100 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/15 00:10
+📅 آخرین بروزرسانی: 1405/06/15 01:59
 
 ---
+
+## tasiyanc — post 8881
+
+<div align="center"><video src="files/post_8881_tasiyanc_8881.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8881_tasiyanc_8881.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این برنامه کسایی که خنده های عجیب دارنو دعوت کرده - نتیجه رو ببینید🗿😂😂
+
+
+
+✈️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8880
+
+<div align="center"><video src="files/post_8880_tasiyanc_8880.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8880_tasiyanc_8880.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📌 آمار دیروز کانال تراست بت :
+
+
+✅✅✅ 3.46
+⬅️
+✅✅✅ 3.94⬅️
+✅✅✅ 3.46⬅️
+✅✅✅ 4.67⬅️
+✅✅✅ 2.76⬅️
+✅✅✅ 7.43⬅️
+✅✅✅ 1.30⬅️
+
+👇بدو جوین شو فرم بعدی بگیر
+👇
+🆔 https://t.me/+Aq2Af6VNNE44M2Rk
+🆔 https://t.me/+Aq2Af6VNNE44M2Rk
+</div>
+
+## tasiyanc — post 8879
+
+<div align="center"><video src="files/post_8879_tasiyanc_8879.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8879_tasiyanc_8879.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥بمب 100% آماده شد
+🔥
+
+💵دریافتی از منبع خارجی Wiliam Hills 
+
+
+⬅️رایگان در کانال قرار گرفت
+
+⬅️فقط جوین شید و تمام
+
+➡️ https://t.me/+Aq2Af6VNNE44M2Rk
+➡️ https://t.me/+Aq2Af6VNNE44M2Rk
+a9
+
+⚠️عضویت رایگان به مدت و تعداد محدود زودتر جوین بده
+⚠️
+</div>
+
+## tasiyanc — post 8878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8877
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8875
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC ⚡ 04.ovpn
+</div>
 
 ## tasiyanc — post 8865
 
@@ -210,122 +302,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 پروکسی متصل | پروکسی متصل
 
 ✈️@TASIYANC
-</div>
-
-## tasiyanc — post 8850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔻کد های مخفی ChatGpt - Gemini 🤖🤖
-
-کد : 10x THINK - به سوالاتت دقیق تر و عمیق تر جواب میده
-
-کد : EL10 - پاسخ سوالاتت رو ساده توضیح میده ، انگار بچه ده ساله ای
-
-کد : KILL CRITIC - گذاشتن این کد در اول سوالاتت باعث میشه باهات صادقانه و رک باشه و موافق نباشه باهات
-کد : ALT3 - با این کد به جای یک جواب سه تا گزینه بهت میده بابت سوالاتت
-
-
-✈️@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8849
-
-<div align="center"><video src="files/post_8849_tasiyanc_8849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8849_tasiyanc_8849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پاول دوروف مالک تلگرام میگه هیچ خانه، زمین، ملک، جت شخصی یا قایق تفریحی ندارد!!
-
-✈️@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8848
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-R8
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8847
-
-<div align="center"><img src="files/post_8847_tasiyanc_8847.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 8845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-4 سرور سرعتی لوکییشن 🇮🇹
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8844
-
-<div align="center"><video src="files/post_8844_tasiyanc_8844.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8844_tasiyanc_8844.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقعیت؛ ترامپ وقتی به کشتی‌ها حمله می‌شه تو هرمز :
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید⛓
-
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ @TASIYANC ⭐️
 </div>
 
