@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 134
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 5939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بس کن تاسیان علی
+</div>
+
+## tasiyanc — post 5937
+
+<div align="center"><img src="files/post_5937_tasiyanc_5937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
+
+## tasiyanc — post 5936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+-FAST MCI & MTN & RighTel 🔥.npvt
+</div>
+
+## tasiyanc — post 5934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+
+5سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  تست روی 🛜🛜🛜
+
+سرور  سرعتی🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑
+Proxy 0
+Proxy 1
+Proxy 2
+Proxy 3
+</div>
 
 ## tasiyanc — post 5930
 
@@ -129,71 +193,5 @@ vless://fad00171-5df8-442e-a208-54dea7f474f2@45.130.125.254:2096?mode=gun&securi
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
-سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5914
-
-<div align="center"><img src="files/post_5914_tasiyanc_5914.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙@Tasiyanc🚀Jet.npvt
-</div>
-
-## tasiyanc — post 5913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  🛜🛜🛜
-
- تک سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-v2Ray کانفیگ
-هم بزاریم پس راضی هستید فکنم
-</div>
-
-## tasiyanc — post 5911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐 متصل تموم اپراتورا ✅ vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com…
-</div>
-
-## tasiyanc — post 5910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 🔐
-متصل تموم اپراتورا ✅
-
-vless://4e93e8e6-8cc1-4a5b-b577-3d5bcae6ada0@104.17.121.238:2096?mode=gun&security=tls&alpn=h2%2Chttp%2F1.1&encryption=none&insecure=0&fp=chrome&type=grpc&serviceName=irdiplomacy.ir.rajanews.com.parstoday.com.donya-e-eqtesad.com.alalamtv.net.yjc.ir.tehrantimes.com&allowInsecure=0&sni=FAiNT-beliEFst4dReAkTi.WINdler.Co.Uk#%40Tasiyanc
-
-@Tasiyanc ✅
 </div>
 

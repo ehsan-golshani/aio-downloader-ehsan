@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها ⚡️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9382
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آغاز توزیع کارت کنکور ۱۴۰۵
+
+📡 داوطلبان کنکور تا چهارشنبه ۲۸ مرداد فرصت دارند کارت آزمون خود را از سایت سازمان سنجش دریافت کنند.
+
+📡 آزمون تجربی صبح، هنر و زبان‌های خارجی بعدازظهر پنجشنبه ۲۹ مرداد، ریاضی، فنی و انسانی صبح جمعه ۳۰ مرداد برگزار خواهد شد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9381
+
+<div align="center"><img src="files/post_9381_tasiyanc_9381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺بورس در آستانه ۵.۹ میلیونی شدن
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9380
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂این بازی خیلی این روزا ترند💥
+راحت میتونی پولت چند برابر کنی💖
+فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
+</div>
+
+## tasiyanc — post 9379
+
+<div align="center"><video src="files/post_9379_tasiyanc_9379.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9379_tasiyanc_9379.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟ویدئوبازی محبوب Chicky choice🌟
+
+فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
+
+💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
+⬅️امکان شارژ با کارت بانکی راحت و امن
+⬅️تسویه حساب سریع بدون احراز
+
+🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
+🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
+🚨ادرس ورود به سایت:
+💠http://betinja.bet/affiliates/?btag=2760677
+
+⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
+
+⭐کانال اطلاع رسانی سایت:👇 sr26
+💠https://t.me/+K0fAOE9hCUo3OGE8
+</div>
+
+## tasiyanc — post 9378
+
+<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9374
 
@@ -172,79 +250,5 @@ A realistic photo of a powerful, mysterious young woman with dark, tousled hair,
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9359
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدیمی ترین سایت فعال در ایران✅
-امنیت،امکانات،تضمین پرداخت💎
-</div>
-
-## tasiyanc — post 9358
-
-<div align="center"><img src="files/post_9358_tasiyanc_9358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
-1️⃣ شارژ و برداشت اسان و سریع
-2️⃣پر اپشن ترین سایت فعال در ایران
-3️⃣دارای مجوز رسمی curacao
-4️⃣کارت به کارت همیشه فعال
-
-➖هدایا بی نظیر ماف بت:👇
-🎁 100% بونوس خوشامدگویی
-🎁 تا 20%برگشت باخت هفتگی
-🎁10% شارژ اضافی روی شارژ دلاری
-🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
-
-👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
-g25
-🎯ادرس بدون فیلتر سایت:
-✅https://mafbet.com/fa/?btag=260368
-✔️ کانال تلگرام سایت:
-👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9356
-
-<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
-فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
-
-«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9353
-
-<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
-
-@Tasiyanc ⭐️
 </div>
 

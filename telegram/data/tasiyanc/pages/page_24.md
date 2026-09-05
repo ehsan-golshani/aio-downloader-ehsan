@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدیمی ترین سایت فعال در ایران✅
+امنیت،امکانات،تضمین پرداخت💎
+</div>
+
+## tasiyanc — post 9358
+
+<div align="center"><img src="files/post_9358_tasiyanc_9358.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
+1️⃣ شارژ و برداشت اسان و سریع
+2️⃣پر اپشن ترین سایت فعال در ایران
+3️⃣دارای مجوز رسمی curacao
+4️⃣کارت به کارت همیشه فعال
+
+➖هدایا بی نظیر ماف بت:👇
+🎁 100% بونوس خوشامدگویی
+🎁 تا 20%برگشت باخت هفتگی
+🎁10% شارژ اضافی روی شارژ دلاری
+🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
+
+👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
+g25
+🎯ادرس بدون فیلتر سایت:
+✅https://mafbet.com/fa/?btag=260368
+✔️ کانال تلگرام سایت:
+👑https://t.me/+8eCDvbzSV5JlZjlk
+</div>
+
+## tasiyanc — post 9356
+
+<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
+فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
+
+«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9353
+
+<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9352
 
@@ -167,88 +241,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9338
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎲 با اولین شارژ  🤩🤩🤩درصد شارژ بیشتر بگیر
-🎲 بازگشت هفتگی 🤩🤩 درصد
-🎲 هر واریز با کریتپو 🤩🤩 درصد هدیه بگیر
-
-🎲ورود به سایت و دریافت بونوس ۳۰۰ درصد
-👇🏻👇🏻
-🎲  🌐winro.io🎲
-
-کانال اخبار و هدایا👇🏻
-🌐Telegram
-</div>
-
-## tasiyanc — post 9337
-
-<div align="center"><img src="files/post_9337_tasiyanc_9337.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆 بیمه ی 🤩🤩🤩 درصدی سوپرکاپ فرانسه
-
-🎲 در صورت شارژ حساب و پیش بینی اشتباه بازی سوپرکاپ فرانسه 100 درصد مبلغ شرط را از وینرو هدیه بگیرید‼️
-
-⚽️ لانس⚽️✖️⚽️ پاری سن ژرمن
-⏰ امشب ساعت 22:15
-🚨 ورزشگاه بولار دللیس
-
-🎲ثبت نام آسان و سریع کلیک کنید🎲
-
-✅🤩🤩🤩🤩 بونوس اولین واریز
-✅🤩🤩🤩بونوس واریز کریپتو
-✅تا🤩🤩🤩🤩 بونوس روی برگه‌های ترکیبی
-✅پخش زنده ی تمام مسابقات 🎰
-✅درگاه اختصاصی برای کاربران 💰
-🔊اپلیکیشن حرفه ای 📱
-sr25
-    🎲🎲🎲🎲🎲  معتبرترین سایت ایران
-</div>
-
-## tasiyanc — post 9336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9335
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐 05.conf
-</div>
-
-## tasiyanc — post 9332
-
-<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
-
-«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
 </div>
 

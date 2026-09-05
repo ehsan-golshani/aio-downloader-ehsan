@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9526
+
+<div align="center"><video src="files/post_9526_tasiyanc_9526.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9526_tasiyanc_9526.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠قضیه مرگ آنیسا و بلاگر جدید آقا ماهد ک فیلمشون این روزا وایرال شده ( پشماتون بریزه)
+
+یکی از دوستای دختره فاش کرده که این زوج اسمشون آنیسا و ماهد بوده.
+این پسره به اسم ماهد خودش باعث فوت دختره شده!
+یه شب مهمونی بودن و موقع برگشت، ماهد که زیادی مست کرده بوده، میگه من میرسونمت خونه.
+با همون حال مست میشینه پشت فرمون و با ماشین میره تو کامیون، آنیسا همونجا درجا فوت میکنه و خود ماهد فقط پاش میشکنه!
+ماهد هم بعد از یه مدت شروع می‌کنه بلاگری به اسم و یاد آنیسا مظلوم نمایی کردن، آنیسا اواخر زندگیش می‌گفت ماهد داره بهم خیانت میکنه!
+﻿
+🩸 @Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 9525
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9524
+
+<div align="center"><img src="files/post_9524_tasiyanc_9524.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+(دارای محدودیت حجمی ⭕️ )
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9520
+
+<div align="center"><video src="files/post_9520_tasiyanc_9520.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9520_tasiyanc_9520.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امیر محمد خواننده معروف عربستانی 🇸🇦 "Seni Nerden gördüm " که اکسپلور مارو مورد لطف قرار داده موزیک ویدیو داد بیرون و قراره بزودی بصورت زنده در برج میلاد مغزمونو مورد عنایت قرار بده ((:
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9519
 
@@ -210,107 +331,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 
 https://t.me/+TmGWkUYH_8c0OWZk
 https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از کنکور چخبر چطوری بود؟
-</div>
-
-## tasiyanc — post 9503
-
-<div align="center"><img src="files/post_9503_tasiyanc_9503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید تاسیان  🆕
-
-Prompt 🤖🤖
-
-"Ultra-detailed studio portrait of [SUBJECT], shot straight-on from the chest up, centered symmetrical composition. Black-and-white, desaturated skin tones with a dramatic red rim light outlining the hair, ears, jawline, and shoulders. Subject wears a black turtleneck under a black tailored blazer, blending into a near-black background with a subtle deep-red glow behind the head. Serious, confident, direct-to-camera expression with chin slightly lifted. Moody cinematic lighting: soft frontal key light on the face, strong red backlight/edge light creating a glowing halo effect on hair strands. Sharp focus on the face, crisp skin texture and detail, editorial magazine cover quality, high contrast, 4:5 vertical framing, shot on medium format camera, 85mm lens look.
-
-آموزش استفاده 👉
-
-
-💋 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9501
-
-<div align="center"><img src="files/post_9501_tasiyanc_9501.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گرانترین شهر های ایران برای زندگی
-( بر اساس قدرت خرید ملک و ... ) !
-
-آخرین آپدیت خرداد ماه ۱۴۰۵ - قیمت ها میانگین گرفته شدن.
-منبع: مرکز آمار ایران و سامانه های املاک معتبر
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9500
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9499
-
-<div align="center"><img src="files/post_9499_tasiyanc_9499.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

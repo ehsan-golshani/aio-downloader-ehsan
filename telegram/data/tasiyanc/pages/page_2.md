@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9919
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9916
+
+<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9915
+
+<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9914
+
+<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9913
 
@@ -224,78 +298,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9898
-
-<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-🔗https://www.novigrad.top
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه دلار به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9895
-
-<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
-
-⭕️پس همین الان وارد کانال Evil Bet شو
-چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
-
-💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+TmGWkUYH_8c0OWZk
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9893
-
-<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9892
-
-<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری
-
-با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
-
-💋 @TASIYANC
 </div>
 

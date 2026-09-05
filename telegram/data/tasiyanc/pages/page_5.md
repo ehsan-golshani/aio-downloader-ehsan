@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9848
+
+<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9846
+
+<div align="center"><video src="files/post_9846_tasiyanc_9846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9846_tasiyanc_9846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیروز توی تبریز برای اولین بار ایونت مد و فشن برگزار شد:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی هر دلار 218000 طلای ۱۸ عیار 22.500.000 سکه تمام بهار 222.600.000 🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9844
+
+<div align="center"><img src="files/post_9844_tasiyanc_9844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره به دوست‌پسرش شک داشته و طی یه حرکت بشدت لاشیانه این پیام رو با شماره ناشناس به دوست‌پسرش داده 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9843
+
+<div align="center"><video src="files/post_9843_tasiyanc_9843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9843_tasiyanc_9843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9841
 
@@ -229,76 +291,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9827
-
-<div align="center"><video src="files/post_9827_tasiyanc_9827.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9827_tasiyanc_9827.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9826
-
-<div align="center"><video src="files/post_9826_tasiyanc_9826.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9826_tasiyanc_9826.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9825
-
-<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ادعای ترامپ:
-
-حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسایی: هر چه سریعتر اینترنت رو قطع کنید
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9821
-
-<div align="center"><video src="files/post_9821_tasiyanc_9821.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9821_tasiyanc_9821.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری مهر:
-
-پدافند شرق تهران فعال شده.
-
-💋 @Tasiyanc
 </div>
 

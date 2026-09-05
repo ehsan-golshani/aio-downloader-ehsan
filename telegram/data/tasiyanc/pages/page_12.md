@@ -1,8 +1,111 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9656
+
+<div align="center"><img src="files/post_9656_tasiyanc_9656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 سوغاتی شهرهای ایران در قدیم
+
++شما کدوم شهری سوغاتتون چیه؟
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9653
+
+<div align="center"><video src="files/post_9653_tasiyanc_9653.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9653_tasiyanc_9653.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود
+اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
+
+## tasiyanc — post 9651
+
+<div align="center"><video src="files/post_9651_tasiyanc_9651.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9651_tasiyanc_9651.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
+
+
+⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 
+🔥
+
+
+💵با عمو خسرو، آروم آروم به آرزوهات برس
+
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+J_q7c-COftQzOGM0
+https://t.me/+J_q7c-COftQzOGM0
+</div>
+
+## tasiyanc — post 9649
+
+<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گفته کارشناسان اقتصادی؛
+
+مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
+
++ برای دانشگاه ها هم همین ماجرا محتمله.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9648
+
+<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: اولین تریلر GTA 6 منتشر شد.
+
+مشاهده 27 دقیقه تریلر کامل GTA 6
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9647
 
@@ -303,82 +406,5 @@ https://www.novigrad.top
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
-😉
-
-با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
-🔥
-
-بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
-JOIN JOIN JOIN
-JOIN JOIN JOIN
-</div>
-
-## tasiyanc — post 9626
-
-<div align="center"><img src="files/post_9626_tasiyanc_9626.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات هوش مصنوعی فوتبال
-🤖
-
-ربات دستیار هوش مصنوعی و آنالیز مسابقات و پیشبینی بازی‌ها بر پایه AI 
-🔥
-
-ویژگی های کلیدی
-
-1- 10+ سایت شرطبندی بزرگ، از بازارهای آسیایی و اروپایی را پوشش می‌دهد.
-- هشدارهای زمان واقعی برای تحرکات مشکوک بازار.
-- کاهش ضریب، حرکات خط و قفل بازار را دنبال می کند.
-
-
-💠 لینک عضویت کانال راهنما ربات:
-https://t.me/+86B34ioXJtUwODg6
-https://t.me/+86B34ioXJtUwODg6
-</div>
-
-## tasiyanc — post 9625
-
-<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
-
-بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-🩸 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9623
-
-## tasiyanc — post 9621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
-
-+ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
-
-@Tasiyanc ⭐️
 </div>
 

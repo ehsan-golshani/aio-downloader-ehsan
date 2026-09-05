@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 8278
+
+<div align="center"><video src="files/post_8278_tasiyanc_8278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8278_tasiyanc_8278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از کتاب تاریخ نسل ما خونهای بسیاری میچکه....😞💔
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فاکس نیوز: یک گزارش محرمانه که برای ریاست‌ جمهوری اسلامی تهیه شده، نشان می‌دهد تنها ۹ درصد ایرانیان از حفظ وضع موجود حمایت می‌کنند.
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8276
+
+<div align="center"><img src="files/post_8276_tasiyanc_8276.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بریم به کی بگیم این ایرانِ ۵۰ سال پیش ما بود !
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8275
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار در یگان امداد سنندج ، تایید / تکذیب نمیشه
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ انفجار شدید در بوشهر
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات بی سابقه سپاه به مواضع کرد ها در سلیمانیه ، دلیلش چی می‌تونه باشه 🤔
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8272
 
@@ -133,69 +187,5 @@
 فردا روزی نت قطع شه امیدوارم گله مند نباشن❤️
 
 مدیریت مجموعه تاسیان
-</div>
-
-## tasiyanc — post 8249
-
-<div align="center"><img src="files/post_8249_tasiyanc_8249.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چی میشه گفت واقن به اینا :)
-
-کامنت آزاد ☺️
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8246
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود 📱
-
-3سرور  سرعتی پرمیوم ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال روی اندروید ⛓
-آموزش اتصال روی ویندوز  ⛓
-
-دانلود برنامه اندروید 🕹
-
-دانلود برنامه برای ویندوز 💻
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8245
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلاااااااااار 195 😐
-</div>
-
-## tasiyanc — post 8243
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش اعضا : اصفهان و استان های جنوبی اینترنت بشدت ضعیفه ،
-
-کامنت بزارید وضعیت نتتون چطوره
-</div>
-
-## tasiyanc — post 8242
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اخبار منتشر شده راجب قطعی اینترنت و دیتا سنترا فعلا کذبه نگران نباشید
-
-@Tasiyanc 
-⭐️
 </div>
 

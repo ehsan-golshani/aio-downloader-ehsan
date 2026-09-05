@@ -1,8 +1,71 @@
 # آرشیو کانال ProxyMTProto - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/14 13:06
+📅 آخرین بروزرسانی: 1405/06/14 16:39
 
 ---
+
+## ProxyMTProto — post 50289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media6.happtg.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50285
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: chestno.servera-dlya-tg-zdes-net.abrdns.com
+Port: 443
+Secret: eea65c7fc5a0d5669ba371a7ca88fc19496f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50282
 
@@ -118,69 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: Unknown
 Port: 853
 Secret: eeceaec97c86b6332adc48b3c081954e60766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: admin.valmira.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: t.meow-network.com
-Port: 443
-Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: starstg.neverspy.tech
-Port: 443
-Secret: eee19ef78b188ec248d8187c787a46ccca737461727374672e6e657665727370792e74656368
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

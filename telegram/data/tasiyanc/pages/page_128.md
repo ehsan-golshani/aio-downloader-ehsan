@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 6099
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازم باید بگیم ؟
+</div>
+
+## tasiyanc — post 6098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+سرور  سرعتی تست شده رایتل🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Vip SamanTel ⚡.npvt
+</div>
+
+## tasiyanc — post 6096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+2سرور  سرعتی تست شده رو سامانتل بقیه هم تست کنین🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#تب
+
+⚡️ همونجوری که میدونید کانفیگ فریا بسیار ضعیفن، من خودم جهت مصرف شخصی از اینجا کانفیگ تهیه میکنم با قیمت ارزون و کیفیت بالا گفتم برا شماهم بذارم نیازتون میشه
+
+چنلشون : @nacconfig ⭐️
+ایدی فروش:@nac_config ⭐️
+</div>
+
+## tasiyanc — post 6093
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+V2Ray سامانتل
+vless://1b9e301d-cecd-4eb1-8b36-eef811c2696d@de1.vitok.cc:443?security=reality&encryption=none&pbk=zxzgWvYs4pMN3fEduth1soI1yMZDkynb1bBM4tj85EE&headerType=none&type=tcp&sni=max.ru&sid=5e841fab#%F0%9F%87%A9%F0%9F%87%AA%F0%9F%9A%80%20%40Tasiyanc%20%D8%B3%D8%A7%D9%85%D8%A7%D9%86%D8%AA%D9%84
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6092
 
@@ -130,74 +193,5 @@ FastVip⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میخواستم کانفیگ اوپن دیگه بدم ولی ری اکشن کمه
-</div>
-
-## tasiyanc — post 6072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر عشقا
-</div>
-
-## tasiyanc — post 6071
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ جدید OpenVPN  ♻️
-
-تست شده روی همه اپراتورا🚀
-
-دانلود OpenVpn 🎚
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6069
-
-<div align="center"><img src="files/post_6069_tasiyanc_6069.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FastVip⚡.npvt
-</div>
-
-## tasiyanc — post 6068
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-6سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام 
-✅
-
-دانلود  NPV tunnel  
-🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Hot Servers 🔥🌶️.npvt
-</div>
-
-## tasiyanc — post 6062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-4سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-
-🦁  @Tasiyanc ✅
 </div>
 

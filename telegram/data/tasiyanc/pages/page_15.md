@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9576
+
+<div align="center"><img src="files/post_9576_tasiyanc_9576.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+sa2
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ پرس تی وی:
+ایران مستقیماً پیشنهاد مورد حمایت ترامپ که چند ساعت پیش از طریق پاکستان به ایران ارائه شد را رد کرد
+ایران از سرگیری مذاکرات با ایالات متحده را نیز نپذیرفت
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
+
+🚨 آموزش فعال سازی IPv6 
+⛓
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9565
+
+<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو:
+
+جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9564
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت🔐
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+آموزش اتصال ⛓
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9563
 
@@ -246,88 +343,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مجموعه تاسیان ، روز پزشک را به تمام پزشکان و کادر درمان باشرف تبریک میگوید ، یاد و نام پزشکان و کادر درمان جاویدنام ک جانفدای ایران شدند گرامی باد ❤️
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9548
-
-<div align="center"><video src="files/post_9548_tasiyanc_9548.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9548_tasiyanc_9548.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش تند علاحضرت شاهنشاه آریامهر محمدرضاشاه پهلوی به استفاده واژه جعلی خلیج به جای خلیج‌فارس
-
-اعراب را وادار به عقب نشینی و گفتن کلمه غلط کردیم دیگه تکرار نمیکنیم وادار کرد
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9547
-
-<div align="center"><video src="files/post_9547_tasiyanc_9547.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9547_tasiyanc_9547.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇳 @Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 9545
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9544
-
-<div align="center"><video src="files/post_9544_tasiyanc_9544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9544_tasiyanc_9544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خواننده عربستانی الاصل جشن ۲۰۰ کایی گرفت ! ۹۹٪ فالورای این خواننده دندان کی*ی عربستانی ایرانی ها می‌باشند .
-
-تو کشوری که دنیا جهان‌بخت ۱۰ میلیون فالور داره اینم باید ۱ میلیون فالور بگیره ، ایران درست نمیشه.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9543
-
-<div align="center"><video src="files/post_9543_tasiyanc_9543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9543_tasiyanc_9543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی تهران و برخی شهر ها جدیدا سایکو پارتی مد شده
-
-تو این پارتی باید مثل دیوونه و کصخلا برقصی فقط بی معنی
-اتحادیه روانپزشکی هشدار داده این نوع پارتی ها در حال افزایش هست و باعث مریضی های روانی میشه
 
 🩸 @Tasiyanc
 </div>

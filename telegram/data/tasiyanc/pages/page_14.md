@@ -1,8 +1,120 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/14 13:08
+📅 آخرین بروزرسانی: 1405/06/14 16:41
 
 ---
+
+## tasiyanc — post 9605
+
+<div align="center"><img src="files/post_9605_tasiyanc_9605.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏✅آپدیت 12.10.1 تلگرام منتشر شد !
+
+🟠 اضافه شدن قابلیت Rich Text:
+تلگرام قابلیت Rich Text رو برای کاربران پریمیوم بهبود داده و علاوه بر جدول‌سازی و... حالا میشه دکمه های مختلف با چند رنگ برای لینک، منشن و کپی یک متن خاص در اون ها قرار داد و پشتیبانی از آپلود فایل هم به اون اضافه شده.
+🟠پیام خوش آمد گویی:
+
+تلگرام در آپدیت جدید 12.10 امکان اضافه کردن پیام خوش آمدگویی به اعضای جدید رو اضافه کرده. برای فعال کردن پیام خوش آمدگویی فقط کافیه به تنظیمات کانال یا گروه مدنظرتون برین و در اونجا گزینه Welcome Message رو انتخاب کنید.
+
+🟠پیام کاستوم شده ی گیفت‌ها
+
+و در نهایت حالا در هنگام خرید گیفت های آپگرید شده و هدیه دادن اون ها، میتونین یادداشتی برای طرف مقابل روی گیفت درج کنید تا عشقتون رو بیش از پیش با شوآف کردنش به طرف ثابت کنید
+⬇️دانلود آپدیت «Android» و «iOS»
+🕹 اندروید Play Store
+📱  آیفون   Apple Store
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9603
+
+<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         
+😃
+😃😃😃
+         😃
+😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9601
+
+<div align="center"><img src="files/post_9601_tasiyanc_9601.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر لو رفته سامسونگ S27 که قراره تو سال 2027 عرضه بشه ، تا حدودی ماژول دوربین از آیفون ۱۷ پرومکس الهام گرفته شده
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9594
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9593
 
@@ -210,102 +322,5 @@ til.ac/0L4vyJf
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9576
-
-<div align="center"><img src="files/post_9576_tasiyanc_9576.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
-
-🪙سایت بین المللی و معتبر لاین بت
-
-❤️‍🔥اسپانسر لیگ  فرانسه
-💳 واریز و برداشت ریالی
-👀بازگشت باخت ب صورت هفتگی
-📣دارای پشتیبانی فارسی فعال
-🎁بونوس 💯 روز های دوشنبه
-sa2
-🎡کدهدیه ثبت نام ➡️ L5670
-
-🔗《 لینک سایت برای کاربران ایرانی》
-
-👍《 دانلود اپلیکیشن اندروید》
-❤️https://telegram.me/+dukgrB6-zGsyNGM8
-🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
-
-✔️ آموزش کامل و جامع شرطبندی👉
-</div>
-
-## tasiyanc — post 9573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ پرس تی وی:
-ایران مستقیماً پیشنهاد مورد حمایت ترامپ که چند ساعت پیش از طریق پاکستان به ایران ارائه شد را رد کرد
-ایران از سرگیری مذاکرات با ایالات متحده را نیز نپذیرفت
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
-
-🚨 آموزش فعال سازی IPv6 
-⛓
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9565
-
-<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو:
-
-جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت🔐
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-آموزش اتصال ⛓
-
-💋 @TASIYANC
 </div>
 
