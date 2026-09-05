@@ -1,8 +1,222 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 9473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9472
+
+<div align="center"><img src="files/post_9472_tasiyanc_9472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9471
+
+<div align="center"><img src="files/post_9471_tasiyanc_9471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖هوش مصنوعی بدون سانسور
+و بدون محدودیت سنی
+
+آدرس سایت:
+
+
+🆕 https://notrack.ai/chat
+
+
+⚡️بدون سانسور
+
+
+⚡️بدون ثبت نام
+
+
+⚡️بدون محدودیت
+
+
+⚡️پشتیبانی از زبان فارسی
+
+Join As @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9469
+
+<div align="center"><video src="files/post_9469_tasiyanc_9469.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9469_tasiyanc_9469.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃😃
+😃
+😃
+         
+😃😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9468
+
+<div align="center"><video src="files/post_9468_tasiyanc_9468.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9468_tasiyanc_9468.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+
+⭕️ تمام برنامه هارو ببندید بعد وصل بشید
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
+
+https://t.me/+Mcyp10mcfFA2MTM0
+جوین بدید
+</div>
+
+## tasiyanc — post 9461
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+دانلود اندروید 🕹
+
+
+دانلود آیفون 📱
+
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9460
 
@@ -172,135 +386,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
 
 📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9447
-
-<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
-توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9446
-
-<div align="center"><video src="files/post_9446_tasiyanc_9446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9446_tasiyanc_9446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖤امروز ۲۸ مرداد ، تولد فرزند ایران جاویدنام مهرداد مشتاقی ۲۷ ساله هست ، مهرداد ۱۹ دی در اراک با گلوله کشته شد او هوادار استقلال بود و عاشق زندگی ...
-
-
-@Tasiyanc 🏛
-</div>
-
-## tasiyanc — post 9445
-
-<div align="center"><img src="files/post_9445_tasiyanc_9445.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💻 گوشی مرموز Surface Phone ؛ محصول مایکروسافت که هیچ وقت به بازار نرسید !
-
-▪️تصاویر جدیدی از نمونه اولیه گوشی مایکروسافت با نام رمز Raven فاش شده که طراحی احتمالی Surface Phone در سال های 2013 و 2014 رو نشون میده. این دستگاه از نظر ظاهر شباهت زیادی به تبلت Surface 2 داشته.
-
-▪️این گوشی قرار بوده با نمایشگر 720p و سیستم عامل Windows Phone 8.1 عرضه بشه و از یکی از تراشه های سری Snapdragon کوالکام استفاده کنه.
-اما در نهایت پروژه Raven لغو شد و این گوشی هیچ وقت به دست کاربران نرسید.
-
-+ حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9443
-
-<div align="center"><img src="files/post_9443_tasiyanc_9443.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9442
-
-<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
-
-وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
-انگیزش قتلش هم اختلافات خانوادگی بوده.
-‌
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9441
-
-<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Decarys 🔥.ovpn
-</div>
-
-## tasiyanc — post 9439
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیرم و گاهی دلم یاد جوانی می‌کند
-بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
-
-نفری یه بیت بگید تو کامنت
 </div>
 

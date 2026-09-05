@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 8667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله پهپادی سپاه به مواضع کردها در اربیل
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8666
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸پرزیدنت دونالد جی ترامپ :
+
+ایرانیا ممکنه تسلیم بشن یا هم بخوان برن تو تاسیسات عمیق زیر زمینی پنهان بشن
+این ایرانیا غار های خیلی عمیقی دارن برای پنهان شدن.
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بی بی :
+
+چند هفته پیش، یکی از همکاران ما با یک متخصص روسی ملاقات کرد. آیا می‌دانید او ما را چگونه توصیف کرد؟ او گفت: «اسرائیل یک قدرت جهانی کوچک است.» این درست است.
+
+ما به اندازه چین نیستیم. ما به اندازه ایالات متحده نیستیم. ما به اندازه روسیه نیستیم.
+
+اما او ما را یک قدرت منطقه‌ای نخواند، بلکه ما را یک قدرت جهانی نامید. در برخی از زمینه‌ها، این درست است.
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقر حوثی ها در جزیره کمران توسط عربستان بمباران شد
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8662
+
+<div align="center"><img src="files/post_8662_tasiyanc_8662.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تکمیلی
+نیروی هوایی عربستان بندر الحدید مواضع حوثی هارو بمبارون کرد
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت دونالد ترامپ :
+
+ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
+اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
+</div>
+
+## tasiyanc — post 8659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف…
+</div>
+
+## tasiyanc — post 8658
+
+<div align="center"><video src="files/post_8658_tasiyanc_8658.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8658_tasiyanc_8658.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی
+وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال
+نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف قرار دادند در این عملیات خلبانان ایرانی موفق شدند پالایشگاه الدوره را با بمب 82
+بمباران کنند
+@TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8657
 
@@ -129,89 +219,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇺🇸🇮🇱 مانور مشترک ارتش آمریکا و اسرائیل در صحرای نقب
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سپاه :
-در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8640
-
-<div align="center"><video src="files/post_8640_tasiyanc_8640.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8640_tasiyanc_8640.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شیر سیاه گونه ای زیبا و در حال انقراض از شیر ها در آفریقا 🦁
-
-@TASIYANC✅
-</div>
-
-## tasiyanc — post 8639
-
-<div align="center"><video src="files/post_8639_tasiyanc_8639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8639_tasiyanc_8639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امکانات و ویژگی های خودرو ریاست جمهوری ایالات متحده🇺🇸
-
-ويژگى هاى اين خودرو كه هيولا نام دارد:
-هیولا توسط شرکت کادیلاک و تحت نظارت سرویس مخفی آمریکا ساخته شده و برخلاف ظاهر لوکسش، بیشتر شبیه یک تانک زرهی پنهان است.
-درون خودرو یک مرکز کنترل ارتباطی پیشرفته وجود دارد که رئیس‌جمهور میتواند در آن با فرماندهی ارتش یا مقامات اضطراری تماس فوری برقرار کند.
-خودرو همیشه در کاروانی ویژه همراه با چند نسخه مشابه حرکت میکند تا هویت واقعی رئیسجمهور مشخص نباشد.
-هیولا مجهز به دوربین دید در شب، سیستم اشعه مادون قرمز و تجهیزات دفع گاز اشک‌آور است.
-کلیدهای امنیتی اصلی خودرو فقط در اختیار مأمور ویژه‌ی سرویس مخفی است، و حتی راننده هم دسترسی کامل به همه‌ی سیستم‌ها ندارد
-
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8629
-
-<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ذات توافق :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8628
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
-@Tasiyanc 😐
-</div>
-
-## tasiyanc — post 8627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب جمعه به این آرومی؟ مشکوکه
-</div>
-
-## tasiyanc — post 8626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احوال شما؟
-</div>
-
-## tasiyanc — post 8625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیك موشك به کویت
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
-@Tasiyanc ⭐️
 </div>
 

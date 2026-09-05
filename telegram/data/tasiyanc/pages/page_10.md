@@ -1,8 +1,107 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 9734
+
+<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 توییت جدید دونالد ترامپ
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری پرواز های مهرآباد لغو شد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9731
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
+</div>
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9723
+
+<div align="center"><img src="files/post_9723_tasiyanc_9723.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 شیائومی قابلیت «نمایشگر حریم خصوصی هوشمند» را به پرچمداران خود اضافه میکند
+
+​🟧 شیائومی در حال توسعه یک فناوری کاربردی به نام Smart Privacy Display برای پرچمداران آینده خود است؛ قابلیتی که عملکردی مشابه فناوری نمایشگر حریم خصوصی سامسونگ در گلکسی S26 اولترا دارد و مانع از دیده‌شدن صفحه گوشی توسط افراد کناری (دیده‌بانی یا Shoulder Surfing) می‌شود.
+
+​ جزئیات و سازوکار این قابلیت:
+• فعال‌سازی هوشمند و خودکار: سیستم می‌تواند با تشخیص باز شدن محتوای حساس (مانند برنامه‌های بانکی، اسناد محرمانه یا پیام‌های خصوصی)، زاویه دید نمایشگر را محدود کند.
+
+• شخصی‌سازی برنامه‌ها: کاربر کنترل کاملی روی تنظیمات دارد و می‌تواند مشخص کند حالت حریم خصوصی برای چه اپلیکیشن‌هایی فعال باشد.
+​🗓 انتظار می‌رود این قابلیت جذاب برای نخستین‌بار در ماه سپتامبر هم‌زمان با معرفی پرچمداران جدید شیائومی، یعنی شیائومی 18 پرو و 18 پرو مکس در دسترس قرار گیرد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9721
+
+<div align="center"><video src="files/post_9721_tasiyanc_9721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9721_tasiyanc_9721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه رسانه ترکیه ای اومده از عشق و حال ایرانیا توی شهر وان ترکیه ویدیو منتشر کرده که خیلی وایرال شده:
+
+تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9716
 
@@ -182,134 +281,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9700
-
-<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9698
-
-<div align="center"><img src="files/post_9698_tasiyanc_9698.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9696
-
-<div align="center"><img src="files/post_9696_tasiyanc_9696.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏐 تیم ملی والیبال زیر ۱۷ سال ایران با شکست فرانسه در دیدار فینال، به هفتمین برد متوالی خود دست یافت و مقتدرانه قهرمان جهان شد.
-
-🇮🇷 25 | 25 | 22 | 25
-🇫🇷 18 | 15 | 25 | 12
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-(نسخه جدید دانلود کنید کانفیگای قبلی پاک کنید جدیدارو بزنید)
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9690
-
-<div align="center"><video src="files/post_9690_tasiyanc_9690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9690_tasiyanc_9690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 چند روز پیش توی باشگاه انقلاب تهران مسابقات و ایونت تنیس برگزار شد که حسابی سر و صدا کرده:
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9689
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9688
-
-<div align="center"><img src="files/post_9688_tasiyanc_9688.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
 </div>
 

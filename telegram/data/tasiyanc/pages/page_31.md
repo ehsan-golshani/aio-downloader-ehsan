@@ -1,8 +1,159 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 9193
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
+
+## tasiyanc — post 9192
+
+<div align="center"><video src="files/post_9192_tasiyanc_9192.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9192_tasiyanc_9192.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+a20
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+FaoDjhEVG34wMWFk
+https://t.me/+FaoDjhEVG34wMWFk
+</div>
+
+## tasiyanc — post 9185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸ترامپ:
+
+ایرانی‌ها با ما بازی می‌کنند، در اتاق‌های جلسات موافقت می‌کنند و در رسانه‌ها رد می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
+
+## tasiyanc — post 9182
+
+<div align="center"><img src="files/post_9182_tasiyanc_9182.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
+
+🔥کمپانی بین المللی We pari همون انتخاب🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖واریز اول و هر شنبه 2 برابر شارژ میشین
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+💖فعالیت بدون تخلف در کشورهای مختلف دنیا
+💖بازگشت بخشی از باخت به صورت هفتگی
+💖اسپانسر سوپر  لیگ ترکیه
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+
+🔥کانال اطلاع رسانی ایران:👇
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
+
+## tasiyanc — post 9181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قانون جدید
+اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
+به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9180
+
+<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Ethereal Lake Muse 🤍
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9178
+
+<div align="center"><img src="files/post_9178_tasiyanc_9178.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی 
+🆕
+
+" 🖤 Silent Noir Portrait "
+
+Prompt 🤖🤖
+
+
+Use uploaded images as face reference. Absolute face lock. Black-and-white minimalist portrait of an adult man sitting in a chair, waist-up, right profile/three-quarter profile, head slightly lowered, looking down. Wearing a black baseball cap (visor casting shadow over eyes), oversized black T-shirt, light shorts/pants, and a metal wristwatch. Calm, thoughtful mood. Plain light-gray textured wall background with negative space above and on the right; edge of a leather chair visible on the left. Soft diffused light from upper left, moderate contrast, deep facial shadows, realistic fabric/skin texture, subtle film grain. Studio/interior photography, 50mm, f/2.8, ISO 200, high detail, natural proportions, clean composition, 1:1 aspect ratio. Negative: color, bright tones, smile, eye contact, text/logos, extra people, heavy retouching, glossy look, overexposure, blur, artifacts, face/hand distortions, extra fingers, watermark.
+
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
 
 ## tasiyanc — post 9177
 
@@ -191,153 +342,5 @@ a19
 For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9163
-
-<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی کاپلی 🆕
-
-"Girl with White Bow"
-
-Prompt 🤖🤖
-
-> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9162
-
-<div align="center"><img src="files/post_9162_tasiyanc_9162.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی کاپلی 🆕
-
-"Midnight Street Romance❤️"
-
-Prompt 🤖🤖
-
-A candid, natural night photograph of a young, stylish Middle Eastern couple embracing in a deeply affectionate hug on a city street in Tehran. The man, with a short, well-kept dark beard and a modern fade haircut, wears a black casual bomber jacket and is kissing the woman gently on her forehead. The woman, with long, dark straight hair and a gentle, smiling expression with her eyes closed, is wearing a black leather moto jacket. Her hands are wrapped around his back, and his hands are wrapped around hers. They are positioned in the foreground, filling the frame in a tight embrace. The background is a typical Tehran street at night, with concrete-faced residential buildings, lit windows, a line of parked classic and modern cars (like a Peugeot 206 and older models), and some tall coniferous and plane trees under a dark night sky. The street lighting is ambient and natural, giving the image a low-light, realistic, almost phone-camera documentary feel with a slight grain, not overly polished. The depth of field is shallow, keeping the couple sharp while the background elements blur organically. High-resolution photo. (optional: add "no text" to avoid UI elements)
-
-﻿
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9161
-
-<div align="center"><video src="files/post_9161_tasiyanc_9161.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9161_tasiyanc_9161.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-"Dark Luxury Noir Suit Portrait"
-
-Prompt 
-🤖🤖
-
-A high-contrast black and white studio portrait of a handsome Middle Eastern man with styled dark hair and a neat, full beard. He is wearing a tailored dark suit, crisp white dress shirt, and a sleek dark tie. He poses in a three-quarter view, looking thoughtfully away from the camera. One hand gently rests over the other, showcasing a luxury metallic wristwatch. Moody low-key studio lighting, dark seamless background, ultra-realistic, 8k resolution, cinematic atmosphere.
-
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 
-🔞 شکار این بونوس ها هستن
-✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
-💯
-</div>
-
-## tasiyanc — post 9159
-
-<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤔 شروع رسمی لیگ های اروپا 
-❄️
-
-🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
-
-
-⚠️هر افزایش شارژ مساوی 
-2️⃣1️⃣
-🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 
-🤩 
-🤩🔤 کش بک باخت همه روزه:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g19
-@betinjabet
-</div>
-
-## tasiyanc — post 9157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9155
-
-<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Cozy Cat Cuddle 😒
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱
-ممنون ک هستید❤️
 </div>
 

@@ -1,8 +1,136 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 9092
+
+<div align="center"><video src="files/post_9092_tasiyanc_9092.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9092_tasiyanc_9092.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ #پیشنهاد_ویژه 
+⚠️
+
+🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
+دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید
+⭐
+</div>
+
+## tasiyanc — post 9091
+
+<div align="center"><video src="files/post_9091_tasiyanc_9091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9091_tasiyanc_9091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖱اگر #تندو تیز هستی اینو ببین 
+💵
+💰
+
+
+✊این بازی فقط سرعت عمل بالا میخواد😍
+
+
+🟢 ویدیو #آموزش بازی AVI رو براتون گذاشتم خیلی راحت با سرعت عمل بالا بدون ریسک کلی پول دراورد به همراه 
+🤩
+🤩% شارژ اضافی🔥
+
+
+💖 حتما ویدیو رو تا انتها ببینید
+💻لینک سایت بازی:
+
+💻 betinja.bet
+
+💻 betinja.bet
+
+🌐 کانال بونوس های رایگان r17
+@betinjabet
+</div>
+
+## tasiyanc — post 9090
+
+<div align="center"><img src="files/post_9090_tasiyanc_9090.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 پرامپت VIP مادر فرزندی
+
+عکس فرزند و مادر بدید ChatGpt یا Gemini پرامپت زیر را بزنید
+Prompt
+
+Строго сохранить внешность 1:1 по загруженным фото: черты лица, пропорции, возраст, форму глаз, носа, губ, естественную асимметрию лица; без идеализации, морфинга, face swap и beautify. Формат 9:16. Фотореалистичный студийный семейный портрет в минималистичном стиле. Черный бесшовный фон. Мама сидит ближе к камере, опираясь подбородком на обе ладони, локти слегка сведены, спокойная нежная улыбка и прямой взгляд в объектив. Сын стоит позади мамы, наклонившись вперед, обе ладони лежат на макушке мамы, подбородок опирается на руки. Мальчик улыбается, взгляд направлен прямо в камеру. Между ними чувствуется искренняя теплота и легкая игровая атмосфера. На маме легкое платье с мелким цветочным принтом, на сыне простая светлая футболка без принтов. Макияж у мамы: сияющая кожа, легкий контуринг, естественный румянец, нюдовые губы, длинные ресницы, подчеркнутые глаза. Волосы объемно уложены. Мягкий студийный свет через большой октабокс, плавные объемные тени, глубокий черный фон, классическая портретная обработка в черно-белой гамме с мягким контрастом, высокой детализацией кожи и волос, атмосферная fine art photography. 85 mm, f/2.0, shallow depth of field, photorealistic skin texture, black and white portrait, fine art studio photography, ultra realistic, high detail, 8K.
+
+
+🤩 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اتاق جنگ ارتش اسرائیل:
+آمریکا امروز فروش بیش از ۵ هزار فروند موشک رهگیر را به بحرین، کویت، قطر و امارات متحده عربی تأیید کرد تا ذخایر سامانه‌های پدافند هوایی این کشورها دوباره تأمین شود.
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9088
+
+<div align="center"><img src="files/post_9088_tasiyanc_9088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده :
+🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 
+📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سنایِ آمریکا طرح تحریم‌های جدید علیه روسیه و ایران با نام «لیندسی گراهام» رو تصویب کرد.
+
+86 رأی موافق ، 11 رأی مخالف.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9085
+
+<div align="center"><video src="files/post_9085_tasiyanc_9085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9085_tasiyanc_9085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نورا وینسنت ، زنی که تصور میکرد زندگی برای مردان بسیار راحت تر است ، ظاهر خود را به مرد تغییر داد ، اما ۱۸ ماه بعد ، بدلیل تحمل نکردن فشار های زندگی به عنوان یک مرد ، به زندگی خود پایان داد
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
+</div>
 
 ## tasiyanc — post 9083
 
@@ -171,205 +299,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9071
-
-<div align="center"><video src="files/post_9071_tasiyanc_9071.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9071_tasiyanc_9071.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 
-🖤 Config Unlimated Vip 
-⚡️━━━╮
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@216.205.52.151:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40TASIYANC%20%E2%9A%A1%EF%B8%8F%20fast
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@94.247.142.167:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@89.116.161.84:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@104.29.111.147:2087?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%94%B1
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@45.128.76.171:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-vless://4d10c997-4781-4cd9-82c3-15453523e12c@103.116.7.174:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=support.zoom.us.yxls.eu.cc&fp=chrome&type=ws&allowInsecure=0&sni=support.zoom.us.yxls.eu.cc#%40Tasiyanc%20%F0%9F%A9%B8
-
-ANDROID 
-🕹
-V2box
-🔐 Npv tunnel 
-🔐  V2rayNG 
-🔐
-iOS  
-📱
-V2BOX 
-🔐  Npv tunnel 
-🔐
-
-Join As @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9070
-
-<div align="center"><video src="files/post_9070_tasiyanc_9070.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9070_tasiyanc_9070.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-r16
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9069
-
-<div align="center"><video src="files/post_9069_tasiyanc_9069.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9069_tasiyanc_9069.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-r16
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9067
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-پایداری بالا ، مناسب گیم ، دانلود ، وبگردی ⚡️
-
-سرور سرعتی‌ لوکیشن Germany 📍
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون  📱
-
-آموزش اتصال 🔸
-
-اتصال امن برای همه 🇮🇷
-
-📱 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9066
-
-<div align="center"><video src="files/post_9066_tasiyanc_9066.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9066_tasiyanc_9066.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیووایرال شده پیرمرد شعبده باز 😞، همرو انگشت به دهن کرده 😐
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[SuperFast] @Tasiyanc 🔥.npvt
-</div>
-
-## tasiyanc — post 9064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9063
-
-<div align="center"><img src="files/post_9063_tasiyanc_9063.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قالیباف:
-حمله بزرگی در راه است... صبر کنید، نه، آن‌ها می‌خواهند مذاکره کنند. این دیپلماسی نمایشی است که بارها تکرار شده است.
-استفاده از زور و تهدید، همراه با وعده‌های دروغین و اخبار جعلی، یک استراتژی شکست‌خورده است.
-حقایق را بپذیرید و به تعهدات خود عمل کنید. ما به نمایش‌های بیشتر نیازی نداریم.
-
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ⭕️ اطلاع رسانی حداکثری ... کلاهبرداری ..
-
-🚨 جدیدا برخی کانالهای تلگرامی در حوزه ارز دیجیتال شروع به معرفی شت‌کوین ( توکن های کلاهبرداری) بدون پشتوانه میکنن که بخرید قراره پامپ شه میلیونر بشید ...
-از جایی که ۹ ساله کارم فارکس و ارزدیجیتاله باید به شما هشدار بدم به هیچ عنوان حتی ۱ دلار هم بابت خرید این توکنهای دیجیتال پول ندید ، بعد خرید حتی نمیتونید بفروشید ، لیکوییدیتی (پشتوانه) این توکنها دست خود سازنده توکن قرار میگیره و فروش توکنو میبندن و شما نمیتوانید بفروشید چون لاک میشه و پولتون حروم میشه ، این روزا داره شدیداً ترند میشه ، حتی شما هم میتونید با یه برنامه نویسی ساده ارز دیجیتال ( توکن) بسازید با هر اسمی بر پایه شبکه اسمارت چین یا اتریوم ، به دام این کلاهبردارهای بی ریشه نیوفتید ، اطلاع رسانی کنید به همه تا سرشون کلاه نره .
-
-Join @TASIYANC 
-✅
 </div>
 

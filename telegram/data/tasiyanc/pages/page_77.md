@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 7790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ترامپ : سران ایران یه مشت آدم کثیفن. اصلاً ازشون خوشم نمیاد. کلی وقتمون رو باهاشون هدر دادیم. بی‌عرضه و ناتوانن. بهتره فقط کار خودمون رو انجام بدیم.
+اونا می‌خوان رهبر آمریکا، یعنی من رو ترور کنن. سال‌هاست که من نفر اول لیستشونم.
+باید سرطان رو از همون اول ریشه‌کن کرد. من این‌طوری به قضیه نگاه می‌کنم.
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 7789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه ترامپ عصبانی شد
+</div>
+
+## tasiyanc — post 7788
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پروفایل چنل با اجازتون عوض شد ❤️
+</div>
+
+## tasiyanc — post 7785
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجب پخت پزی شد 💥 اندپوینتای جدید سرعتی
+دوستانی ک آیفون دارن تو ویندسکرایب بزنید
+</div>
+
+## tasiyanc — post 7778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ & گیم 🎮
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe ⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7777
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر هارو تو چنل پروکسی دنبال کنین
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 7764
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+2سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜
+🛜🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 7757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ انفجار مهیب و آتش سوزی بسیار بزرگ در اسکله مرکزی بندرعباس
+</div>
+
+## tasiyanc — post 7756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آکسیوس : حملات آمریکا ممکنه چند ساعت یا چند روز ادامه پیدا کنه
+</div>
 
 ## tasiyanc — post 7755
 
@@ -80,81 +174,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فوریییییی آکسیوس
 آمریکا امشب حملات گسترده ای به ایران خواهد داشت در جواب حملات به کشتی های تجاری در تنگه هرمز
-</div>
-
-## tasiyanc — post 7742
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چند تا کانفیگ نت مود & وایرگارد مخصوص گیم & اینجکتور داخل ربات گذاشتم بردارید ❤️
-
-👈دریافت کانفیگ ها 💘
-
-دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
-@StarTasiyan
-</div>
-
-## tasiyanc — post 7733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرومزاده ها
-</div>
-
-## tasiyanc — post 7732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه پاس به رونالدو ندادید دیشب
-</div>
-
-## tasiyanc — post 7731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بورنو فرناندز ، ویتینیا ناموستون گاییدم
-</div>
-
-## tasiyanc — post 7730
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سوپرررررر گللللللل زد
-</div>
-
-## tasiyanc — post 7729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسییییییییی
-</div>
-
-## tasiyanc — post 7722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مصر گل دوم رو زد
-</div>
-
-## tasiyanc — post 7721
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-7 سرور سرعتی پرمیوم متد جدید سرور ایتالیا ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 7720
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دروازه بان مصرو 😐😂
 </div>
 

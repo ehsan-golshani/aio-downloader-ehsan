@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 8271
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 حملات سپاه به اقلیم کردستان عراق
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8270
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار مهیب در قشم
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8268
+
+<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8267
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
+
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 8266
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ⭕️ سنتکام: امروز ( به وقت آمریکا ) سنگین‌ترین حمله از ابتدای جنگ به جمهوری اسلامی وارد خواهد شد
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8265
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار از چنل اصلی پوشش بدیم ؟ همه بگن
+
+بله 👍 نه 👎
+</div>
+
+## tasiyanc — post 8262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💪🚨 ترامپ:
+توافق اینقدر خوب پیش رفته که به زودی هزاران شهروند آمریکایی مهاجرت میکنن به ایران، منتها لباس نظامی تنشونه.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8258
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8257
 
@@ -126,96 +200,5 @@
 
 @Tasiyanc
 ✅
-</div>
-
-## tasiyanc — post 8240
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
-
-@Tasiyanc
-✅
-</div>
-
-## tasiyanc — post 8239
-
-<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8236
-
-<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
-
-
-
-@Tasiyanc ✅| بانك کانفیگ رایگان
-</div>
-
-## tasiyanc — post 8235
-
-<div align="center"><img src="files/post_8235_tasiyanc_8235.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی ۲۴ ساعت اخیر، سرچِ لغو عضویت جانفدا افزایش چند هزار درصدی داشته و به سرچ اول و ترند گوگل تبدیل شده!
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود اینجکتور 📶
-
-مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
-
-سرور سرعتی‌ تست شده 🔸
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون 📱
-
-آموزش اتصال ⛓
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc 💠
-</div>
-
-## tasiyanc — post 8233
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️
-</div>
-
-## tasiyanc — post 8232
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میره جنوب لبنان و نجات بده🤨
-</div>
-
-## tasiyanc — post 8231
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
-</div>
-
-## tasiyanc — post 8230
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واقعا مثل کشورم شدم همونطور که همه‌ جای ایران درد و غم داره منم کل بدنم درد و غم داره.
-
-@Tasiyanc✅
 </div>
 

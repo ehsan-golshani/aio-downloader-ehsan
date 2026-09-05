@@ -1,8 +1,175 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 9497
+
+<div align="center"><img src="files/post_9497_tasiyanc_9497.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ده تا از بهترین سریال های جهان که قبل مرگتون باید ببینید !
+
+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+https://www.novigrad.top
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9495
+
+<div align="center"><video src="files/post_9495_tasiyanc_9495.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9495_tasiyanc_9495.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید تاسیان 
+🆕
+
+" Golden Hour Red Puffer Editorial ✨ "
+
+Prompt 
+🤖
+🤖
+
+A cinematic high-fashion editorial portrait of a naturally beautiful young woman with a short wavy dark bob haircut and wispy bangs, wearing round orange-tinted sunglasses with thin metal frames, elegant pearl drop earrings, a fitted black ribbed turtleneck, and a bold oversized red puffer jacket. Soft glossy lips, natural makeup, realistic skin texture with visible pores and subtle facial details. Wind gently moves her short wavy hair and loose strands around her face.
+Photographed from a dramatic low angle, intimate close-up to upper-body framing, 85mm portrait lens, f/1.8, extremely shallow depth of field, tack-sharp focus on the face, warm golden-hour sunlight illuminating her skin and hair, soft natural shadows, clean cloudless blue sky in the background. Cinematic color grading, rich warm highlights, realistic contrast, subtle analog film texture, premium Vogue-style fashion editorial photography, ultra-photorealistic, professional photography, extremely detailed skin texture, natural facial proportions, authentic optical rendering, high dynamic range, sophisticated luxury fashion aesthetic.
+Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, over-smoothed skin, excessive retouching, artificial makeup, distorted face, deformed anatomy, bad eyes, asymmetrical glasses, extra fingers, low resolution, blurry face, harsh shadows, oversaturated colors, watermark, text, logo, cropped head.
+
+آموزش استفاده 
+👉
+
+
+@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 9494
+
+<div align="center"><img src="files/post_9494_tasiyanc_9494.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏛 راز مجسمه‌های غول‌پیکر یک معبد باستانی در ترکیه!
+در کوه نمرود، پیکره‌های عظیمی پیدا شدند که سرهایشان از بدن جدا شده بود؛ اما با پیدا شدن سرها، ماجرا عجیب‌تر شد!
+در این مجموعه، نشانه‌هایی از اهورامزدا و ایزدان مهر، بهرام و آناهیتا در کنار نمادهای شیر و شاهین دیده می‌شود؛ ترکیبی که پیوندهای فرهنگی و دینی ایران باستان را در این منطقه نشان می‌دهد.
+👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9493
+
+<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9491
+
+<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+sr30
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9490
+
+<div align="center"><img src="files/post_9490_tasiyanc_9490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📄معرفی PDF‌ساز آنلاین رایگان
+
+🌟 با این ابزار می‌تونی PDF بسازی و ویرایش کنی خروجی PDF بگیری از قالب‌های آماده استفاده کنی
+
+🔗لینک سایت: pdfmaker.ir
+
++ بدون نیاز به نصب نرم‌افزار
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9488
+
+<div align="center"><img src="files/post_9488_tasiyanc_9488.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9484
 
@@ -270,219 +437,5 @@ DNS 3⚡️
 لینک DNS Changer اندروید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9472
-
-<div align="center"><img src="files/post_9472_tasiyanc_9472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-
-📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9471
-
-<div align="center"><img src="files/post_9471_tasiyanc_9471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖هوش مصنوعی بدون سانسور
-و بدون محدودیت سنی
-
-آدرس سایت:
-
-
-🆕 https://notrack.ai/chat
-
-
-⚡️بدون سانسور
-
-
-⚡️بدون ثبت نام
-
-
-⚡️بدون محدودیت
-
-
-⚡️پشتیبانی از زبان فارسی
-
-Join As @Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9469
-
-<div align="center"><video src="files/post_9469_tasiyanc_9469.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9469_tasiyanc_9469.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃😃
-😃
-😃
-         
-😃😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9468
-
-<div align="center"><video src="files/post_9468_tasiyanc_9468.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9468_tasiyanc_9468.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-
-⭕️ تمام برنامه هارو ببندید بعد وصل بشید
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9463
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9462
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضوی از تیم اتکر ما شوید تا باهم کسانی که به حریم خصوصی مردم تجاوز می‌کنند را محو کنیم
-
-https://t.me/+Mcyp10mcfFA2MTM0
-جوین بدید
-</div>
-
-## tasiyanc — post 9461
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-تست شده روی همه نت ها 
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-دانلود اندروید 🕹
-
-
-دانلود آیفون 📱
-
-
-مناسب دانلود ⬇️ ترید 🤑
-اینستاگرام 📸 جمینای 🤖
-
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
 </div>
 

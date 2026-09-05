@@ -1,8 +1,92 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/06/14 19:40
+📅 آخرین بروزرسانی: 1405/06/14 21:54
 
 ---
+
+## tasiyanc — post 8642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سپاه :
+در بیست‌وهفتمین موج عملیات «نصر ۲»، ساختمان باقی‌ماندهٔ مرکز داده شرکت آمازون که برای پشتیبانی از اطلاعات و عملیات اطلاعاتی ارتش آمریکا مورد استفاده قرار می‌گرفت، هدف قرار گرفت و منهدم شد.
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8640
+
+<div align="center"><video src="files/post_8640_tasiyanc_8640.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8640_tasiyanc_8640.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شیر سیاه گونه ای زیبا و در حال انقراض از شیر ها در آفریقا 🦁
+
+@TASIYANC✅
+</div>
+
+## tasiyanc — post 8639
+
+<div align="center"><video src="files/post_8639_tasiyanc_8639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8639_tasiyanc_8639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امکانات و ویژگی های خودرو ریاست جمهوری ایالات متحده🇺🇸
+
+ويژگى هاى اين خودرو كه هيولا نام دارد:
+هیولا توسط شرکت کادیلاک و تحت نظارت سرویس مخفی آمریکا ساخته شده و برخلاف ظاهر لوکسش، بیشتر شبیه یک تانک زرهی پنهان است.
+درون خودرو یک مرکز کنترل ارتباطی پیشرفته وجود دارد که رئیس‌جمهور میتواند در آن با فرماندهی ارتش یا مقامات اضطراری تماس فوری برقرار کند.
+خودرو همیشه در کاروانی ویژه همراه با چند نسخه مشابه حرکت میکند تا هویت واقعی رئیسجمهور مشخص نباشد.
+هیولا مجهز به دوربین دید در شب، سیستم اشعه مادون قرمز و تجهیزات دفع گاز اشک‌آور است.
+کلیدهای امنیتی اصلی خودرو فقط در اختیار مأمور ویژه‌ی سرویس مخفی است، و حتی راننده هم دسترسی کامل به همه‌ی سیستم‌ها ندارد
+
+
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات توافق :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 8627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب جمعه به این آرومی؟ مشکوکه
+</div>
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
+
+## tasiyanc — post 8625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیك موشك به کویت
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8623
 
@@ -153,103 +237,5 @@ Fact @TASIYANC ✅
 تلمبه اسراییل به جنوب لبنان
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8610
-
-<div align="center"><video src="files/post_8610_tasiyanc_8610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8610_tasiyanc_8610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺عجیب ترین زبان جهان 🌍
-
-قبیلهٔ Kawelka در ارتفاعات پاپوا گینهٔ نو به سبک بیان پرقدرت و پرهیجانشان شناخته میشوند. گفتارشان برای بسیاری از غریبه ها شبیه فریاد یا مشاجره به نظر میرسد
-حتی وقتی فاصلهای بین افراد نیست.
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8609
-
-<div align="center"><video src="files/post_8609_tasiyanc_8609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8609_tasiyanc_8609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 ربات‌ها دارن آرام‌آرام میان تا بخشی از پازل زندگی ما بشن.
-مرز بین فیلم‌های علمی-تخیلی و زندگی واقعی داره باریک میشه
-
-
-چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
-
-Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
-</div>
-
-## tasiyanc — post 8605
-
-<div align="center"><video src="files/post_8605_tasiyanc_8605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8605_tasiyanc_8605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8603
-
-<div align="center"><video src="files/post_8603_tasiyanc_8603.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8603_tasiyanc_8603.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8602
-
-<div align="center"><video src="files/post_8602_tasiyanc_8602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8602_tasiyanc_8602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا :
-
-تعداد کشته‌ها به 3 نفر رسید.
-@TASIYANC ✅
 </div>
 
