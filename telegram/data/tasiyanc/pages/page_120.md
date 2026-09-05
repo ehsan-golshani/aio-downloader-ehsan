@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 6289
+
+<div align="center"><img src="files/post_6289_tasiyanc_6289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟢معرفی پروژه Defyx (قبلاً معرفی شده بود )
+
+🟡خلاصه مشخصات و تیم توسعه دهنده Defyx VPN
+​
+تیم توسعه دهنده : توسعه‌یافته توسط UnboundTech؛ یک پروژه جامعه‌محور، غیرتجاری و مستقل که هدفش فراهم کردن ابزار دسترسی به اینترنت آزاد است.
+​هسته و پروتکل‌ها: مبتنی بر هسته قدرتمند Xray؛ پشتیبانی کامل از پروتکل‌های VLESS، VMess، Trojan و SSH.
+​امنیت و شفافیت: کاملاً متن‌باز (Open Source) و بدون تبلیغات؛ کدهای برنامه برای تایید عدم سوءاستفاده از داده‌ها در گیت‌هاب شفاف‌سازی شده است.
+⭕️ ﻿راه اتصال فعلی آسان : توی تصویر نشان دادم فقط تیک x-ray بزنید کانکت شید در صورت وصل نشدن deep scan فعال کنین و پروتکل هایی مثل x-ray - Psiphon - outline - Warp انتخاب کنین
+
+🔹دانلود DefyxVpn android 🕹
+
+🔹دانلود DefyxVpn  iOS  🌐
+
+Join As @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا دقایقی دیگر VPN معرفی میکنم
+از امروز مرتب تحقیق میکنم درباره پروژه ها و تیم توسعه دهنده فیلترشکنها ، مناسب هاشو تست میکنم براتون معرفی میکنم
+</div>
+
+## tasiyanc — post 6287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ سرعتی (2).npvt
+</div>
+
+## tasiyanc — post 6286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Green Eyes ⚡💚.npvt
+</div>
 
 ## tasiyanc — post 6285
 
@@ -170,60 +210,6 @@ BadBoys 🚀 موشک.npvt
 📶  اختصاصی تاسیان  😏
 
 ۳ سرور پرومیوم  سرعتی 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام
-
-دانلود  NPV tunnel  🌐
-
-اتصال به سرورها 
-⏩
-
-✔️ @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 6265
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امن ✅
-</div>
-
-## tasiyanc — post 6264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ هشدار مهم
-
-🥳متأسفانه بعضی کانال‌ها بدون دانش فنی کافی، هر VPNی را صرفاً برای تبلیغ یا کسب درآمد به کاربران معرفی می‌کنند؛ بدون اینکه بدانند آن سرویس واقعاً امن است یا خیر.
-
-فراموش نکنید که با نصب یک VPN ناشناس، تمام ترافیک اینترنت و بخشی از اطلاعات خود را در اختیار یک شخص یا شرکت ناشناس قرار می‌دهید.
-❌ هر VPN تبلیغ‌شده‌ای امن نیست.
-❌ هر VPN رایگان و پرسرعتی قابل اعتماد نیست.
-❌ تعداد زیاد دانلود یا تبلیغات گسترده، نشانه امنیت نیست.
-قبل از نصب هر VPN، درباره سازنده، اعتبار و سیاست حفظ حریم خصوصی آن تحقیق کنید.
-
-توصیه ما این است که تا حد امکان از کانفیگ‌های مبتنی بر V2Ray/Xray یا... در کلاینت‌های معتبر مانند V2RayNG، ، Napsternet ,V2Box، Hiddify یا Nekoray ، wirguard , Ovpn استفاده کنید و از نصب VPNهای ناشناس و بی‌هویت خودداری کنید.
-﻿
-🔐 امنیت دیجیتال شوخی نیست؛ به توصیه افرادی که تخصص کافی ندارند، کورکورانه اعتماد نکنید.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6263
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐
-
-trojan://bb45f73f-795b-4a05-a8e0-ba717bce87e3@104.19.229.21:443?path=%2Fid-tksi&security=tls&insecure=0&host=api24-normal.tiktokv.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=api24-normal.tiktokv.com.cyylr.eu.cc#%F0%9F%AA%90%20%40Tasiyanc vless://47422044-85e3-426b-b6c4-3588cb24a3e5@45.130.125.160:443?path=%2Fae-bo&security=tls&encryption=none&insecure=0&host=s.blibli.com.cyylr.eu.cc&type=ws&allowInsecure=0&sni=s.blibli.com.cyylr.eu.cc#%E2%9A%A1%20%40Tasiyanc
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6262
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-سرور  سرعتی 🚀
 
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام
 

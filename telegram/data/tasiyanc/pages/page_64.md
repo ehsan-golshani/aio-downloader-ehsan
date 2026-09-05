@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 8241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نفت کش سپاهی توسط کماندو های امریکا به اسارت گرفته شد.
+
+با اعلام سنت‌کام تمام خدمه نفتکش سپاهی توسط تفنگداران آمریکایی بازداشت شدند
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رئیس مرکز روابط عمومی وزارت بهداشت: تا ساعت ۶:۳۰صبح ۲۶ تیر، شمار مصدومین حملات آمریکا از ۴۰۰ نفر عبور و ۳۸ نفر هموطن جانشان را از دست دادند
+
+@Tasiyanc
+✅
+</div>
+
+## tasiyanc — post 8239
+
+<div align="center"><video src="files/post_8239_tasiyanc_8239.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8239_tasiyanc_8239.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیویی که از یکی از سرباز های تیپ 388 بمپور ایرانشهر به شدت وایرال شده که داره آهنگ میخونه 💔
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
+
+## tasiyanc — post 8236
+
+<div align="center"><video src="files/post_8236_tasiyanc_8236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8236_tasiyanc_8236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 در حملات صبح امروز آمریکا به چابهار، برج ۸۰ متری کنترل دریایی این شهر بطور کامل فرو ریخت
+
+
+
+@Tasiyanc ✅| بانك کانفیگ رایگان
+</div>
 
 ## tasiyanc — post 8235
 
@@ -145,40 +191,5 @@
 با این حال طی ۲۴ ساعت گذشته وضعیت ترافیک اینترنت چند استان از جمله اصفهان، فارس، خراسان رضوی، البرز و تهران با کاهش نسبی ترافیک اینترنت مواجه بوده‌اند.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرتاب موشک از کرمانشاه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8217
-
-<div align="center"><video src="files/post_8217_tasiyanc_8217.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8217_tasiyanc_8217.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ از سنتکام : فیلم توقیف نفتکش ایرانی توسط ارتش نیروی دریایی آمریکا
-
-
-@Tasiyanc ⭐️| مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8216
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حمله آمریکا به بندرلنگه
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برق ایرانشهر انگار کاملا رفته @Tasiyanc✅
 </div>
 

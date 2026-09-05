@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9866
+
+<div align="center"><video src="files/post_9866_tasiyanc_9866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9866_tasiyanc_9866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 راننده جنسیس که توی مشهد تجمعات همه رو زیر گرفت:
+
+خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9865
+
+<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برخی مضرات رابطه جنسی که نمیدونستی!!
+
+۱.طول بیشتر از ۱۰ سانت به دیواره رحم برخورد و باعث درد زیادی میشه!
+۲.رابطه مقعدی خیلی خطرناکه و باعث انتقال مریضی میشه و هم دردناکه!
+۳.استفاده از قرص های تاخیری معمولا باعث گیجی و سردرد و ضرر میشه!
+۴.رابطه دهانی با زنان، این نوع رابطه مضر نیست اما ممکنه خیلیا بدشون بیاد!
+۵.رابطه جنسی با پیرزن‌ها و پیرمرد‌ها
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9863
+
+<div align="center"><img src="files/post_9863_tasiyanc_9863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9862
 
@@ -263,84 +314,5 @@ sg11
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9841
-
-<div align="center"><img src="files/post_9841_tasiyanc_9841.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (نصب کنید)
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9839
-
-<div align="center"><img src="files/post_9839_tasiyanc_9839.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ:
-
-دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9838
-
-<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
-
-+ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
-
-🩸 @Tasiyanc
 </div>
 

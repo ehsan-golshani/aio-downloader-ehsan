@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محاصره بی تاثیره ؟
+
+تانکر ترکرز: صادرات نفت خام جمهوری اسلامی در ماه آگوست (۳۰ روز گذشته) به صفر رسید
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9819
+
+<div align="center"><video src="files/post_9819_tasiyanc_9819.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9819_tasiyanc_9819.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حملات موشکی از اکثر شهرهای ایران به سمت پایگاه‌های آمریکا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9818
+
+<div align="center"><img src="files/post_9818_tasiyanc_9818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ جای نگرانی نیست، حجابش کامله!
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
++ متاسفانه این حادثه کشته داده
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9816
 
@@ -245,70 +289,6 @@ sg10
 آمادگی داریم تا ۲ میلیارد دلار ارز در بازار عرضه کنیم.
 گرد و خاک ایجادشده در بازار ارز فروخواهد نشست و افزایش اخیر نرخ ارز نیز بیش از آنکه ناشی از عوامل واقعی باشد، تحت تأثیر فضای روانی است.
 +قیمت هر دلار امروز ۱۰ شهریور از ۲۱۱ هم عبور کرد ولی شما ها از اراجیفتون خسته نشدید
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9790
-
-<div align="center"><img src="files/post_9790_tasiyanc_9790.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9789
-
-<div align="center"><img src="files/post_9789_tasiyanc_9789.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نذر متفاوت پسر سبزواری برای رسیدن به دختر مورد علاقه اش :|
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9788
-
-<div align="center"><img src="files/post_9788_tasiyanc_9788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
 
 🩸 @Tasiyanc
 </div>

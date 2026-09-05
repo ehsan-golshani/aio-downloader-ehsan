@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9841
+
+<div align="center"><img src="files/post_9841_tasiyanc_9841.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9840
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (نصب کنید)
+
+دانلود آیفون نسخه جدید 
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9839
+
+<div align="center"><img src="files/post_9839_tasiyanc_9839.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ:
+
+دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9838
+
+<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
+
++ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9837
 
@@ -221,49 +300,5 @@ til.ac/0L4vyJf
 پدافند شرق تهران فعال شده.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9820
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محاصره بی تاثیره ؟
-
-تانکر ترکرز: صادرات نفت خام جمهوری اسلامی در ماه آگوست (۳۰ روز گذشته) به صفر رسید
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9819
-
-<div align="center"><video src="files/post_9819_tasiyanc_9819.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9819_tasiyanc_9819.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هم اکنون حملات موشکی از اکثر شهرهای ایران به سمت پایگاه‌های آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9818
-
-<div align="center"><img src="files/post_9818_tasiyanc_9818.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ جای نگرانی نیست، حجابش کامله!
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
-+ متاسفانه این حادثه کشته داده
-
-
-🩸 @Tasiyanc
 </div>
 

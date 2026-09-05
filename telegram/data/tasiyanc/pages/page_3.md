@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9890
+
+<div align="center"><img src="files/post_9890_tasiyanc_9890.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 متاسفانه یه دختر ۱۹ ساله توی توییتر بعد از انتشار این پست‌ها، دست به خودکشی کرده و خبری ازش نیست .
+
+علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
+خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
+خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9889
+
+<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایران عالیه
+
+یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
++همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون نسخه جدید 
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9887
+
+<div align="center"><img src="files/post_9887_tasiyanc_9887.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9885
 
@@ -228,56 +288,5 @@ sa11
 میگی ن ؟ بیا تو چنلمون و ببین🔥
 @FuckBet @FuckBet @FuckBet
 @FuckBet @FuckBet @FuckBet
-</div>
-
-## tasiyanc — post 9866
-
-<div align="center"><video src="files/post_9866_tasiyanc_9866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9866_tasiyanc_9866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 راننده جنسیس که توی مشهد تجمعات همه رو زیر گرفت:
-
-خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9865
-
-<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برخی مضرات رابطه جنسی که نمیدونستی!!
-
-۱.طول بیشتر از ۱۰ سانت به دیواره رحم برخورد و باعث درد زیادی میشه!
-۲.رابطه مقعدی خیلی خطرناکه و باعث انتقال مریضی میشه و هم دردناکه!
-۳.استفاده از قرص های تاخیری معمولا باعث گیجی و سردرد و ضرر میشه!
-۴.رابطه دهانی با زنان، این نوع رابطه مضر نیست اما ممکنه خیلیا بدشون بیاد!
-۵.رابطه جنسی با پیرزن‌ها و پیرمرد‌ها
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9863
-
-<div align="center"><img src="files/post_9863_tasiyanc_9863.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
-
-💋 @Tasiyanc
 </div>
 

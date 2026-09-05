@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 7924
+
+<div align="center"><img src="files/post_7924_tasiyanc_7924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز روز جهانی کبابه😍
+
+بفرس برا رفیقت برات بخره☺️
+
+@Tasiyanc✅
+</div>
+
+## tasiyanc — post 7922
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐 مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویناک فیلم شیک زدن زن هیپهاپولوژیستو داده بیرون 😐😐
+
+مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 7919
+
+<div align="center"><img src="files/post_7919_tasiyanc_7919.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لیستی از هوش مصنوعی‌های رایگان که اکثرا دوتای اول رو فقط میشناختید!
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7917
 
@@ -183,52 +219,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 @Tasiyanc ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7883
-
-<div align="center"><img src="files/post_7883_tasiyanc_7883.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7882
-
-<div align="center"><img src="files/post_7882_tasiyanc_7882.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀‼️اینستاگرام در اقدامی جنجالی، قابلیتی اضافه کرده که بقیه می‌تونن باهاش از عکس‌های شما برای ساخت تصاویر هوش مصنوعی استفاده کنن.
-
-اگه اکانتتون پابلیکه، این قابلیت به‌صورت پیش‌فرض روشنه؛ اینطوری خاموشش کنید.
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7881
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تفاهم ایران و امریکا مثل مهریه‌ست
-کی داده کی گرفته🤣
-
-@Tasiyanc✅
-#Mobina
-</div>
-
-## tasiyanc — post 7879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💀با این سایت های ارزشمند تنبلی رو بزار کنار و خودخوانی زبان رو شروع کن : #معرفی_سایت
-
-1- سایت : TalkEnglish.com
-2- سایت : Storynory.com
-3- سایت : Lingua.com
-4- سایت : Grammerly.com
-5- سایت : Oysterenglish.com
-
-@Tasiyanc✅
-#Mobina
 </div>
 

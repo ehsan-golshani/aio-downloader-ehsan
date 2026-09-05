@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9935
+
+<div align="center"><img src="files/post_9935_tasiyanc_9935.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هشدار 🚨 ترفند جدید کلاهبرداری ( خطر از دست رفتن اکانت تلگرام )
+
+گاهی اوقات پیامی از اکانتی دریافت می‌کنید که کاملاً شبیه اکانت‌های معتبر مثل تلگرام یا حتی اکانت خودتان است. کلاهبرداران با استفاده از حروف غیرانگلیسی در نام کاربری، اکانت‌های مشابه می‌سازند تا تشخیص آن‌ها سخت‌تر شود.
+در این پیام‌ها معمولاً ادعا می‌کنند که اکانت شما به‌زودی حذف یا مسدود می‌شود و از شما می‌خواهند روی دکمه‌ای کلیک کنید یا کدی را ارسال کنید. این دکمه‌ها ممکن است شما را به صفحات فیشینگ یا فایل‌های APK آلوده هدایت کنند و تمام اطلاعات چت‌ها و کانال‌های شما به سرقت بروند.
+قبل از هر اقدامی، نام کاربری فرستنده را با دقت بررسی کنید و روی لینک‌ها یا دکمه‌های مشکوک کلیک نکنید.
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9934
+
+<div align="center"><a href="files/post_9934_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9933
+
+<div align="center"><img src="files/post_9933_tasiyanc_9933.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9932
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎
+
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+⚡دریافت کانفیگ های وایرگارد 🔥
+
+⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9929
 
@@ -19,8 +97,6 @@
 </div>
 
 ## tasiyanc — post 9928
-
-<div align="center"><a href="files/post_9928_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -225,46 +301,5 @@ til.ac/0L4vyJf
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 سپاه هفته قبل: اگه اسرائیل به تپه‌های علی الطاهر حمله کنه با خشم ما روبرو میشه
-+ اسرائیل دیشب اونجا رو فتح کرد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9910
-
-<div align="center"><video src="files/post_9910_tasiyanc_9910.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9910_tasiyanc_9910.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠وزیر خزانه داری آمریکا در مورد ایران:
-همه می‌خواهند این وضعیت به پایان برسد. ۴۷ سال است که با این رژیم شیطانی زندگی می‌کنیم و مردم جهان از این وضعیت خسته شده‌اند.
-مردم ایران، مردمی بزرگ هستند. اما متاسفانه، یک رژیم سرکوبگر بر آن‌ها حاکم است. یا این رژیم از درون تغییر خواهد کرد، یا مردم قیام خواهند کرد، وگرنه باید ببینیم چه اتفاقی می‌افتد.
-ما آن‌ها را از نظر اقتصادی به زانو درخواهیم آورد. آن‌ها در چیزی که من "چنگال مرگ اقتصادی" می‌نامم، گرفتار شده‌اند.
-ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
-
-💋 @Tasiyanc
 </div>
 

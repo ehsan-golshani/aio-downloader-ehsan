@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/14 02:41
+📅 آخرین بروزرسانی: 1405/06/14 13:08
 
 ---
+
+## tasiyanc — post 9448
+
+<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9447
+
+<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
+توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9446
+
+<div align="center"><video src="files/post_9446_tasiyanc_9446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9446_tasiyanc_9446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖤امروز ۲۸ مرداد ، تولد فرزند ایران جاویدنام مهرداد مشتاقی ۲۷ ساله هست ، مهرداد ۱۹ دی در اراک با گلوله کشته شد او هوادار استقلال بود و عاشق زندگی ...
+
+
+@Tasiyanc 🏛
+</div>
+
+## tasiyanc — post 9445
+
+<div align="center"><img src="files/post_9445_tasiyanc_9445.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 گوشی مرموز Surface Phone ؛ محصول مایکروسافت که هیچ وقت به بازار نرسید !
+
+▪️تصاویر جدیدی از نمونه اولیه گوشی مایکروسافت با نام رمز Raven فاش شده که طراحی احتمالی Surface Phone در سال های 2013 و 2014 رو نشون میده. این دستگاه از نظر ظاهر شباهت زیادی به تبلت Surface 2 داشته.
+
+▪️این گوشی قرار بوده با نمایشگر 720p و سیستم عامل Windows Phone 8.1 عرضه بشه و از یکی از تراشه های سری Snapdragon کوالکام استفاده کنه.
+اما در نهایت پروژه Raven لغو شد و این گوشی هیچ وقت به دست کاربران نرسید.
+
++ حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9444
 
@@ -228,69 +299,5 @@ Roast me , no filter , no mercy
 
 #N
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9428
-
-<div align="center"><img src="files/post_9428_tasiyanc_9428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فیلم تجاوز دو مرد به یک دختر ، متاسفم که وجدان ندارن دوتایی سر یه آدم مظلوم ...
-
-مشاهده فیلم
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9427
-
-<div align="center"><video src="files/post_9427_tasiyanc_9427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9427_tasiyanc_9427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا می‌دانستید که پس از اولین لیوان آب گرم صبحگاهی، چه اتفاقی در بدن ما می‌افتد؟👌
-
-#R
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9425
-
-<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
-
-🪙سایت بین المللی و معتبر لاین بت
-
-❤️‍🔥اسپانسر لیگ  فرانسه
-💳 واریز و برداشت ریالی
-👀بازگشت باخت ب صورت هفتگی
-📣دارای پشتیبانی فارسی فعال
-🎁بونوس 💯 روز های دوشنبه
-
-🎡کدهدیه ثبت نام ➡️ L5670
-
-🔗《 لینک سایت برای کاربران ایرانی》
-
-👍《 دانلود اپلیکیشن اندروید》
-❤️https://telegram.me/+dukgrB6-zGsyNGM8
-🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
-
-✔️ آموزش کامل و جامع شرطبندی👉
 </div>
 
