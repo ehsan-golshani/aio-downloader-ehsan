@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/06/14 16:41
+📅 آخرین بروزرسانی: 1405/06/14 19:40
 
 ---
+
+## tasiyanc — post 5569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو ده مین ۱۰۰ تا فور 😐
+</div>
+
+## tasiyanc — post 5568
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نامحدودن بستگی داره چقد سرور شلوغ باشه
+</div>
+
+## tasiyanc — post 5567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WAR 🔥.npvt
+</div>
+
+## tasiyanc — post 5566
+
+<div align="center"><img src="files/post_5566_tasiyanc_5566.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚀 4 SRVR.npvt
+</div>
 
 ## tasiyanc — post 5565
 
@@ -252,39 +278,5 @@
 trojan://humanity@188.121.109.79:40443?security=tls&type=ws&host=www.ignitelimit.com&path=%2Fassignment&sni=www.ignitelimit.com&allowInsecure=1#%40Tasiyanc%20%F0%9F%8D%B3%20TKB
 
 Join @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه ترکیبی پررو بریم اگه ری اکشن باشه
-</div>
-
-## tasiyanc — post 5537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده  📶
-
-برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی ✅ vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9 Join @Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 5535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترکیبی ✅
-
-vless://5b34187f-f811-58b1-7e68-3cc63df5df3b@meli.masterdadeh.ir:80?type=ws&host=meli.masterdadeh.ir&path=%2F#%40Tasiyanc%20%D8%AA%D8%B1%DA%A9%DB%8C%D8%A8%DB%8C%C2%B9
-
-Join @Tasiyanc 
-✅
 </div>
 

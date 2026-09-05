@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/06/14 16:41
+📅 آخرین بروزرسانی: 1405/06/14 19:40
 
 ---
+
+## tasiyanc — post 6919
+
+<div align="center"><video src="files/post_6919_tasiyanc_6919.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6919_tasiyanc_6919.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اختصاصی تاسیان 
+😎
+
+۳سرور سرعتی تست شده  
+🔥
+
+دانلود  وب‌گردی ، اینستاگرام
+🚀
+
+دانلود برنامه 
+🕹 IOS 
+📱 Android 
+
+آموزش اتصال 
+🔹
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 6916
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زودتر برید بردارید عشقا  واسه چنلا هم از اینجا جوین شید که یراست توی ربات کانفینگو بگیرید👇😋 @TelNegah @BLUEGUARD_NEWSS @VLinews @kamkarstore
+</div>
+
+## tasiyanc — post 6913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day 📶 وضعیت اتصال : فعال ✅ ⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید دریافت کانفیگ نامحدود رایگان 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
+
+## tasiyanc — post 6912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📊 حجم : نامحدود  |  ⏳انقضا : 30Day
+📶 وضعیت اتصال : فعال ✅
+⚠️ هرچی دانلود سنگین دارید باهاش انجام بدید
+
+دریافت کانفیگ نامحدود رایگان
+
+🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
+</div>
 
 ## tasiyanc — post 6911
 
@@ -155,47 +207,5 @@ ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpvWklvQTY5UTh5aGNRVjhrYTNQYTNB@82.38.31.11:80
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 متاسفانه قضیه خیلی جدیه ( اختلال شدید رو تمام اپراتورا )
-</div>
-
-## tasiyanc — post 6877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-2سرور سرعتی تست شده با همراه 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6876
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[48]🚀@Tasiyanc.conf
-</div>
-
-## tasiyanc — post 6874
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد مخصوص گیم  وب‌گردی 👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود 📱 WG tunnel 🕹 iOS WG
-
-آموزش اتصال ⛓
-
-T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
 </div>
 

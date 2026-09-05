@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/14 16:41
+📅 آخرین بروزرسانی: 1405/06/14 19:40
 
 ---
+
+## tasiyanc — post 8556
+
+<div align="center"><img src="files/post_8556_tasiyanc_8556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پست‌های جدید ترامپ در تروث:
+
+جدیدترین مورد از بیش از 52 هزار معترض بی‌گناه. وحشی‌ها!!! دموکرات‌ها کِی میخوان بیدار بشن؟؟؟
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8555
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میساقی مجری صداسیما : من ۱۰۰ نفرو حریف بودم ۱۰۱ نفر اومدن مادرمو گای*یدن
+</div>
+
+## tasiyanc — post 8554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+س*اک زدن دنیا خانوم جهانبخت برای تتلو 🤣
+
+مشاهده فیلم 👉
+</div>
+
+## tasiyanc — post 8552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.31:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
+vless://073d1d50-8478-47bf-a828-7a1b381931d5@104.17.147.129:443?path=%2Fodiyfws&security=tls&encryption=none&insecure=0&host=octopusss.net&fp=chrome&type=ws&allowInsecure=0&sni=octopusss.net#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%20Paris
+Location 🤯 🇫🇷
+
+@TASIYANC✅
+</div>
 
 ## tasiyanc — post 8551
 
@@ -173,41 +210,5 @@
 💪 حمله سپاه به کویت
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-⭕️ انفجار در بندرعباس
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) تا من زندم نمیذارم تورو سفید کنن دنیا جان.
-
-مشاهده فیلم 👉
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-💪 انفجار در شیراز
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 8508
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانال تاسیان متعلق به تمام کسانی هست که وطن پرستن نه حکومت پرست ❤️
 </div>
 
