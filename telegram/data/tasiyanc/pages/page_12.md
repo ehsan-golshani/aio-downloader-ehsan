@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال بت ویژن شو👇
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
+
+## tasiyanc — post 9676
+
+<div align="center"><video src="files/post_9676_tasiyanc_9676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9676_tasiyanc_9676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶
+🚨
+🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده
+🔥
+
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
 
 ## tasiyanc — post 9675
 
@@ -368,36 +395,6 @@ https://t.me/+J_q7c-COftQzOGM0
 مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
 
 + برای دانشگاه ها هم همین ماجرا محتمله.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9648
-
-<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: اولین تریلر GTA 6 منتشر شد.
-
-مشاهده 27 دقیقه تریلر کامل GTA 6
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9647
-
-<div align="center"><video src="files/post_9647_tasiyanc_9647.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9647_tasiyanc_9647.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این بادکنک ماهی کوچولو برای خواستگاری از عشقش ، آثار هنری خلق می‌کنه :)
-
-
 
 
 🩸 @Tasiyanc

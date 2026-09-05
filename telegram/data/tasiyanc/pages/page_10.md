@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش غیر رسمی از آغاز حملات موشکی سپاه همین الان
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9734
 
@@ -254,32 +270,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 210.000 تومان 😐
-</div>
-
-## tasiyanc — post 9701
-
-<div align="center"><img src="files/post_9701_tasiyanc_9701.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با این سایت به پرامپت‌های پولی دسترسی رایگان پیدا میکنید
-
-به هزاران پرامپت حرفه‌ای دسترسی پیدا کن، ایده بگیر و تصاویر جذاب‌تری با ابزارهای هوش مصنوعی بساز 🤖
-
-🔺 مجموعه‌ای از پرامپت‌های آماده 
-🔺 ایده‌های خلاقانه برای ساخت تصویر
-🔺 دسترسی به پرامپت های پوستر های تبلیغاتی
-🔺 مناسب برای مبتدی‌ها و حرفه‌ای‌ها 
-🔺 استفاده رایگان از امکانات و پرامپت‌ها 
-اگه دنبال ایده‌های جدید برای خلق تصاویر خاص هستی، این سایت رو از دست نده
-🌐 PromptHero.com
-
-
-💋 @Tasiyanc | تاسیان
 </div>
 

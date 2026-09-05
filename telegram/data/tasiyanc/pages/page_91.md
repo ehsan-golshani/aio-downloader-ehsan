@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 91
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 7257
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای بلژیک ریخته ۱۱ نفری دفاع میکنن
+</div>
+
+## tasiyanc — post 7256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه بجای طارمی سهراب سپهری بود با اختلاف گل میشد 😂
+</div>
 
 ## tasiyanc — post 7255
 
@@ -238,20 +250,5 @@ Wnd🍓 @Tasiyanc.conf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ Windscribe 
 🔐 می‌خوام بزارم ، همونطوری ک میدونید بهترین کلاینت VPN حال حاضره از هر لحاظ ، دانلودش داشته باشید بریم تو کارش ، این کانفیگ ها مناسب گیم و وبگردی هستن
-</div>
-
-## tasiyanc — post 7221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جرمی دوکو ستاره بلژیک در آستانه بازی با ایران بخاطر زایمان همسرش از اردوی بلژیک جدا شد
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7220
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-https://t.me/+DhVkjFb6qhZmYTFk کانفیگ بعدی اوپن VPN تو گپ تاسیان میزارم پین میکنم
 </div>
 

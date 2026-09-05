@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9648
+
+<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: اولین تریلر GTA 6 منتشر شد.
+
+مشاهده 27 دقیقه تریلر کامل GTA 6
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9647
+
+<div align="center"><video src="files/post_9647_tasiyanc_9647.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9647_tasiyanc_9647.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨این بادکنک ماهی کوچولو برای خواستگاری از عشقش ، آثار هنری خلق می‌کنه :)
+
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9646
 
@@ -356,26 +386,4 @@ https://t.me/+86B34ioXJtUwODg6
 </div>
 
 ## tasiyanc — post 9623
-
-## tasiyanc — post 9621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
-
-+ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9620
-
-<div align="center"><img src="files/post_9620_tasiyanc_9620.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: ماموریت به پایان رسید / ماموریت با موفقیت انجام شد .
-
-+ دو معنی میده
-
-🩸 @Tasiyanc
-</div>
 

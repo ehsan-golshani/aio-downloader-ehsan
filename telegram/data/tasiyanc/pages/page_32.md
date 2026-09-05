@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9165
+
+<div align="center"><img src="files/post_9165_tasiyanc_9165.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9164
+
+<div align="center"><video src="files/post_9164_tasiyanc_9164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9164_tasiyanc_9164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏬اینارو کسی به شما نمیگه !!!
+
+اگر مشکل خروجی در ChatGpt دارید و عکسی که میدید شبیه شما نیست تنها راهکار و روششو تاسیان بهتون میگه
+
+ویدیو رو نگاه کنید قدم به قدم برید جلو و پرامپت زیر رو کپی کنید جایی ک نشون دادم قرار بدید تا مشکلتون کامل حل شه !
+
+پرامپت زیر رو در قسمت Custom Instructions بزنید سیو کنید تمام
+
+For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9163
 
@@ -278,23 +322,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
 حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
-</div>
-
-## tasiyanc — post 9142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش وضعیت اینترنت همراه و ایرانسل
-</div>
-
-## tasiyanc — post 9141
-
-<div align="center"><video src="files/post_9141_tasiyanc_9141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9141_tasiyanc_9141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
-@Tasiyanc 
-⭐️
 </div>
 

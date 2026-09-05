@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 6802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جزئیات مراسم وداع، تشییع و تدفین علی خامنه ای رسما اعلام شد
+
+شنبه و یکشنبه 13 و 14 تیر (19 و 20 محرم): مراسم وداع با پیکر در مصلای امام خمینی تهران
+
+دوشنبه 15 تیر (21 محرم): مراسم تشییع در تهران.
+
+سه شنبه 16 تیر (22 محرم): مراسم تشییع در شهر قم
+
+پنجشنبه 18 تیر (24 محرم، شب شهادت امام سجاد ): تشییع در مشهد مقدس و سپس خاکسپاری در حرم امام رضا
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴🆕 حملات سایبری به زیرساخت های تمام بانکای کشور کارت و خدمات اغلب بانک ها از دسترس خارج شده است
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6799
 
@@ -176,27 +199,5 @@ VIP⚡ APEX ⛓️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ NEXUS 🪐.npvt
-</div>
-
-## tasiyanc — post 6775
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ NEXUS 🪐.npvt
-</div>
-
-## tasiyanc — post 6774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اختصاصی تاسیان 😎
-
-۳سرور سرعتی همه نت ها 🔥
-
-دانلود  وب‌گردی ، اینستاگرام🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 8463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8462
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویس علی دایی در مورد باخت آرژانتین 🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣🤣
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8461
 
@@ -134,17 +150,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گگگگگگگگگگگگگگگگگگگگل
-</div>
-
-## tasiyanc — post 8443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت اول اضافه تموم شد ، میریم پنالتیا؟
-</div>
-
-## tasiyanc — post 8440
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد برا اسپانیا ولی داور خطا گرف
 </div>
 

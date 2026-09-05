@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 8069
+
+<div align="center"><img src="files/post_8069_tasiyanc_8069.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرغی که مامانم گذاشته بود رو گاز و گفته بود حواست باشه نسوزه!
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8067
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 185
+</div>
 
 ## tasiyanc — post 8066
 
@@ -265,20 +282,5 @@
 پشماتون بریزه ، آمریکا دیشب اینجوری با قایق انتحاری عملیات انجام داده :
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ:
-🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
-فیکه خبر
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن فاک باز شد
 </div>
 

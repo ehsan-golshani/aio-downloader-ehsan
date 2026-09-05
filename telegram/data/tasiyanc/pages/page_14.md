@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
+
++ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9620
+
+<div align="center"><img src="files/post_9620_tasiyanc_9620.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: ماموریت به پایان رسید / ماموریت با موفقیت انجام شد .
+
++ دو معنی میده
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9619
 
@@ -315,38 +337,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9593
-
-<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨آیفون ۱۷ پرومکس ۲ ترابایت:
-۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
-
 
 🩸 @Tasiyanc
 </div>

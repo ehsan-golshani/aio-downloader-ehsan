@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 9892
+
+<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری
+
+با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9890
+
+<div align="center"><img src="files/post_9890_tasiyanc_9890.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 متاسفانه یه دختر ۱۹ ساله توی توییتر بعد از انتشار این پست‌ها، دست به خودکشی کرده و خبری ازش نیست .
+
+علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
+خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
+خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9889
 
@@ -262,31 +290,5 @@ til.ac/0L4vyJf
 جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
 @FuckBet @FuckBet @FuckBet
 @FuckBet @FuckBet @FuckBet
-</div>
-
-## tasiyanc — post 9867
-
-<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-sa11
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
-</div>
-
-## tasiyanc — post 9866
-
-<div align="center"><video src="files/post_9866_tasiyanc_9866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9866_tasiyanc_9866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 راننده جنسیس که توی مشهد تجمعات همه رو زیر گرفت:
-
-خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
-
-💋 @Tasiyanc
 </div>
 

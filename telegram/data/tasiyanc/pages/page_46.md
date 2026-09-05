@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/14 21:54
+📅 آخرین بروزرسانی: 1405/06/15 00:10
 
 ---
+
+## tasiyanc — post 8805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 معاون استاندار خوزستان:
+مناطقی در نزدیکی شهر شادگان در جنوب غربی ایران هدف حملات هوایی آمریکا قرار گرفته
+
+@TasiyanProxy
+</div>
+
+## tasiyanc — post 8803
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور 📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ لوکیشن آلمان و اسپانیا 💥
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC 💠
+</div>
 
 ## tasiyanc — post 8802
 
@@ -214,22 +243,5 @@ Multi Location ⚡
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 8782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ :
-
-نخست وزیر بی‌بی نتانیاهو از اسرائیل، به همراه من و نمایندگان جلسه بسیار خوبی داشتیم. تو این جلسه درباره موضوعات مهم زیادی صحبت شد
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8781
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
 </div>
 
