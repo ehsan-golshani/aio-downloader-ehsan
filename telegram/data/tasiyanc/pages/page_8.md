@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Low Ping Game & download
+IR server
+</div>
 
 ## tasiyanc — post 9803
 
@@ -349,18 +356,5 @@ til.ac/0L4vyJf
 +احتمالا میخواسته جور دیگه حساب کنه
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9775
-
-<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانستنی‌ها 😐
-پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
-
-یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
-
-🩸@Tasiyanc
 </div>
 

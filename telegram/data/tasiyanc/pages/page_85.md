@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 7498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم جدید تو چنل پروکسی فور شد به دلایلی , خواستید ببینید از اینجا دان کنید
+💘@TasiyanProxy
+</div>
 
 ## tasiyanc — post 7494
 
@@ -187,11 +194,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 محمد حسین میساکی بدون اینکه خندش بگیره خیلی جدی : تیمهای الجزایر و اتریش تبانی کردن 🤣🤣🤣
-</div>
-
-## tasiyanc — post 7458
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیگه از بدشانسی زر نزن آقای رامین رضائیان
 </div>
 

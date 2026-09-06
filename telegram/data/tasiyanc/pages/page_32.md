@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9180
+
+<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اختصاصی تاسیان 🆕
+
+اسم : Ethereal Lake Muse 🤍
+
+آموزش استفاده 👉
+
+دریافت پرامپت 👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9178
 
@@ -340,21 +356,5 @@ A high-contrast black and white studio portrait of a handsome Middle Eastern man
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه اتفاق بدی برام افتاده نیازمند انرژی خوب شما هستم 🌱 ممنون ک هستید❤️
-</div>
-
-## tasiyanc — post 9155
-
-<div align="center"><img src="files/post_9155_tasiyanc_9155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Cozy Cat Cuddle 😒
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
 </div>
 

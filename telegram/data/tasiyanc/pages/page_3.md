@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9925
+
+<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
+
+
+گذشته ی همدیگه‌رو جدی بگیرید:
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9924
 
@@ -232,19 +247,6 @@
 
 تو کانادا یه زن به نام اشلی شوهرش با GPS میوفته دنبالش ببینه کجا رفته سر از خونه دوس پسر زنه درمیاره و پسره به شوهر طرف میگه من اصن نمیدونستم این شوهر داره تو مجازی باهم اوکی شده بودیم بعدش مچ زنشو میگیره ، با پسره هم میرن دو شات ودکا میخورن میگن کو*ن لق طرف
 😞
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9905
-
-<div align="center"><video src="files/post_9905_tasiyanc_9905.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9905_tasiyanc_9905.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری / ‌به دنبال تهدید ترامپ مبنی بر کاهش همکاری نظامی: دفتر ریاست جمهوری کره جنوبی اعلام کرد که این کشور در حال آماده شدن برای اعزام نیروهای نظامی به تنگه هرمز است تا به تضمین عبور آزاد کشتی‌ها در این منطقه کمک کند
 
 
 💋 @Tasiyanc

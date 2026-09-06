@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9775
+
+<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی‌ها 😐
+پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
+
+یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
+
+🩸@Tasiyanc
+</div>
 
 ## tasiyanc — post 9773
 
@@ -237,15 +250,5 @@ https://Winamit.com/fa
 اونا خیلی ضعیف تر از قبل شدن.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

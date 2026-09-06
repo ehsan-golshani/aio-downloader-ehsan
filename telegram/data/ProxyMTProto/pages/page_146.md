@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 146
 
-📅 آخرین بروزرسانی: 1405/06/15 00:08
+📅 آخرین بروزرسانی: 1405/06/15 08:08
 
 ---
+
+## ProxyMTProto — post 47953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: wave.proxytelega.store
+Port: 443
+Secret: eee12b7ef9718c53b06c8a416387c8d4a6776176652e70726f787974656c6567612e73746f7265
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 47952
 
@@ -172,15 +181,6 @@ Secret: 7gggggggggggggggggggggh0cmFuc2xhdGUuZ29v
 Server: mtp10.sosproxy.space
 Port: 443
 Secret: ee3ab621bbb1dea6b3be09c8f3582c61a364726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 47933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15
-Secret: 7hYDAQIAAQAB_AMDhuJMOt1jZG4ueWVrdGFuZXQuY29t
 @ProxyMTProto
 </div>
 

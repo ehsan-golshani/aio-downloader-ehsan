@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 فیلم « بهشت پاره شده » • زیرنویس چسبیده فارسی ⚠️ ژانر : #بزرگسال | #درام 🔞 صحنه های +۱۸   خلاصه داستان : زندگی دو دخترخاله، دیوسا و کلودیا، زمانی که یک کارناوال به شهرشان می‌رسد، تغییر می‌کند. وقتی که هر دو دل به مردان کارناوال می بازن و اینجاست که…
+</div>
 
 ## tasiyanc — post 9976
 
@@ -28,8 +34,6 @@
 </div>
 
 ## tasiyanc — post 9975
-
-<div align="center"><a href="files/post_9975_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
@@ -275,18 +279,5 @@ til.ac/0L4vyJf
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg14
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

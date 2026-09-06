@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/15 00:08
+📅 آخرین بروزرسانی: 1405/06/15 08:08
 
 ---
+
+## ProxyMTProto — post 50588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50587
 
@@ -172,15 +181,6 @@ Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
 Server: dexter.brettanderson.co.uk.
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQtY2RueWVrdGFuZXQuY29tZmFyYWthdi5jb212YW4ubmFqdmEuY29tAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAAA
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 853
-Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
 @ProxyMTProto
 </div>
 

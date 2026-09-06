@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 8231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هواپیمای عراقچی در حال خروج از ایران @Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8230
 
@@ -171,13 +177,5 @@
 
 
 @Tasiyanc ⭐️ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فرودگاه ایرانشهر مورد حمله قرار گرفت
-
-@Tasiyanc ⭐️
 </div>
 

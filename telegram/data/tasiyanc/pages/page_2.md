@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sg14
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9950
 
@@ -311,20 +324,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9925
-
-<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
-
-
-گذشته ی همدیگه‌رو جدی بگیرید:
-
-💋 @Tasiyanc
 </div>
 

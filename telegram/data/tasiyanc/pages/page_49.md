@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 8742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود اینجکتور📶
+
+مناسب گیم ، وبگردی ، دانلود ، پایداری بالا
+
+سرور سرعتی‌ تست شده 🔸
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون  📱
+
+آموزش اتصال ⛓
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc 💠
+</div>
 
 ## tasiyanc — post 8741
 
@@ -199,13 +219,5 @@ Multi Loc ⚡ @Tasiyanc.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨⭕️⭕️ ترامپ اعلام کرد سال ۲۰۲۸ نیز کاندیدای ریاست جمهوری خواهد بود
-
-@TASIYANC ✅
 </div>
 

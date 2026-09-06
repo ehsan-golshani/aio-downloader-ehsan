@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9664
+
+<div align="center"><img src="files/post_9664_tasiyanc_9664.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 بهترین برندها در هر زمینه دیجیتال طبق رضایت استفاده کننده‌ها ..
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9663
 
@@ -394,16 +405,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9634
-
-<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی
-- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
-
-💋 @Tasiyanc
 </div>
 

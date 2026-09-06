@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9235
 
@@ -210,15 +221,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9211
-
-<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
-
-@Tasiyanc ⭐️
 </div>
 

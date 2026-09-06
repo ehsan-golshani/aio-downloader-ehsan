@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9553
 
@@ -278,28 +291,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠صداوسیما در اقدامی عجیب، اطلاعات محرمانه و مکان‌های دقیق تردد پسر ترامپ و نقاطی که در تیررس است را منتشر کرد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
-
-DNS1 😎
-235.58.241.130
-49.129.66.60
-
-DNS2 😎
-36.108.70.10
-136.224.75.103
-
-DNS3 😎
-62.114.222.110
-223.42.10.179
-
-IPv4 Location 🇩🇪
 
 🩸 @Tasiyanc
 </div>

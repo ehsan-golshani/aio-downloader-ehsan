@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نپسترنت📱📍
+
+•آموزش اتصال ⚡️
+
+🔴پینگ نگیرید
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9315
 
@@ -237,13 +249,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 اتصال امن برای همه 🇮🇷
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9289
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
 </div>
 

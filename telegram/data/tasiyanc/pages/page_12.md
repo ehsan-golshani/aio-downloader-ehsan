@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/15 03:40
+📅 آخرین بروزرسانی: 1405/06/15 08:10
 
 ---
+
+## tasiyanc — post 9689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وینامیت 🔥
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+</div>
 
 ## tasiyanc — post 9688
 
@@ -383,16 +391,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9664
-
-<div align="center"><img src="files/post_9664_tasiyanc_9664.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 بهترین برندها در هر زمینه دیجیتال طبق رضایت استفاده کننده‌ها ..
-
-
-🩸 @Tasiyanc
 </div>
 
