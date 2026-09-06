@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
 
 ## tasiyanc — post 9867
 
@@ -302,18 +310,6 @@ sg11
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دختره به دوست‌پسرش شک داشته و طی یه حرکت بشدت لاشیانه این پیام رو با شماره ناشناس به دوست‌پسرش داده 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9843
-
-<div align="center"><video src="files/post_9843_tasiyanc_9843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9843_tasiyanc_9843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
 
 💋 @Tasiyanc
 </div>

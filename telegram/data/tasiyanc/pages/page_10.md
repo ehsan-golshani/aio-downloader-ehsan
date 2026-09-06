@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9761
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری | ترامپ:
+
+ایالات متحده به حمله‌ای که شب گذشته علیه نیروهای آمریکایی انجام شد، پاسخ خواهد داد.
+
+"ما آنها را با قدرت مورد هدف قرار خواهیم داد."
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9758
 
@@ -236,14 +247,6 @@ til.ac/0L4vyJf
 🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
 
 +با یه باک پر کجا رو داری بری هموطن؟
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تیتر اول رویترز: جنگ آغاز شده است
 
 🩸 @Tasiyanc
 </div>

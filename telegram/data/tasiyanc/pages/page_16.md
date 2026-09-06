@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9594
 
@@ -304,17 +312,5 @@ sa2
 ⛓
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9565
-
-<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو:
-
-جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
-
-💋 @Tasiyanc
 </div>
 

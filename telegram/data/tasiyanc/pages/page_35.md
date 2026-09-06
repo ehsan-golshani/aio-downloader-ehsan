@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9120
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه پرامپت VİP تاسیان برا دختر خانومای چنل ، بریم توکارش
+</div>
 
 ## tasiyanc — post 9119
 
@@ -212,22 +218,5 @@ A person with slicked-back dark hair wearing oversized square sunglasses is show
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرامپت کاپلی VIP اختصاصی تاسیان 
 🆕 😎 عکس خودتون و پارتنرتون بدید به AI Prompt 🤖🤖 "Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim…
-</div>
-
-## tasiyanc — post 9095
-
-<div align="center"><img src="files/post_9095_tasiyanc_9095.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت کاپلی VIP اختصاصی تاسیان 
-🆕 😎
-
-عکس خودتون و پارتنرتون بدید به AI
-
-Prompt 🤖🤖
-"Cinematic 70s retro still, medium shot. A cool couple inside a vintage red sports car on a sunny day. Man with a mustache and beard, wearing circular sunglasses and a denim shirt, driving with a lit cigar in his mouth, hand on the wheel. Woman with dark, shaggy hair and bangs, wearing gold-framed aviator sunglasses and a denim shirt, leaning her head on the man's shoulder. View is framed by the car's windshield and wipers. The red hood is prominent in the foreground. Gritty film grain, warm color correction, vintage photography. Shot with Kodak Portra film."
-آموزش استفاده 👉
-
-@TASIYANC ✅
 </div>
 

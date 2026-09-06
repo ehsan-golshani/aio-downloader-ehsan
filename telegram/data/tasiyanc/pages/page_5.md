@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9893
+
+<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9892
 
@@ -282,13 +294,5 @@ til.ac/0L4vyJf
 🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
 </div>
 

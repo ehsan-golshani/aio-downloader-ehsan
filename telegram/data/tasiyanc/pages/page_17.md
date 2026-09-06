@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9565
+
+<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو:
+
+جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9564
 
@@ -312,19 +324,5 @@ til.ac/0L4vyJf
 ⭕️ در صورت ارور چند بار بزنید
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9544
-
-<div align="center"><video src="files/post_9544_tasiyanc_9544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9544_tasiyanc_9544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خواننده عربستانی الاصل جشن ۲۰۰ کایی گرفت ! ۹۹٪ فالورای این خواننده دندان کی*ی عربستانی ایرانی ها می‌باشند .
-
-تو کشوری که دنیا جهان‌بخت ۱۰ میلیون فالور داره اینم باید ۱ میلیون فالور بگیره ، ایران درست نمیشه.
-
-🩸 @Tasiyanc
 </div>
 

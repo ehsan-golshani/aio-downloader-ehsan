@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9987
+
+<div align="center"><video src="files/post_9987_tasiyanc_9987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9987_tasiyanc_9987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9986
 
@@ -305,19 +317,5 @@ til.ac/0L4vyJf
 این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
 
 آیدی عددی اکانت 7189150445
-</div>
-
-## tasiyanc — post 9963
-
-<div align="center"><video src="files/post_9963_tasiyanc_9963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9963_tasiyanc_9963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روایت یه خیانت پشم ریزان از سمت یک مشتری آقا در طلافروشی
-
-+ به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 8806
+
+<div align="center"><video src="files/post_8806_tasiyanc_8806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8806_tasiyanc_8806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو های منتشر شده از زار و شیون اعضای حشدالشبی بر سر اجساد بستگانشان
+
+
+⭐ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8805
 
@@ -231,16 +244,6 @@ Multi Location ⚡
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ سپاه : ساعاتی پیش سه نفتکش متخلف که بی‌توجه به اخطارهای ما، به حرکت در مسیر ناامن و غیرقانونی ادامه می‌دادند مورد اصابت قرار گرفته و متوقف شدند.
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8783
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فاکس نیوز : برد موشک های جمهوری اسلامی به اروپا هم میرسند.
-
-
 @Tasiyanc 
 ⭐️
 </div>

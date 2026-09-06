@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 128
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 6144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  متد جدید
+
+4سرور  سرعتی تست شده رو همراه ، بقیه تست کنن🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6143
 
@@ -202,11 +218,5 @@ Fast2⚡@Tasiyanc.conf
 دانلود برنامه Wg tunnel 🕹
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc چنل تاسیان.conf
 </div>
 

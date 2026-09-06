@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 7640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پخت پز کردم براتون🔥
+</div>
 
 ## tasiyanc — post 7634
 
@@ -160,11 +166,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc _ SuperFast⚡.npvt
-</div>
-
-## tasiyanc — post 7608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرتغال به رهبری رونالدو 🇵🇹 به دور یک هشتم رفت و رقیب اسپانیا شد ⚡️
 </div>
 

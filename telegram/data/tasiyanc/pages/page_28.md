@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از فوبیاتون بگید .... از چی میترسید؟
+</div>
 
 ## tasiyanc — post 9302
 
@@ -195,6 +201,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9278
 
 ## tasiyanc — post 9276
-
-## tasiyanc — post 9275
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9649
+
+<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گفته کارشناسان اقتصادی؛
+
+مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
+
++ برای دانشگاه ها هم همین ماجرا محتمله.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9648
 
@@ -384,6 +401,4 @@ https://t.me/+86B34ioXJtUwODg6
 
 🩸 @TASIYANC ✅
 </div>
-
-## tasiyanc — post 9623
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 8842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+سرور  سرعتی پرمیوم ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال روی اندروید⛓
+
+آموزش اتصال روی ویندوز  ⛓
+
+دانلود برنامه اندروید🕹
+
+دانلود برنامه برای ویندوز 💻
+
+مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8840
 
@@ -254,18 +278,5 @@ vless://b9b1e7c9-4160-49b4-85a4-2f096706509a@v-de-node-03.bot-auth.com:8443?secu
 
 ⭐ @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 8806
-
-<div align="center"><video src="files/post_8806_tasiyanc_8806.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8806_tasiyanc_8806.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو های منتشر شده از زار و شیون اعضای حشدالشبی بر سر اجساد بستگانشان
-
-
-⭐ @TASIYANC ✅
 </div>
 

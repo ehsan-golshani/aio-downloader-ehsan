@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 124
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 6243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطورید چخبرااااا؟
+</div>
 
 ## tasiyanc — post 6242
 
@@ -189,25 +195,5 @@ FAST - MCI💥.npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6221
-
-<div align="center"><video src="files/post_6221_tasiyanc_6221.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6221_tasiyanc_6221.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد متد CM  
-👑
-
-دانلود  Wg tunnel 
-🕹
-
-آموزش
-⏩
-
-@Tasiyanc 
-✅
 </div>
 

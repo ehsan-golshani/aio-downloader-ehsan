@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+a19
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9165
 
@@ -313,14 +326,5 @@ A high-contrast, moody black and white portrait photograph. A handsome young man
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9143
-
-<div align="center"><img src="files/post_9143_tasiyanc_9143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
-حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
 </div>
 

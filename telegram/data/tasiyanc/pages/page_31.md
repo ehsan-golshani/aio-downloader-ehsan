@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گنلمه دار خلقتده ... وررسن باده خلوتده
+</div>
 
 ## tasiyanc — post 9221
 
@@ -250,25 +256,5 @@ An ultra-realistic high-fashion editorial portrait of a person wearing an oversi
 
 🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
 ✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 9198
-
-<div align="center"><img src="files/post_9198_tasiyanc_9198.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌ ‌ ‌ ‌ ‌ ‌ ‌‌ ‌‌‌ ‌ 💯 ‌فینال سوپر کاپ اروپا 💯
-🆕 دیدار فوق حسااااااس پاری‌سن ژرمن و استون ویلا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 💯
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-📱 کاملترین برنامه موبایل
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
 </div>
 

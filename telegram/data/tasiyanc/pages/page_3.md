@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر دستگیری این مادر جنده بیاد به ۱۰ نفر اوپن VPN اختصاصی نامحدود میدم ( فقد اعضای گروه)
+
+https://t.me/+PTaxqSvYQ_A0MTc8
+
+
+🔴تا ساعت ۱۴ زیر پست کامنت بزارید قرعه کشی میشه ( به گزارش تابناک قاتل کردن تو گونی و موقع فرار از مرز دستگیر شده )
+</div>
 
 ## tasiyanc — post 9938
 
@@ -275,19 +286,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9915
-
-<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
-
 
 💋 @Tasiyanc
 </div>

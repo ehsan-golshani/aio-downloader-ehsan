@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 9678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📹 مرجع سایت‌های دانلود فیلم و سریال خارجی بدون سانسور
+
++ مجموعه‌ای از سایت‌های محبوب از نظر کاربران
+
+
+📎 1. 30نما 30nama.com
+
+
+📎 2. نووی‌گراد ( پیشنهاد خودم ) novigrad.top
+
+
+📎 3. دیجی‌موویز digimoviez.com
+
+
+📎 4. فیلم‌کیو filmkio.com
+
+
+📎 5. زرفیلم zarfilm.com
+
+
+📎 6. فیلم۲مدیا film2media.com
+
+
+📎 7. الماس‌مووی almasmovie.com
+
+
+📎 8. امپایر بست تی‌وی empirebesttv.com
+
+
+📎 9. دارک‌مووی darkmovie.pro
+
+
+📎 10. موبو موویز mobomovies.pro
+
+
+📎 11. آی‌موویز imovies.org
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9677
 
@@ -381,22 +425,5 @@ https://t.me/+J_q7c-COftQzOGM0
 🔗 آدرس عضویت کانال vip:
 https://t.me/+J_q7c-COftQzOGM0
 https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9649
-
-<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق گفته کارشناسان اقتصادی؛
-
-مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
-
-+ برای دانشگاه ها هم همین ماجرا محتمله.
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/06/15 16:30
+📅 آخرین بروزرسانی: 1405/06/15 19:50
 
 ---
+
+## tasiyanc — post 6835
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد مخصوص  گیم ، وب‌گردی 👑
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱 WG tunnel 🕹 iOS WG
+
+آموزش اتصال ⛓
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6834
 
@@ -218,12 +232,5 @@ Vahid online
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نظر برخی از اعضاء پس توافق حتمیه !
-</div>
-
-## tasiyanc — post 6803
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظر برخی از اعضاء
-پس توافق حتمیه !
 </div>
 
