@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 127
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 6178
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6176
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تست شده با ایرانسل & سامانتل   ♻️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+NewMethod🌶️@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6173
 
@@ -174,29 +206,5 @@ VIP تاسیان 🪙 GOLD.npvt
 مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Vip⚡💚fast.npvt
-</div>
-
-## tasiyanc — post 6151
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New🚀@Tasiyanc.conf
 </div>
 

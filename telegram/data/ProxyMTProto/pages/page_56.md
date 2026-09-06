@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/06/15 22:02
+📅 آخرین بروزرسانی: 1405/06/16 00:25
 
 ---
+
+## ProxyMTProto — post 49794
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad6.fluxvpnguard.ru
+Port: 443
+Secret: eeb471ae1aa2e8a185ed77a4d024dd3b7f6164362e666c757876706e67756172642e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 10443
+Secret: ee63fccdeb9951e5f99d66d274148278b97777772e636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.29
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49790
 
@@ -145,42 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: api.nowabst.net
 Port: 853
 Secret: ee4b0955a40972e28dc3e76df92e9a3f1e766b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49774
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: chai.mikham.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ad6.fluxvpnguard.ru
-Port: 443
-Secret: eeb471ae1aa2e8a185ed77a4d024dd3b7f6164362e666c757876706e67756172642e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49772
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

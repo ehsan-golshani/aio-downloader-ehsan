@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 8792
+
+<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید کاخ سفید با تصاویری از ترامپ و متن:
+
+« کار این جنگ رو یه‌سره کن »
+
+
+⭐ @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8791
+
+<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مجری بعد این برنامه کلا اخراج شد 😂
+ارزش دانلود ۱۰۰۰ از ۱۰
+
+داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
+
+⭐@TASIYANC 
+⭐️
+</div>
+
+## tasiyanc — post 8790
+
+<div align="center"><img src="files/post_8790_tasiyanc_8790.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک نوکیا مدل 3310 پس از 22 سال پیدا شد
+هنوز 70% شارژ باتری داشت ! 🗿
+
+گزارش شده که یک گوشی Nokia 3310 که در شهر Ellesmere Port پیدا شده، پس از حدود ۲۲ سال همچنان روشن شده و نزدیک به ۷۰ درصد شارژ باتری داشته است.
+⭐ @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 8789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انتقال اجساد حشدالشعبی @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 8788
 
@@ -185,45 +236,5 @@
 🔗《لینک دانلود》👉
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8765
-
-<div align="center"><img src="files/post_8765_tasiyanc_8765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نخست‌وزیر نتانیاهو و رئیس‌جمهور ترامپ در کاخ سفید.
-
-@TASIYANc ⭐️
-</div>
-
-## tasiyanc — post 8764
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق اعلام بانک مرکزی؛
-تورم نقطه به نقطه تیرماه ۸۳.۹ درصد اعلام شد.
-یعنی کالاها نسبت به تیرماه سال قبل؛ ۸۳.۹ درصد گرون تر شدن ک فک کنم زیاد بوده باشه
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8763
-
-<div align="center"><img src="files/post_8763_tasiyanc_8763.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نتانیاهو و تیمش در حال آماده شدن برای دیدار با پرزیدنت ترامپ در کاخ سفید.
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️اکثر سایت‌ها یا آپشن‌هایی مثل «آفساید» و «مالکیت» رو ندارن، یا وقتی مبلغ سنگین میشه، موقع برداشت هزارتا بهونه میارن. ​ما بالاخره دو مقصد رو پیدا کردیم که «امنیت» و «تنوع» رو همزمان دارن
-
-🔘 @WePariFarsi
-
-🔘 @DerbyBetOfficial
 </div>
 

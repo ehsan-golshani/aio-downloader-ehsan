@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 119
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 6383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[Fast] ⚡ @Tasiyanc.npvt
+</div>
+
+## tasiyanc — post 6382
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در صورت قطعی ، چنل تاسیان پرایوت میشه ، و دوستانی که به ما وفادار بودن و پیشمون موندن قرارع نزارم یه دقیقه قطعی بکشن
+عشق منین شما ک همیشه حمایت کردید ازم ❤️
+قطعی ایشالا تو کار نباشه ولی اگر باشه قوی تر از قبل برنامه داریم
+</div>
+
+## tasiyanc — post 6375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد T.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
+T.me/TasiyanProxy
+</div>
 
 ## tasiyanc — post 6373
 
@@ -198,38 +225,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه سری چنلهای عزیز هم ک باهاشون رفیقم فور میکنن بدون اینکه دیکد کنن ، جا داره ازشون تشکر کنم ❤️‍🔥
-</div>
-
-## tasiyanc — post 6354
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مشتی لاقل اجازه بده ممبرای خودم وصل شن بعد
-</div>
-
-## tasiyanc — post 6353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ع سرورای تاسیان اسکی می‌ره پسوردم می‌زاره و میگه بیاید تشکر کنین ازم
-ساعت ۲۱.۱۸ سرور میزنم پنج دقیقه بعدش دیکد می‌کنه ، آدم میمونه چی بگه
-</div>
-
-## tasiyanc — post 6352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6351
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
 </div>
 

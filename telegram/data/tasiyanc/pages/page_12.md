@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 9721
+
+<div align="center"><video src="files/post_9721_tasiyanc_9721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9721_tasiyanc_9721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه رسانه ترکیه ای اومده از عشق و حال ایرانیا توی شهر وان ترکیه ویدیو منتشر کرده که خیلی وایرال شده:
+
+تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد 
+
+حجم و کاربر نامحدود
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel 🔗
+
+آموزش اتصال با windscribe🔗
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9714
+
+<div align="center"><img src="files/post_9714_tasiyanc_9714.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9708
 
@@ -216,75 +293,5 @@ til.ac/0L4vyJf
 📲 اپلیکیشن اندروید سایت وینامیت 🔥
 
 🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9688
-
-<div align="center"><img src="files/post_9688_tasiyanc_9688.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
-</div>
-
-## tasiyanc — post 9687
-
-<div align="center"><img src="files/post_9687_tasiyanc_9687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لیست جدید قیمت‌های موبایل در ایران؛ پایین‌رده‌ترین گوشی سامسونگ، A07 نزدیک به ۵۰ میلیون تومن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار 206 هزار تومان .
-</div>
-
-## tasiyanc — post 9684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-🩸 @TASIYANC
 </div>
 

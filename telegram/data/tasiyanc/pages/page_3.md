@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 9950
+
+<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه هنوز به آینده امید داری این پیام رو لایک کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9948
+
+<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
+
+مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9947
+
+<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  
+📶
+
+لوکیشن 
+🇲🇦 Morocco
+
+مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
+
+
+⬅️ دریافت کانفیگ ها 
+🟠
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9946
 
@@ -254,53 +325,6 @@ til.ac/0L4vyJf
 
 گذشته ی همدیگه‌رو جدی بگیرید:
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ ها 👉
-
-💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9923
-
-<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9922
-
-<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه نصیحت
-اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
-چون اگه منصرف بشی پلیس میکشتت 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
-
-+ خوشبختانه حالش خوبه❤️
 💋 @Tasiyanc
 </div>
 

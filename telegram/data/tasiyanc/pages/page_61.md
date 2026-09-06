@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/06/15 22:04
+📅 آخرین بروزرسانی: 1405/06/16 00:27
 
 ---
+
+## tasiyanc — post 8405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 🔐 🔐
+
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.138:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%F0%9F%87%A9%F0%9F%87%AA%20%40Tasiyanc
+trojan://dh-Ws-YoJIgTYLZ-A5VljeduVse-vhDl7Q@185.137.157.145:443?security=tls&insecure=0&headerType=none&type=tcp&allowInsecure=0#%40Tasiyanc%20%E2%9A%A1%F0%9F%87%A9%F0%9F%87%AA
+
+Ip 🇩🇪 🇩🇪
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂 دریافت رسانه 👉
+</div>
+
+## tasiyanc — post 8400
+
+<div align="center"><img src="files/post_8400_tasiyanc_8400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🔥 چند تا شات خفن نود آنتونلا زید لیونل مسی براتون آپلود کردم تو ربات از دست ندید😂
+
+دریافت رسانه 👉
+</div>
+
+## tasiyanc — post 8398
+
+<div align="center"><video src="files/post_8398_tasiyanc_8398.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8398_tasiyanc_8398.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸توصیف عشق در یک جمله ...
+بفرست براش:)
+
+پروکسی | پروکسی
+
+
+@TASIYANC ✅
+#Nvd
+</div>
 
 ## tasiyanc — post 8397
 
@@ -152,51 +198,5 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی انگلیس فرانسه شده پور*هاب ۴ تا انگلیس زده
-</div>
-
-## tasiyanc — post 8374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
-</div>
-
-## tasiyanc — post 8373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب زیادی ساکته اوضاع و این موضوع بیشتر ترسناک و دلهره آوره
-</div>
-
-## tasiyanc — post 8372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 
-🔐
-
-5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8371
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏴󠁧󠁢󠁥󠁮󠁧󠁿 🇫🇷 کدوم می‌بره؟
-
-
-نتیجه دقیق بگید تا قبل شروع بازی کانفیگ وایرگارد هدیه بگیرید
 </div>
 
