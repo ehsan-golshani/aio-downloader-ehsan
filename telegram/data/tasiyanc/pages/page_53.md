@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 8639
+
+<div align="center"><video src="files/post_8639_tasiyanc_8639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8639_tasiyanc_8639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امکانات و ویژگی های خودرو ریاست جمهوری ایالات متحده🇺🇸
+
+ويژگى هاى اين خودرو كه هيولا نام دارد:
+هیولا توسط شرکت کادیلاک و تحت نظارت سرویس مخفی آمریکا ساخته شده و برخلاف ظاهر لوکسش، بیشتر شبیه یک تانک زرهی پنهان است.
+درون خودرو یک مرکز کنترل ارتباطی پیشرفته وجود دارد که رئیس‌جمهور میتواند در آن با فرماندهی ارتش یا مقامات اضطراری تماس فوری برقرار کند.
+خودرو همیشه در کاروانی ویژه همراه با چند نسخه مشابه حرکت میکند تا هویت واقعی رئیسجمهور مشخص نباشد.
+هیولا مجهز به دوربین دید در شب، سیستم اشعه مادون قرمز و تجهیزات دفع گاز اشک‌آور است.
+کلیدهای امنیتی اصلی خودرو فقط در اختیار مأمور ویژه‌ی سرویس مخفی است، و حتی راننده هم دسترسی کامل به همه‌ی سیستم‌ها ندارد
+
+
+Fact @TASIYANC ✅
+</div>
+
+## tasiyanc — post 8629
+
+<div align="center"><img src="files/post_8629_tasiyanc_8629.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات توافق :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
+@Tasiyanc 😐
+</div>
+
+## tasiyanc — post 8627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شب جمعه به این آرومی؟ مشکوکه
+</div>
+
+## tasiyanc — post 8626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احوال شما؟
+</div>
 
 ## tasiyanc — post 8625
 
@@ -198,50 +247,5 @@ Fact @TASIYANC ✅
 چیزی که تا چند سال پیش فقط در فیلمهای علمی تخیلی میدیدیم، حالا کمکم در دنیای واقعی دیده میشود. در این ویدیو یک ربات انسان نما متعلق به شرکت تسلا به بازدیدکننده پاپکورن تحویل میدهد و نشان میدهد فناوری تا چه اندازه به زندگی روزمره نزدیک شده است
 
 Fact @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-متاسفانه همین امروز صبح خواهران دوقلو رومینا رحیمی و  ترانه رحیمی اعدام شدن 🖤
-</div>
-
-## tasiyanc — post 8607
-
-<div align="center"><video src="files/post_8607_tasiyanc_8607.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8607_tasiyanc_8607.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عالیه به هر کدوم فک کنی اونو می‌شنوی 😂😂😂
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چخبر امتحانتونو چطور دادید؟
-</div>
-
-## tasiyanc — post 8605
-
-<div align="center"><video src="files/post_8605_tasiyanc_8605.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8605_tasiyanc_8605.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-واکنش عجیب مردم کره شمالی به دیدن اولین کنسرت ( موزیک) گروه کی پاپ در سال ۲۰۱۸ ...
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ کوبا در مسیر آزادی
-مارکو روبیو:
-"هدف ما این است که به کشوری به نام کوبا برسیم که مردم آن بتوانند از رفاه، امنیت، و یک زندگی بهتر در آینده بهره‌مند شوند."
-@TASIYANC ✅
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 7666
+
+<div align="center"><img src="files/post_7666_tasiyanc_7666.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast ⚡ Unlimited.npvt
+</div>
+
+## tasiyanc — post 7665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا 😍
+</div>
+
+## tasiyanc — post 7664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+4سرور سرعتی پرمیوم متد جدید 
+⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+ 
+✅@Tasiyanc |  تاسیان اتصال امن
+</div>
+
+## tasiyanc — post 7660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از چنلای مردمی حمایت کنید ، بناموسم بخاطر خودم نمیگم ، ما مثل اینا جیره خور نبودیم همه چیو از جیب خودمون خرج کردیم نه کانفیگ گیگی یه میلیون فروختیم ، نه سکوت کردیم مثلاً امروز گروه تعطیل کنیم یا موقع قطعی فعالیت نکرده باشیم
+</div>
+
+## tasiyanc — post 7659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودتون خوبین قربونتون برم؟
+</div>
 
 ## tasiyanc — post 7658
 
@@ -128,35 +172,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شرکت ها و سایتهای معتبر جهت اسپانسری (همکاری) و حمایت از چنل با آیدی پشتیبانی در ارتباط باشید
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7629
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همتون اینجکتور & نت مود دانلود کردید بزارم کانفیگاشو دوباره؟
-</div>
-
-## tasiyanc — post 7627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام تیم مصر عزیز به مرحله بعدی رفت ، درود به شرف مصری‌ها و روان پاک انور سادات تنها رفیق شاهنشاه فقید
-</div>
-
-## tasiyanc — post 7626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گل بشه تمومه
-</div>
-
-## tasiyanc — post 7625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
 </div>
 

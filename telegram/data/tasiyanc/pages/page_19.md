@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 9516
+
+<div align="center"><video src="files/post_9516_tasiyanc_9516.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9516_tasiyanc_9516.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📺 10 تا از بهترین فیلم های ترسناک 2026 اگه به ژانر وحشت علاقه دارید ببینید !
+
++سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+
+🔗https://www.novigrad.top
+
+
+🩸 @Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 9515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
+
+@Tasiyanc 
+💋
+</div>
+
+## tasiyanc — post 9514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Mumbai 🇮🇳.ovpn
+</div>
+
+## tasiyanc — post 9513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+
+💋 @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس:
+
+اینستاگرام صفحه‌‌ای که واسه قبر علی خامنه‌ای و اعضای کشته‌شده خانواده‌اش ساخته شده بود رو حذف کرد.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9510
 
@@ -248,85 +313,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 
 @TASIYANC 
 ⭐️
-</div>
-
-## tasiyanc — post 9494
-
-<div align="center"><img src="files/post_9494_tasiyanc_9494.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏛 راز مجسمه‌های غول‌پیکر یک معبد باستانی در ترکیه!
-در کوه نمرود، پیکره‌های عظیمی پیدا شدند که سرهایشان از بدن جدا شده بود؛ اما با پیدا شدن سرها، ماجرا عجیب‌تر شد!
-در این مجموعه، نشانه‌هایی از اهورامزدا و ایزدان مهر، بهرام و آناهیتا در کنار نمادهای شیر و شاهین دیده می‌شود؛ ترکیبی که پیوندهای فرهنگی و دینی ایران باستان را در این منطقه نشان می‌دهد.
-👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9493
-
-<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9491
-
-<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-sr30
-📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9490
-
-<div align="center"><img src="files/post_9490_tasiyanc_9490.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📄معرفی PDF‌ساز آنلاین رایگان
-
-🌟 با این ابزار می‌تونی PDF بسازی و ویرایش کنی خروجی PDF بگیری از قالب‌های آماده استفاده کنی
-
-🔗لینک سایت: pdfmaker.ir
-
-+ بدون نیاز به نصب نرم‌افزار
-
-@Tasiyanc ✅
 </div>
 

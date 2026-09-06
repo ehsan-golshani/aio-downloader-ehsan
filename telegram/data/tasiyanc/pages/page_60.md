@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 8413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشاهده نود آنتونلا زن مسی ✨
+</div>
+
+## tasiyanc — post 8412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال جام‌جهانی 2026 🌍 اسپانیا 🇪🇸  آرژانتین 🇦🇷 ⏰‌ ساعت 22.30 @TasiyanC ✅
+</div>
+
+## tasiyanc — post 8411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فینال جام‌جهانی 2026 🌍
+
+اسپانیا 🇪🇸  آرژانتین 🇦🇷
+
+⏰‌ ساعت 22.30
+
+
+@TasiyanC ✅
+</div>
+
+## tasiyanc — post 8409
+
+<div align="center"><video src="files/post_8409_tasiyanc_8409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8409_tasiyanc_8409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این شاهکار رو از بیرانوند ببینین
+
+بعد متن اون استوری که در مورد اسطوره فوتبال ایران علی آقا دایی ،گذاشته رو دوباره بخونین
+
+خودتون حساب کار دستتون میاد که چه آدم دوزاری هستش.
+
+
+@Tasiyanc ✅ | مرجع کانفیگ
+</div>
+
+## tasiyanc — post 8408
+
+<div align="center"><img src="files/post_8408_tasiyanc_8408.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آبادان، پنجاه‌سال پیش، ملقب به مروارید خاورمیانه.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 8406
 
@@ -154,49 +206,5 @@ IP
 🚨💪 6 انفجار شدید در قشم
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۹۹٪ اخبار امشب فیکن و پوشش ندادیم
-</div>
-
-## tasiyanc — post 8382
-
-<div align="center"><img src="files/post_8382_tasiyanc_8382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-با دو تا نود چنل vip نیلی افشار برید بخوابید که الان داره بابت هرکدوم ۷ میلیون پول میگیره :))) 🚫
-
-📥 مشاهده 👉
-</div>
-
-## tasiyanc — post 8381
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امشب شب ارومی به نسبت شب‌های گذاشته داشتیم
-</div>
-
-## tasiyanc — post 8380
-
-<div align="center"><video src="files/post_8380_tasiyanc_8380.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8380_tasiyanc_8380.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظه کشته شدن سربازان امریکایی در اردن و انفجار های بسیار مهیب بر اثر حمله موشکی
-
-حداقل ۳ نظامی امریکایی کشته و ناپدید شدند!
-
-🖌 #CC
-
-@Tasiyanc ✅ | بانك کانفیگ
-</div>
-
-## tasiyanc — post 8379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماممم انگلیس ۶ ، ۴ فرانسه رو کرد
 </div>
 

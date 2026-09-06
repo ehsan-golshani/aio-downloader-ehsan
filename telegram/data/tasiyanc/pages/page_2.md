@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 9957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
+
+🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9956
+
+<div align="center"><video src="files/post_9956_tasiyanc_9956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9956_tasiyanc_9956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسرا چقد مهربون شدن جدیدا به هیشکی نه نمیگن😞...
+
++ حقیقتا با دیدن این ریدم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9954
+
+<div align="center"><video src="files/post_9954_tasiyanc_9954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9954_tasiyanc_9954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت تسلا بالاخره تاکسی‌های بدون راننده خودش رو به خیابون‌های آستین تگزاس آورد.
+
+تاکسی‌های جدید Cybercab که نه فرمون دارن و نه پدال گاز و ترمز، به ناوگان Robotaxi اضافه شدن.
+تصور کنید سوار ماشینی می‌شید که درهای پروانه‌ایش با اپلیکیشن باز می‌شه و هوش مصنوعی شما رو به مقصد می‌رسونه.
++این تاکسی های تسلا رو یه یارویی شخصا تست کرده خیلی خفنن ایلان ماسک داره دنیا رو تغییر میده:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9953
+
+<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
+
+سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9952
+
+<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
+حالا ببینید چه صحنه‌ محشری خلق میشه
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9951
 
@@ -229,100 +297,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-⚡دریافت کانفیگ های وایرگارد 🔥
-
-⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9929
-
-<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
-
-+کمر به نابودی مردم بستن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9927
-
-<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
 </div>
 

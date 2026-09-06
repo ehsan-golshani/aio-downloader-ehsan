@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 9425
+
+<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان گل ایشون چنل و گپشو Restiract save کرده نمیشه اسکرین ویدیو گرفت ، سریع از تمام محتویات چنل و گپ و پیویش با گوشی دیگتون فیلم بگیرید تا پاک نکرده
+
+اطلاعات دقیق و آدرس اینا رو تو چنل نمیزنم بخاطر الگوریتم تلگرام مجبورم دایرکت چنل فردا باز کنم بفرستم
+
+آیدی
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
+
+## tasiyanc — post 9421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع ساعت ۲ پست ها پاک میشه
+</div>
+
+## tasiyanc — post 9420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
+</div>
+
+## tasiyanc — post 9419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
 
 ## tasiyanc — post 9418
 
@@ -141,81 +203,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
-</div>
-
-## tasiyanc — post 9402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ العربیه :
-
-ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
-
-زمینه سازی میکنید گرون کنید جا*شا؟
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدیمی ترین سایت فعال در ایران✅
-امنیت،امکانات،تضمین پرداخت💎
-</div>
-
-## tasiyanc — post 9394
-
-<div align="center"><img src="files/post_9394_tasiyanc_9394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
-1️⃣ شارژ و برداشت اسان و سریع
-2️⃣پر اپشن ترین سایت فعال در ایران
-3️⃣دارای مجوز رسمی curacao
-4️⃣کارت به کارت همیشه فعال
-
-➖هدایا بی نظیر ماف بت:👇
-🎁 100% بونوس خوشامدگویی
-🎁 تا 20%برگشت باخت هفتگی
-🎁10% شارژ اضافی روی شارژ دلاری
-🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
-
-👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
-g26
-🎯ادرس بدون فیلتر سایت:
-✅https://mafbet.com/fa/?btag=260368
-✔️ کانال تلگرام سایت:
-👑https://t.me/+8eCDvbzSV5JlZjlk
 </div>
 

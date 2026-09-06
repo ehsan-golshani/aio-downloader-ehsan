@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 9298
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
+</div>
+
+## tasiyanc — post 9297
+
+<div align="center"><video src="files/post_9297_tasiyanc_9297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9297_tasiyanc_9297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
+
+توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
+
+🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
+
+➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
+a23
+🎯همین حالا عضو شو و شروع کن👇
+https://t.me/+FaoDjhEVG34wMWFk
+https://t.me/+FaoDjhEVG34wMWFk
+</div>
+
+## tasiyanc — post 9295
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکس هاتونو با یه ایموجی معرفی کنید
+
+کامنت بازه.
+</div>
+
+## tasiyanc — post 9294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا؟
+</div>
+
+## tasiyanc — post 9290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱Android🕹  iOS
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9289
 
@@ -88,18 +151,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9272
 
 ## tasiyanc — post 9271
-
-## tasiyanc — post 9270
-
-## tasiyanc — post 9269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیوی اد بفرستید ویسارو @Tssub
-</div>
-
-## tasiyanc — post 9267
-
-## tasiyanc — post 9266
-
-## tasiyanc — post 9265
 

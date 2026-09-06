@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/15 08:10
+📅 آخرین بروزرسانی: 1405/06/15 12:33
 
 ---
+
+## tasiyanc — post 9038
+
+<div align="center"><img src="files/post_9038_tasiyanc_9038.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کوثری ؛ از فرماندهان سپاه:
+پسر لاریجانی یه لحظه گوشیش رو روشن میکنه و یه تماسی با یه نفر میگیره که همون موقع جاشون لو میره و میزننشون.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9036
+
+<div align="center"><video src="files/post_9036_tasiyanc_9036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9036_tasiyanc_9036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون بریزه جدیدا تو تهران مهدکودک زدن واسه افراد بالای ۳۰ سال 😂
+
+شما ممکنه وقتی صبح تو خیابون راه میری یه سری مرد سیبیلو و زن ببینید که با کیف باب اسفنجی و عروسکی دارن میرن مهد کودک
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9035
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 6 آگوست روز جهانی فوت فتیش هاست 🐸
+
+بفرست برا کسی که میخوای عکس پاشو برات بده 😂
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9034
+
+<div align="center"><video src="files/post_9034_tasiyanc_9034.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9034_tasiyanc_9034.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این سکانس GOT برای دنیا معمولیه برای ما ایرانیا نه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9032
+
+<div align="center"><img src="files/post_9032_tasiyanc_9032.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام شیوا جاویده که در ۱۸ سالگی به قتل رسید 🕊️
+
+شیوا جاوید ۱۸ ساله، به همراه پدرش علی‌اکبر جاوید ۳۸ ساله، هر دو در مشهد، در آغوش همدیگه به قتل رسیدن.
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9031
 
@@ -220,117 +279,5 @@ Join As @TASIYANC ✅
 
 📱 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9011
-
-<div align="center"><img src="files/post_9011_tasiyanc_9011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ موبایل سامسونگ A26؛ پنجشنبه 52 میلیون بود و امروز شده 87 میلیون!فقط در عرض 2 روز، 35 میلیون گرون شده!
-
-
-
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9010
-
-<div align="center"><video src="files/post_9010_tasiyanc_9010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9010_tasiyanc_9010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خفن ترین تیپستر های ایران با هم جمع شدن و TRUST BET رو تشکیل دادن
-👍
-
-هیچ سایت بتی دوست نداره شما این کانال رو پیدا کنین
-رایگان بهترین شرط هارو براتون میذاره
-حتی هزار تومن هم دریافت نمیکنه
-سریع از این لینک جوین بدین کانالشون
-👇(این پست پاک میشه)
-g14
-
-https://t.me/+cBQ8n7zLQiUzN2U0
-https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9009
-
-<div align="center"><img src="files/post_9009_tasiyanc_9009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40 میلیون تومن برداشت روزانه ی کانال تراست بت 
-🎁
-پول دراوردن از بت تجربه و استراتژی میخواد نه ادعا
-
-برایند ماه تیر توی کانال تراست بت: 78 درصد رشد سرمایه بود
-✅
-
-40 بازی اخیر 34 برد 
-📊
-
-
-💠https://t.me/+cBQ8n7zLQiUzN2U0
-g14
-
-💠 https://t.me/+cBQ8n7zLQiUzN2U0
-</div>
-
-## tasiyanc — post 9008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•تقدیم به مردم سرزمینم 🖤
-
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 این ۱۰ وب سایت هم با استفاده از هوش مصنوعی میتونن در زمینه ساخت ویدیو و تولید محتوای تصویری مفید باشن - پرامپت رو از ChatGpt بگیرید بدید به سایت های زیر درست کنه
-
-1️⃣  Fliki -
-http://fliki.ai
-
-2️⃣ Tavus -
-http://tavus.ai
-
-3️⃣ D-ID -
-http://d-id.com
-
-4️⃣ Wombo -
-http://deepart.io
-
-5️⃣ Reface -
-http://hey.reface.ai
-
-6️⃣ Hour One -
-http://hourone.ai
-
-7️⃣ Rephrase -
-http://rephrase.ai
-
-8️⃣ Synthesia -
-http://synthesia.io
-
-9️⃣ DeepBrain -
-http://deepbrain.io
-
-1️⃣0️⃣ EmbodyMe -
-http://embodyme.com
-
-Join 👹 @TASIYANC ✅
 </div>
 
