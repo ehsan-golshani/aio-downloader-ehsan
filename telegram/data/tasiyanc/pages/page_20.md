@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+
+💋 @Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس:
+
+اینستاگرام صفحه‌‌ای که واسه قبر علی خامنه‌ای و اعضای کشته‌شده خانواده‌اش ساخته شده بود رو حذف کرد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9510
+
+<div align="center"><video src="files/post_9510_tasiyanc_9510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9510_tasiyanc_9510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👨‍💼 ترامپ برای بار هزارم:
+من نمی‌دانم اصلاً با چه کسی در ایران باید مذاکره کنم. این در واقع یکی از بزرگترین مشکلات من است.
+هیچ کس نمی‌خواهد رئیس‌جمهور ایران باشد. آن‌ها می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور باشد؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور باشم.»
+💋 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9509
 
@@ -271,59 +317,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9491
-
-<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-sr30
-📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9490
-
-<div align="center"><img src="files/post_9490_tasiyanc_9490.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📄معرفی PDF‌ساز آنلاین رایگان
-
-🌟 با این ابزار می‌تونی PDF بسازی و ویرایش کنی خروجی PDF بگیری از قالب‌های آماده استفاده کنی
-
-🔗لینک سایت: pdfmaker.ir
-
-+ بدون نیاز به نصب نرم‌افزار
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

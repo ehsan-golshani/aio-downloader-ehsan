@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 8091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری بر اساس تصمیم ستاد عالی آزمون های وزارت آموزش و پرورش و با توجه به شرایط خاص کشور در استان های هرمزگان، بوشهر، خوزستان و سیستان_و_بلوچستان امتحانات نهایی تمامی رشته های تحصیلی پایه دوازدهم در روز پنجشنبه؛ مورخ 1405/04/25 و پایه یازدهم در روز شنبه، 1405/04/27 لغو و به زمان دیگری که متعاقباً اعلام خواهد شد، موکول می شود.
+
+@Tasiyanc ⭐️ | بانك کانفیگ
+</div>
+
+## tasiyanc — post 8090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیروز که به یخچال نیاز داشتن، برق قطع نمیشد! به محض اینکه کارشون تموم شد، شروع کردن برقارو قطع کردن.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تتر 190 - ریدید تو زندگی ما
+</div>
 
 ## tasiyanc — post 8088
 
@@ -186,38 +208,5 @@
 ⚫️مادر عمو پورنگ ( داریوش فرضیایی) فوت کرد
 ویدیو نشون میده از امروز شاهد پیر شدن عمو پورنگ خواهیم بود 🥹
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8055
-
-<div align="center"><img src="files/post_8055_tasiyanc_8055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پول خوشبختی نمیاره :
-
-بانو برونا روتا هستن دوس دختر (اکس) رودریگو بازیکن کصمشنگ رئال مادرید 😐
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8052
-
-<div align="center"><img src="files/post_8052_tasiyanc_8052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 14 July، روز جهانی Nude یا همون لخت بودنه ❤️
-بفرست برا کسی که میخوای نود بگیری ازش 😂🦦
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز چقد زیاد شده 😐
-خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
-📶⭕️@TasiyanProxy
-⭕️📶@TasiyanProxy
 </div>
 

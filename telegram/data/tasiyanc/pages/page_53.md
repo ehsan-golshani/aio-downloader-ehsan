@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 8661
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت دونالد ترامپ :
+
+ایران، باورنکردنیه، شروع کرد به شلیک کردن به همه‌جای خاورمیانه.
+اگه سلاح هسته‌ای داشت، حتما ازش استفاده میکرد.
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8660
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این وسط ارتش عربستان سعودی داره تقه میزنه به یمن 😂
+</div>
+
+## tasiyanc — post 8659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹ویدیو دیده نشده از شخم زدن بغداد توسط عباس دوران خلبان ایرانی وقتی صدام اعلام کرد که هر کلاغ ایرانی بتونه به بغداد حمله کنه بودجه یک سال نیروی هوایی را پاداش می دهم... ساعتی از این خبر نگذشته بود که دلیر مردان ایران اهداف مهمی را در عمق خاک عراق مورد هدف…
+</div>
 
 ## tasiyanc — post 8658
 
@@ -200,25 +224,5 @@ Fact @TASIYANC ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 پلیس فتای استان خراسان رضوی، از دستگیری زوجی که فیلم جنسی ارباب و برده ضبط می‌کردند و سپس آنها را در تلگرام با قیمت های نجومی می‌فروختند، خبر داد
 @Tasiyanc 😐
-</div>
-
-## tasiyanc — post 8627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب جمعه به این آرومی؟ مشکوکه
-</div>
-
-## tasiyanc — post 8626
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-احوال شما؟
-</div>
-
-## tasiyanc — post 8625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیك موشك به کویت
-
-@Tasiyanc ⭐️
 </div>
 

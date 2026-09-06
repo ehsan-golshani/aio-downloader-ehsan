@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9883
+
+<div align="center"><video src="files/post_9883_tasiyanc_9883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9883_tasiyanc_9883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گوشی اقتصادی A17 سامسونگ از ۱۵ میلیون پارسال، شد ۹۷ میلیون
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9881
+
+<div align="center"><img src="files/post_9881_tasiyanc_9881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+sg12
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9879
 
@@ -233,58 +283,5 @@ sa11
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ (شاخ توییتر) :
-
-اکنون که این منطقه تحت کنترل ایالات متحده قرار دارد، آیا باید نام تنگه هرمز را به «تنگه ترامپ» تغییر دهیم؟ درست مانند خود آمریکا، این منطقه از همیشه داغ‌تر خواهد بود!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9859
-
-<div align="center"><img src="files/post_9859_tasiyanc_9859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری وزارت بهداشت هشدار داد
-
-ویروس جدیدی که مردم درگیرش شدن کروناست که دوباره شیوع پیدا کرده توی کشور!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9857
-
-<div align="center"><video src="files/post_9857_tasiyanc_9857.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9857_tasiyanc_9857.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - Gemini & ChatGpt- اینستاگرام 
-📸 یوتوب 
-🎥
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-درصورت ارور چند بار بزنید 
-⭕️
-
-🩸 T.me/Tasiyanc
 </div>
 

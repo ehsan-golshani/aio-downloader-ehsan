@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9927
+
+<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9925
+
+<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
+
+
+گذشته ی همدیگه‌رو جدی بگیرید:
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9924
 
@@ -204,49 +272,5 @@
 
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9907
-
-<div align="center"><img src="files/post_9907_tasiyanc_9907.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 تکرار حادثه تلخ الهه حسین نژاد برای ملیکا دادپور در تهران
-
-+ ملیکا دادپور، دختر ۲۲ ساله ، پس از ترک محل کارش در میدان آرژانتین تهران سوار یک خودروی عبوری شد به مقصد خونشون تو قرچک. او هنگام سفر به دوستش گفت راننده رفتار مشکوکی دارد و مقصد مکانی خود را برای او فرستاد. کمی بعد مسیر خودرو تغییر کرد و دوستش هنگام تماس، صدای کمک‌خواهی ملیکا را شنید.
-خانواده‌اش به پلیس اطلاع دادند. دو روز بعد (عجیبه واقن با اینکه لوکیشن و همه چی فرستاده نتونستن پیدا کنن؟!) ، جسد ملیکا در حوالی فشافویه در کانال آب پیدا شد و طبق بررسی‌های پزشکی قانونی، او بر اثر ضربات چاقو و درگیری جان باخته بود.
-همچنین برخی وسایل ملیکا مثل طلا و آیفون ، اپل واچ به سرقت رفته بود. پلیس پس از بررسی دوربین‌ها و پلاک خودرو، راننده را ۱۲ روز بعد دستگیر کرد. متهم آرمین ۳۹ ساله قتل را انکار کرده بود، اما تحقیقات پلیس ادامه یافت و مشخص شد آرمین ۳۹ ساله حرامزاده دخترک بی دفاع را کشته و داخل کانال آب انداخته ، به امید اع*دام و منقرض شدن این حرامزاده‌ها.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9906
-
-<div align="center"><video src="files/post_9906_tasiyanc_9906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9906_tasiyanc_9906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون بریزه از خیانت
-
-تو کانادا یه زن به نام اشلی شوهرش با GPS میوفته دنبالش ببینه کجا رفته سر از خونه دوس پسر زنه درمیاره و پسره به شوهر طرف میگه من اصن نمیدونستم این شوهر داره تو مجازی باهم اوکی شده بودیم بعدش مچ زنشو میگیره ، با پسره هم میرن دو شات ودکا میخورن میگن کو*ن لق طرف
-😞
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9905
-
-<div align="center"><video src="files/post_9905_tasiyanc_9905.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9905_tasiyanc_9905.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری / ‌به دنبال تهدید ترامپ مبنی بر کاهش همکاری نظامی: دفتر ریاست جمهوری کره جنوبی اعلام کرد که این کشور در حال آماده شدن برای اعزام نیروهای نظامی به تنگه هرمز است تا به تضمین عبور آزاد کشتی‌ها در این منطقه کمک کند
-
-
-💋 @Tasiyanc
 </div>
 

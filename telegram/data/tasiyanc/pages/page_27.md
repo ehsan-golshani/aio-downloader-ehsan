@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9346
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساب لینک اختصاصی تاسیان 🚀
+
+🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
+
+پروتکل Trojan سرعتی
+( هر ۸ ساعت آپدیت خواهد شد )
+
+
+آموزش ویدیویی اضافه کردن ساب
+
+
+@Tasiyanc 💠 | اتصال امن
+</div>
+
+## tasiyanc — post 9345
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂این بازی خیلی این روزا ترند💥
+راحت میتونی پولت چند برابر کنی💖
+فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
+</div>
 
 ## tasiyanc — post 9343
 
@@ -241,59 +275,5 @@ https://sub.connecti24.info/roKRodKdpbqkdXXk
 ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9318
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9317
-
-<div align="center"><img src="files/post_9317_tasiyanc_9317.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-g24
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نپسترنت📱📍
-
-•آموزش اتصال ⚡️
-
-🔴پینگ نگیرید
-
-@TASIYANC ✅
 </div>
 

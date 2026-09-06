@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9112
+
+<div align="center"><video src="files/post_9112_tasiyanc_9112.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9112_tasiyanc_9112.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید 
+🆕
+
+prompt Cinematic Winter Fashion Portrait 
+🤖
+🤖
+cinematic portrait, dark theme, frost, future, snow, ice, sharp photo focus, street, symmetrical face, look at camera, detailed face, photo studio, awesome light, muted colors :: Fashion Photographer
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تسنیم : حمیدرضا رجب‌زاده، مداحی که چند روزی بود گم شده بود، به قتل رسیده و فیلم لحظه قتلش به خانواده‌‌اش ارسال شده، پلیس فعلا داره پیگیری می‌کنه. « مشاهده »
+</div>
+
+## tasiyanc — post 9110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی پرسرعت نپسترنت📱
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9109
 
@@ -215,45 +248,5 @@ Prompt
 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن تا جان بده!
 
 @Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 
-📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سنایِ آمریکا طرح تحریم‌های جدید علیه روسیه و ایران با نام «لیندسی گراهام» رو تصویب کرد.
-
-86 رأی موافق ، 11 رأی مخالف.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9085
-
-<div align="center"><video src="files/post_9085_tasiyanc_9085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9085_tasiyanc_9085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نورا وینسنت ، زنی که تصور میکرد زندگی برای مردان بسیار راحت تر است ، ظاهر خود را به مرد تغییر داد ، اما ۱۸ ماه بعد ، بدلیل تحمل نکردن فشار های زندگی به عنوان یک مرد ، به زندگی خود پایان داد
-
-@TASIYANC ✅
 </div>
 

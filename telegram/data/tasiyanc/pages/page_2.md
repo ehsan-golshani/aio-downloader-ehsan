@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساده‌ترین گوشی شیائومی ۵۰ میلیون تومان شد!!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9978
+
+<div align="center"><img src="files/post_9978_tasiyanc_9978.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بابک زنجانی برای استخدام راننده در شرکت دات‌وان آگهی زده؛ بعد یکی از شرایط استخدام را گذاشته:
+«عدم سوءپیشینه»! 😐
+
+مشتی تو خودت ۳ ماهه آزاد شدی 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 فیلم « بهشت پاره شده » • زیرنویس چسبیده فارسی ⚠️ ژانر : #بزرگسال | #درام 🔞 صحنه های +۱۸   خلاصه داستان : زندگی دو دخترخاله، دیوسا و کلودیا، زمانی که یک کارناوال به شهرشان می‌رسد، تغییر می‌کند. وقتی که هر دو دل به مردان کارناوال می بازن و اینجاست که…
+</div>
 
 ## tasiyanc — post 9976
 
@@ -246,45 +274,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9953
-
-<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
-
-سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
-🔗https://www.novigrad.top
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9952
-
-<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
-حالا ببینید چه صحنه‌ محشری خلق میشه
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg14
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

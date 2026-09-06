@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/16 00:27
+📅 آخرین بروزرسانی: 1405/06/16 02:09
 
 ---
+
+## tasiyanc — post 9213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد!
+نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان
+نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان
+نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان
+نرخ چهارم: ۸۷,۲۰۰ تومان
+این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان میباشد.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9212
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9211
+
+<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9208
 
@@ -279,65 +308,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
 وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9182
-
-<div align="center"><img src="files/post_9182_tasiyanc_9182.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖واریز اول و هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-💖فعالیت بدون تخلف در کشورهای مختلف دنیا
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر سوپر  لیگ ترکیه
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-
-🔥کانال اطلاع رسانی ایران:👇
-https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قانون جدید
-اگر مدل ماشینتون 1385به قبله، جزو خودروهای فرسوده حساب میشه و
-به این ماشین‌ها دیگه بنزین سهمیه‌ای نمیدن، حق تو اسنپ و تاکسی های اینترنتی هم ندارن!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9180
-
-<div align="center"><img src="files/post_9180_tasiyanc_9180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت اختصاصی تاسیان 🆕
-
-اسم : Ethereal Lake Muse 🤍
-
-آموزش استفاده 👉
-
-دریافت پرامپت 👉
-
-@TASIYANC ⭐️
 </div>
 
