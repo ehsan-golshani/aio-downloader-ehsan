@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/15 19:50
+📅 آخرین بروزرسانی: 1405/06/15 22:04
 
 ---
+
+## tasiyanc — post 9828
+
+<div align="center"><video src="files/post_9828_tasiyanc_9828.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9828_tasiyanc_9828.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨« تایید نشده» یک خودروی ناشناس در شهرک گلستان شیراز، زنانی در خیابان تجمعات شبانه کرده بودند، زیر گرفت!
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9827
+
+<div align="center"><video src="files/post_9827_tasiyanc_9827.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9827_tasiyanc_9827.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9826
+
+<div align="center"><video src="files/post_9826_tasiyanc_9826.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9826_tasiyanc_9826.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9825
+
+<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ادعای ترامپ:
+
+حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9822
 
@@ -224,64 +285,5 @@ Demsexual
 sg10
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9798
-
-<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
-همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به تازگی بزرگترین دزدی دزفول اتفاق افتاده! از خونه یه نفر ۳ کیلو طلا دزدیدن!
-به محض اینکه اعلام کرده میخواد طلا فروشی بزنه اومدن ازش دزدی کردن!
-در حالی که درِ ضدسرقت، دوربین مداربسته، دزدگیر و... فعال کرده بوده.
-خانمش چون باردار بوده همیشه توی خونه بوده، فقط ۳۰ ثانیه بعد اینکه خانمش اومده بیرون، اومدن دزدی!
-حالا ۱۰ میلیارد پاداش گذاشته برای هر کسی که بتونه یه نشونه و آدرسی از این دزدا در بیاره.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
-
-امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9795
-
-<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
-نظر شما چیه طبیعیه یا غیرطبیعی؟
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9794
-
-<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
-
-+ هانا فقط 16 سال سن داشت :)
-🩸 @Tasiyanc
 </div>
 

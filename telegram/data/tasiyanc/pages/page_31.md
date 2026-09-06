@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/15 19:50
+📅 آخرین بروزرسانی: 1405/06/15 22:04
 
 ---
+
+## tasiyanc — post 9230
+
+<div align="center"><img src="files/post_9230_tasiyanc_9230.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤میخوای مسابقات فوتبال پیش بینی کنی؟!
+🥇پس نیاز داری به یه سایت بین المللی و معتبر🥇
+
+⛔دربی بت همون انتخاب  100%
+
+💎ویژگی های سایت جهانی Derby Bet:
+⬅️امکان شارژ امن با کارت بانکی
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+⬅️پر اپشن ترین سایت فعال در ایران
+⬅️تسویه حساب کمتر از 5 دقیقه
+⬅️برگشت بخشی از باخت به صورت هفتگی
+⭐دارای لایسنس و مجوز anjuan
+
+🚨کد هدیه ثبت نام:GG007
+
+⚠️برای دانلود اپلکیشن کلیک کنید👉
+r22
+🔔کانال دربی بت :👇
+✅https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک⚡️
+</div>
+
+## tasiyanc — post 9224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معاون اقتصادی وزارت  این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد. @Tasiyanc
+</div>
+
+## tasiyanc — post 9223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معاون اقتصادی وزارت 
+
+این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد.
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 9222
 
@@ -172,89 +232,5 @@ http://til.ac/z5jcpGT
 g21
 🔥کانال اطلاع رسانی ایران:👇
 https://t.me/+fxq9NcirUag3N2Zk
-</div>
-
-## tasiyanc — post 9204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
-
-@Tasiyanc 🔋
-</div>
-
-## tasiyanc — post 9201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 🆕
-
-" 🤩 Chocolate Leather Elegance "
-
-Prompt 
-🤖🤖
-
-
-An ultra-realistic high-fashion editorial portrait of a person wearing an oversized dark chocolate brown glossy leather blazer over a luxurious ivory silk button-up shirt with a deep burgundy satin tie. The person has short softly tousled hair, natural glowing skin, minimal elegant makeup, and a calm, sophisticated expression while looking sideways in perfect side profile. Both hands are casually tucked into the trouser pockets, creating a relaxed yet powerful pose. Warm neutral studio background with a large soft shadow cast on the wall, cinematic Rembrandt lighting, subtle golden tones, premium editorial fashion photography, luxury magazine aesthetic, rich leather texture, realistic silk fabric reflections, minimalist styling, timeless elegance, shallow depth of field, ultra photorealistic skin, 85mm lens, f/2.0, masterpiece, 8K, Vogue-inspired fashion campaign, soft cinematic color grading, extremely detailed, no text, no watermark.Three-quarter body composition, oversized structured leather blazer with broad shoulders, silky white shirt slightly gathered at the waist, deep burgundy tie hanging naturally, dark pleated trousers, side-profile pose with closed relaxed lips, dramatic wall shadow, muted earth-tone palette, quiet luxury aesthetic, luxury editorial styling, clean studio setup, elegant minimalism, highly realistic textures
-
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9199
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/15 19:50
+📅 آخرین بروزرسانی: 1405/06/15 22:04
 
 ---
+
+## tasiyanc — post 9798
+
+<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
+همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به تازگی بزرگترین دزدی دزفول اتفاق افتاده! از خونه یه نفر ۳ کیلو طلا دزدیدن!
+به محض اینکه اعلام کرده میخواد طلا فروشی بزنه اومدن ازش دزدی کردن!
+در حالی که درِ ضدسرقت، دوربین مداربسته، دزدگیر و... فعال کرده بوده.
+خانمش چون باردار بوده همیشه توی خونه بوده، فقط ۳۰ ثانیه بعد اینکه خانمش اومده بیرون، اومدن دزدی!
+حالا ۱۰ میلیارد پاداش گذاشته برای هر کسی که بتونه یه نشونه و آدرسی از این دزدا در بیاره.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
+
+امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9795
+
+<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
+نظر شما چیه طبیعیه یا غیرطبیعی؟
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9794
+
+<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
+
++ هانا فقط 16 سال سن داشت :)
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9793
 
@@ -232,85 +291,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ترامپ:
-
-تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9767
-
-<div align="center"><img src="files/post_9767_tasiyanc_9767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فواید بوسیدن یار 💋:
-
-•کاهش فشارخون و کمک به سلامت قلب
-
-•از بین بردن گرفتگی عضلات بدن محافظت دندان در برابر پوسیدگی
-
-•افزایش درخشندگی پوست و جلوگیری از شل شدگی صورت
-
-•افزایش قدرت سیستم ایمنی بدن در برابر سرما خوردگی
-
-•کاهش وسواس فکری
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9765
-
-<div align="center"><img src="files/post_9765_tasiyanc_9765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
-</div>
-
-## tasiyanc — post 9762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت ترامپ :
-ایران یک کشور شکست‌خورده است. مرده! آنها نه نیروی دریایی دارند، نه نیروی هوایی، نه ارز، نه حقوق سربازان و پلیس خود را پرداخت می‌‌کنند، تورم ۳۰۰ درصد است و رهبری آنها کاملاً آشفته و ناتوان از نمایندگی صحیح کشور است. تنها چیزی که دارند اخبار جعلی از ایالات متحده، تمایل به کشتن معترضانشان (که اکنون بیش از ۱۰۰۰۰۰ نفر کشته شده‌اند. آنها باید به جرم جنایات جنگی علیه بشریت محاکمه شوند!) و یک مشت «چرندیات» است. از توجه شما به این موضوع متشکرم!
 
 🩸 @Tasiyanc
 </div>

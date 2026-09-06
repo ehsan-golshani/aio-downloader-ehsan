@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/15 19:50
+📅 آخرین بروزرسانی: 1405/06/15 22:04
 
 ---
+
+## tasiyanc — post 9708
+
+<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9707
+
+<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مردی که میبینید اسمش جیسون کوئیج هستش
+
+جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تیم ملی والیبال زنان ایران چهارم آسیا شد
+
+🏐 تیم ملی والیبال زنان ایران در دیدار رده‌بندی رقابت‌های قهرمانی آسیا ۲۰۲۶ با نتیجه ۳ بر صفر مغلوب ژاپن شد و به رتبه چهارم آسیا دست یافت
+
++ درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9705
+
+<div align="center"><video src="files/post_9705_tasiyanc_9705.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9705_tasiyanc_9705.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گاهی زخم از دشمن نیست ؛ از همان چیزیست که روزی مایه‌ی غرورمان بود
++ آهو میپرید ، بی خبر از اینکه شاخ‌هایش ، پیش از هر شکارچی خودش را خواهد آزرد .
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9703
 
@@ -230,86 +286,5 @@ https://Winamit.com/fa
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9683
-
-<div align="center"><img src="files/post_9683_tasiyanc_9683.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۲۰ تا از برترین گیم‌ها برای موبایل از نگاه کاربران ۲۰۲۶
-
-+ بازی efutball از قلم افتاده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9681
-
-<div align="center"><img src="files/post_9681_tasiyanc_9681.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ریزش سنگین انس طلای جهانی در ۸ ساعت اخیر هم باعث نشد طلا در ایران قیمتش افت کنه هم اکنون هر گرم طلا ۲۱.۸۰۰ و هردلار داره از مرز ۲۰۴ عبور میکنه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9679
-
-<div align="center"><img src="files/post_9679_tasiyanc_9679.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق تحقیقات جدید؛ سرماخوردگی واقعا پایان مردهاست و فیلم بازی نمی کنن!
-
-
-ممکنه یه مرد بتونه با پای شکسته راه بره اما وقتی سرما میخوره، نمیتونه تکون بخوره!
-حالا دلیلش چیه؟ وقتی بدن یه مرد دچار شکستگی میشه، بدنش آدرنالین و اندروفین ترشح میکنه.
-مغز میره رو حالت بقا و کلا سنسور درد رو خاموش میکنه، دلیلشم بخاطر تستوسترون بالای مردهاست. حالا همون تستوسترون وقتی مریض میشن سیستم ایمنی‌شون رو ضعیف میکنه!
-تحقیقات میگه تستوسترون مثل یه سرکوب کننده سیستم ایمنی عمل میکنه، در حالی که استروژن سیستم ایمنی رو قوی‌تر میکنه.
-برای همینه خانما راحت‌تر با سرماخوردگی کنار میان، آقایون پیاز داغش رو زیاد نمی کنن، بدنشون در برابر ویروس‌ها واقعا ضعیف‌تره.
-
-🩸 @Tasiyanc
 </div>
 

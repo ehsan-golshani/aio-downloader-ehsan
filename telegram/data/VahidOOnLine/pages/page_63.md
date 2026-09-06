@@ -1,8 +1,87 @@
 # آرشیو کانال VahidOOnLine - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/15 19:48
+📅 آخرین بروزرسانی: 1405/06/15 22:01
 
 ---
+
+## VahidOOnLine — post 256754
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از مخاطبان ایندیپندنت فارسی روز سه‌شنبه سوم شهریورماه ویدیویی از صف طولانی خودروهای سنگین برای دریافت گازوئیل در منطقه پردیس استان تهران را برای ما ارسال کرده است.
+
+این مخاطب می‌‌گوید این صف طولانی «در محدوده بعد از عوارضی پردیس و مقابل مجتمع کوثر شکل گرفته است.»
+
+مدیر شرکت پخش فرآورده‌های نفتی استان تهران روز دوشنبه با تایید خبر تمام شدن ذخیره چند جایگاه سوخت در پایتخت، رکوردشکنی مصرف و تقاضا را عامل این مشکل عنوان کرده بود.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256753
+
+<div align="center"><video src="files/post_256753_VahidOOnLine_256753.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256753_VahidOOnLine_256753.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان مقیم ایتالیا، دوشنبه دوم شهریور مراسم تولد متین خادمی، دانشجوی ایرانی درگذشته را در تورین برگزار کردند.﻿
+﻿متین خادمی، دانشجوی رشته حقوق در شهر تورین، در پی فشارهای روحی تاشی از کشتار دی‌ماه ۱۴۰۴ به زندگی خود پایان داد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سوم شهریورماه از سال ۱۴۰۳ در تقویم رسمی ایران، به‌عنوان روز ملی ارس نامگذاری شده است.
+نیروهای ارتش سرخ اتحاد جماهیر شوروی در سوم شهریور ۱۳۲۰، باوجود اعلام بی‌طرفی ایران در جنگ جهانی دوم، وارد خاک ایران شدند. سرجوخه مصیب ملک محمدی، سید محمد راثی هاشمی و عبدالله شهریاری، سه نظامی ارتش ایران، داوطلبانه ۴۸ ساعت مقابل نیروهای مهاجم بر روی پل آهنی جلفا مقاومت کردند.
+
+رود ارس بخشی از مرز ایران با جمهوری آذربایجان و ارمنستان را تشکیل می‌دهد. اهمیت فراراهبردی این رودخانه، با توجه به آثار و تبعات آخرین جنگ قره‌باغ، بیش از پیش افزایش یافته است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256751
+
+<div align="center"><video src="files/post_256751_VahidOOnLine_256751.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256751_VahidOOnLine_256751.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد برادر جاویدنام امین سلامی بر سر مزار جاویدنام مسعود ذات‌پرور رفته و از عموم مردم می‌خواهد که به مزار جاویدنام‌ها سر بزنند.
+﻿امین سلامی، ۲۶ ساله، ۱۸ دی ۱۴۰۴ با اصابت گلوله جنگی در کرمانشاه کشته شد. ﻿مسعود ذات‌پرور، ۳۹ ساله و قهرمان و مربی بدنسازی هم در اعتراضات همان روز در رشت جان باخت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256741
+
+<div align="center"><video src="files/post_256741_VahidOOnLine_256741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_256741_VahidOOnLine_256741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اخبار ایران در رسانه‌های جهان: سه‌شنبه ۳ شهریور ۱۴۰۵
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 256740
+
+<div align="center"><img src="files/post_256740_VahidOOnLine_256740.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+العربیه و الحدث، روز سه‌شنبه سوم شهریورماه به نقل از یک مقام رسمی آگاه به مذاکرات، گزارش کردند که عاصم منیر، فرمانده ارتش پاکستان، در جریان سفر به تهران، پیشنهاد آمریکا مبنی بر پایان محاصره و رفع تحریم‌ها را در قبال بازگشایی تنگه هرمز و پایان حملات نیروهای نیابتی جمهوری اسلامی، ارائه کرده است.
+
+براساس این گزارش، همین مقام آگاه به این دو رسانه عربستان سعودی گفته که محسن رضایی، نماینده رهبر جمهوری اسلامی و دبیر شورای عالی امنیت ملی در دیدار با عاصم منیر گفته است که مقام‌های عالی‌رتبه جمهوری اسلامی به مشورت‌های داخلی درباره این پیشنهاد ادامه می‌دهند و در اسرع وقت به آن پاسخ خواهند داد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 256739
 
@@ -204,95 +283,6 @@ IranintlTV
 🔹از لرستان: واسه خاطر حجاب از مغازه‌داران خواستند که دوربین‌هاشون رو مستقیم به اماکن وصل کنند.
 
 🔹از اصفهان: رانندگان کامیون‌ها این‌قدر کارشون محدود شده که حتی هزینه ماشین هم در نمیاد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256725
-
-<div align="center"><img src="files/post_256725_VahidOOnLine_256725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لین جیان، سخنگوی وزارت امور خارجه چین روز سه‌شنبه سوم شهریور در پاسخ به پرسشی درباره تحریم‌های جدید ایالات متحده علیه ایران گفت که همکاری چین با ایران در چارچوب قوانین بین‌المللی انجام می‌شود و نباید در آن مداخله یا اختلال ایجاد شود.
-
-به گزارش رویترز، سخنگوی وزارت خارجه چین در یک نشست خبری گفت پکن از نزدیک تحولات را زیر نظر دارد و تمام اقدامات لازم را برای محافظت قاطع از حقوق و منافع خود انجام خواهد داد.
-
-ایالات متحده روز دوشنبه تحریم‌های جدیدی را علیه ۶۰ فرد، نهاد و کشتی اعلام کرد، اقدامی که گفته می‌شود شریان اقتصادی ایران را قطع می‌کند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256724
-
-<div align="center"><img src="files/post_256724_VahidOOnLine_256724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لین جیان، سخنگوی وزارت امور خارجه چین روز سه‌شنبه سوم شهریور در پاسخ به پرسشی درباره تحریم‌های جدید ایالات متحده علیه ایران گفت که همکاری چین با ایران در چارچوب قوانین بین‌المللی انجام می‌شود و نباید در آن مداخله یا اختلال ایجاد شود.
-
-به گزارش رویترز، سخنگوی وزارت خارجه چین در یک نشست خبری گفت پکن از نزدیک تحولات را زیر نظر دارد و تمام اقدامات لازم را برای محافظت قاطع از حقوق و منافع خود انجام خواهد داد.
-
-ایالات متحده روز دوشنبه تحریم‌های جدیدی را علیه ۶۰ فرد، نهاد و کشتی اعلام کرد، اقدامی که گفته می‌شود شریان اقتصادی ایران را قطع می‌کند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256723
-
-<div align="center"><img src="files/post_256723_VahidOOnLine_256723.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فریدون یاسمی، مدیر منطقه تهران شرکت ملی پخش فرآورده‌های نفتی، در واکنش به گزارش‌ها درباره تعطیلی برخی جایگاه‌های سوخت در تهران گفت افزایش ناگهانی تقاضا و ترافیک مسیرهای مواصلاتی باعث اتمام بنزین در تعدادی از جایگاه‌ها و تعطیلی چندساعته آنها شده است.
-
-یاسمی گفت دوشنبه با افزایش ۳۰ درصدی توزیع بنزین، بیش از ۲۶ میلیون لیتر بنزین در تهران توزیع شد.
-
-به گفته او، میزان توزیع بنزین در پایتخت در روز دوشنبه رکورد سال جاری را شکست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256722
-
-<div align="center"><video src="files/post_256722_VahidOOnLine_256722.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256722_VahidOOnLine_256722.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهد یکی از شهروندان سردیسی شنی از جاویدنام آیدا عقیلی را بر ساحلی در عمان ساخته است.
-﻿آیدا عقیلی، ۳۴ ساله، شامگاه ۱۸ دی ۱۴۰۴ به ضرب گلوله در تهران کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256721
-
-<div align="center"><video src="files/post_256721_VahidOOnLine_256721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256721_VahidOOnLine_256721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوها و گزارش‌های منتشر شده از تهران، حاکی از آن است که کمبود بنزین پس از شهرستان‌ها به پایتخت هم رسیده است.
-
-یکی از کاربران شبکه‌های اجتماعی ویدیویی از صف طولانی پشت یک پمپ‌بنزین «تعطیل» در نزدیکی برزگراه صدر در شمال تهران را منتشر کرده است و می‌گوید «اصلا بنزینی نیست.»
-
-دولت مسعود پزشکیان رسما اعلام کرده است که با توجه به آثار جنگ و تحریم‌ها، ذخیره بنزین پاسخگوی مصرف نیست و از این پس، سهمیه‌ها کم خواهد شد و دست‌کم نرخ بنزین آزاد افزایش خواهد یافت.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 256720
-
-<div align="center"><video src="files/post_256720_VahidOOnLine_256720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_256720_VahidOOnLine_256720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید یک عدد بستنی را به قیمت ۳۰ هزار تومان خریده است ولی حجم آن نصف شده است.
 IranintlTV
 
 🤖 @VahidOOnLine
