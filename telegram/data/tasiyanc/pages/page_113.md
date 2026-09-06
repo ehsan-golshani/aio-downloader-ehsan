@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/06/15 12:33
+📅 آخرین بروزرسانی: 1405/06/15 16:30
 
 ---
+
+## tasiyanc — post 6535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥 https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لینک گپ تاسیان ❤️‍🔥
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[24]🚀♂️@Tasiyanc.conf
+</div>
+
+## tasiyanc — post 6532
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡موشک - GN 🌙.npvt
+</div>
 
 ## tasiyanc — post 6531
 
@@ -170,43 +195,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اختلال زیاد شده 😐
-</div>
-
-## tasiyanc — post 6505
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅87 کانفیگ تست شده
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ NPV & V2BOX & V2RAYNG زیر بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
-</div>
-
-## tasiyanc — post 6503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار رو از اینجا دنبال کنین + پروکسی
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-</div>
-
-## tasiyanc — post 6502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسانه های عبری:
-نتانیاهو بی صبرانه منتظر دستور حمله گسترده به ایران از سوی ترامپ است
-@Tasiyanc ✅
 </div>
 

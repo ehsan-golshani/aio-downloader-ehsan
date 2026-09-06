@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/15 12:33
+📅 آخرین بروزرسانی: 1405/06/15 16:30
 
 ---
+
+## tasiyanc — post 9378
+
+<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها ⚡️
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینترنت چطوره؟
+</div>
+
+## tasiyanc — post 9372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
+
+بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9370
 
@@ -210,43 +245,5 @@ g25
 «جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9353
-
-<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9352
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر آن‌هایی که
-وقتی تو را خاموش یافتند
-رهایت نکردند
-مگر بعد از آن‌که
-نور و روشنایی را به تو باز گرداندند.
-</div>
-
-## tasiyanc — post 9351
-
-<div align="center"><img src="files/post_9351_tasiyanc_9351.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
 </div>
 

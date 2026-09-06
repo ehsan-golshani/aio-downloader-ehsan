@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/15 12:33
+📅 آخرین بروزرسانی: 1405/06/15 16:30
 
 ---
+
+## tasiyanc — post 9702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 210.000 تومان 😐
+</div>
+
+## tasiyanc — post 9701
+
+<div align="center"><img src="files/post_9701_tasiyanc_9701.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 با این سایت به پرامپت‌های پولی دسترسی رایگان پیدا میکنید
+
+به هزاران پرامپت حرفه‌ای دسترسی پیدا کن، ایده بگیر و تصاویر جذاب‌تری با ابزارهای هوش مصنوعی بساز 🤖
+
+🔺 مجموعه‌ای از پرامپت‌های آماده 
+🔺 ایده‌های خلاقانه برای ساخت تصویر
+🔺 دسترسی به پرامپت های پوستر های تبلیغاتی
+🔺 مناسب برای مبتدی‌ها و حرفه‌ای‌ها 
+🔺 استفاده رایگان از امکانات و پرامپت‌ها 
+اگه دنبال ایده‌های جدید برای خلق تصاویر خاص هستی، این سایت رو از دست نده
+🌐 PromptHero.com
+
+
+💋 @Tasiyanc | تاسیان
+</div>
+
+## tasiyanc — post 9700
+
+<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال هانتر بت شو👇
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9698
 
@@ -268,77 +318,6 @@ til.ac/0L4vyJf
 
 
 📎 11. آی‌موویز imovies.org
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال بت ویژن شو👇
-@Vision_Bet
-@Vision_Bet
-@Vision_Bet
-</div>
-
-## tasiyanc — post 9676
-
-<div align="center"><video src="files/post_9676_tasiyanc_9676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9676_tasiyanc_9676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶
-🚨
-🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده
-🔥
-
-@Vision_Bet
-@Vision_Bet
-@Vision_Bet
-</div>
-
-## tasiyanc — post 9675
-
-<div align="center"><video src="files/post_9675_tasiyanc_9675.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9675_tasiyanc_9675.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨با اعلام پزشکیان نرخ سوم بنزین ۱۰ هزار تومان شد و به زودی این تغییر قیمت اعمال می‌شود.
-پس از نرخ سوم ۱۰ هزار تومانی نیز نرخ آزاد اعمال خواهد شد که مابین ۴۰ تا ۸۷ هزار تومان خواهد بود
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9674
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 چند هوش مصنوعی بدون محدودیت در یک جا با حفظ حریم خصوصی!
-
-
-🔗 https://duck.ai
-
-​بدون نیاز به ساخت اکانت‌های مختلف، به قوی‌ترین مدل‌های هوش مصنوعی دسترسی داشته باش و پاسخ‌هاشون رو با هم مقایسه کن!
-
-​
-🟠 ویژگی‌های مهم:
-
-⚡️ حفظ کامل حریم خصوصی: حذف IP و عدم ذخیره چت‌ها روی سرور
-• امنیت بالا: چت‌ها فقط روی دستگاه خودت ذخیره میشن و صرف آموزش مدل‌ها نمیشن
-
-⚡️ دسترسی سریع و یک‌جا: بدون دردسر ثبت‌نام در چند سایت مختلف
-
-​
-🤖 مدل‌های رایگان در دسترس:
-• GPT-5.4 (nano & mini)
-• Claude 4.5 Haiku
-• Mistral Small 4
-• GPT-oss 120B | Gemma 4 31B
-
-🔺 کاربرد: ترجمه، تولید متن و عکس ، خلاصه‌سازی و کارهای روزمره
 
 
 🩸 @Tasiyanc

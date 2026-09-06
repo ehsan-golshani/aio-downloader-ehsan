@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/15 12:33
+📅 آخرین بروزرسانی: 1405/06/15 16:30
 
 ---
+
+## tasiyanc — post 9914
+
+<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سپاه هفته قبل: اگه اسرائیل به تپه‌های علی الطاهر حمله کنه با خشم ما روبرو میشه
++ اسرائیل دیشب اونجا رو فتح کرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9910
 
@@ -258,69 +308,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9892
-
-<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری
-
-با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9890
-
-<div align="center"><img src="files/post_9890_tasiyanc_9890.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 متاسفانه یه دختر ۱۹ ساله توی توییتر بعد از انتشار این پست‌ها، دست به خودکشی کرده و خبری ازش نیست .
-
-علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
-خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
-خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 

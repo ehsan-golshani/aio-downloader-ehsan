@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/14 13:07
+📅 آخرین بروزرسانی: 1405/06/15 16:29
 
 ---
+
+## MehdiBudam — post 8091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در مورد متد Tor بعضیا که میگید وصل نمیشه یا تا ۱۴ درصد میره وقتی از رباتش میخواید Bridge بگیرید هم Web Tunnel بگیرید و هم obfs4 و وقتی از تنظیمات بصورت دستی وارد میکنید با یه فاصله بینشون هر دو رو وارد کنید در این حالت هرکدوم کار کنه وصل میشه.
+</div>
 
 ## MehdiBudam — post 8090
 
@@ -230,11 +236,5 @@ slipnet-bundle-enc://AZSovlwx4eQXASwgeFI1FBv9n+PKQqKWCKcRmNljqhStDE07oEmvvAtHKu+
 Pass: @MehdiBudam
 
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-120 113 109 107 106 104 103 99 98 97 96 95 88 84 79 77 75 74 73 71 70 69 66 61 58 57 47 46 31 25 22 و بقیه وصلن.
 </div>
 

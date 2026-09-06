@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/06/15 12:33
+📅 آخرین بروزرسانی: 1405/06/15 16:30
 
 ---
+
+## tasiyanc — post 8005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+🔻امشب ما مهمانی بسیار ویژه خواهیم داشت که در حملات ما به ایران شرکت خواهد داشت.
+فیکه خبر
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشن فاک باز شد
+</div>
+
+## tasiyanc — post 8001
+
+<div align="center"><video src="files/post_8001_tasiyanc_8001.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8001_tasiyanc_8001.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جای اینکه مراقب دخترامون باشیم اینطوری باید تا کنین باشون؟؟؟ مرد ایرانی و با مرام و غیر.ت میشناسن جلوی گلوله وایستادن مردا که گلوله نخورن دخترامون ، این چه کاری بود کردید شما بی نا*موسا؟
+پی‌نوشت : اکثر این چنلا برای لرستان بودن که دستگیر شدن ادمیناشون امیدوارم لرستانیا این بیشرفارو ادب کنن .
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8000
+
+<div align="center"><img src="files/post_8000_tasiyanc_8000.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در حالی که داشتم سومین لیوان چاییم رو میخوردم اینو دیدم:
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 7998
 
@@ -232,34 +271,5 @@ A true friend of the Iranian people, may your soul rest in peace. You will alway
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 بیانیه صفحه رسمی لیندسی گراهام: او بر اثر یه بیماری ناگهانی و کوتاه مدت درگذشت! تسلیت میگیم به خونوادش. @Tasiyanproxy ✅
-</div>
-
-## tasiyanc — post 7966
-
-<div align="center"><img src="files/post_7966_tasiyanc_7966.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤 در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره…
-</div>
-
-## tasiyanc — post 7965
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسمی ـ سناتور لیندزی گراهام معروف به ( عمو لیندزی) درگذشت 🖤
-
-در شب شنبه ۱۱ جولای، سناتور ایالات متحده لیندزی گراهام بر اثر یک بیماری کوتاه و ناگهانی درگذشت. خانواده سناتور گراهام از دعاهای مردم در این زمان قدردانی می‌کنند و درخواست حفظ حریم خصوصی در این دوره بسیار سخت را دارند.
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 7960
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️🇺🇸 هگست وزیر جنگ آمریکا: ایران انتخاب نادرستی انجام داد. اکنون باید عواقب آن را بپردازد. @TasiyanProxy ⭐️
-</div>
-
-## tasiyanc — post 7959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Speed Fast ⚡ 🇩🇪.npvt
 </div>
 
