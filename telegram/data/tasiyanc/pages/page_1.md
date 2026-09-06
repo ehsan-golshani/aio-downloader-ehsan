@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9976
+
+<div align="center"><img src="files/post_9976_tasiyanc_9976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#پرونده_قتل
+
+
+🔴پدرو آلونسو لوپز هیولای آند بی رحم ترین قاتل اکوادور ، کلمبیا ؛ مردی که ۳۰۰ قربانی را به نام خود زد.
+سال‌ها، در مناطق دورافتاده‌ی کلمبیا، اکوادور و پرو، دختران یکی‌یکی ناپدید می‌شدند؛ بدون اینکه کسی بداند چه اتفاقی برایشان افتاده است.
+در سال ۱۹۸۰، پدرو آلونسو لوپز در شهر آمباتوِ اکوادور هنگام تلاش برای ربودن یک دختر دستگیر شد. بعد از بازجویی، اعتراف کرد که صدها دختر را کشته است و پلیس را به محل دفن قربانیان برد؛ جایی که ده‌ها جسد کشف شد.
+
+اما شاید تکان‌دهنده‌ترین بخش پرونده، پایان آن بود:
+او به ۱۶ سال زندان محکوم شد؛ حداکثر مجازاتی که قانون آن زمان اکوادور اجازه می‌داد. تنها ۱۴ سال بعد، به دلیل «رفتار خوب» آزاد شد.
+و بعد از آزادی؟
+ناپدید شد.
+تا امروز، سرنوشت دقیق او همچنان در هاله‌ای از ابهام است
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9975
+
+<div align="center"><a href="files/post_9975_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9974
+
+<div align="center"><video src="files/post_9974_tasiyanc_9974.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9974_tasiyanc_9974.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9973
 
@@ -198,53 +288,5 @@
 sg14
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9950
-
-<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز به آینده امید داری این پیام رو لایک کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9948
-
-<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
-
-
-💋 @Tasiyanc
 </div>
 

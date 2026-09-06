@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 7061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTpXNzRYRkFMTEx1dzZtNUlB@series-a2.samanehha.co:443#%F0%9F%87%AC%F0%9F%87%A7%40Tasiyanc%20%F0%9F%8C%99
+Loc 🇬🇧
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 16 June روز برآورده شدن آرزوهاتونه😄
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 7058
+
+<div align="center"><img src="files/post_7058_tasiyanc_7058.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمامی نپسترایی ک از دیروز صبح زدیم وصلن با سرعت فضایی وصل شید عشق کنید ⚡️
+</div>
 
 ## tasiyanc — post 7057
 
@@ -183,41 +207,5 @@ T.me/Tasiyanc ✅
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 7015
-
-<div align="center"><video src="files/post_7015_tasiyanc_7015.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_7015_tasiyanc_7015.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  Ovpn 📶
-
-تست شده تمام نتها 🚀
-
-دانلود OpenVpn  
-🕹
-
-آموزش اتصال
-
-✔️ T.me/Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐
-ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNToxa1ZyMEtBVElKSTdtd09G@admin.c1.havij.co:443#%40Tasiyanc%20%F0%9F%94%A5
-GB 🇬🇧
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 7012
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-matador ⚡ Fast.npvt
 </div>
 

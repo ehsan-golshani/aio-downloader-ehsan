@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 6980
+
+<div align="center"><video src="files/post_6980_tasiyanc_6980.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_6980_tasiyanc_6980.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
+
+## tasiyanc — post 6979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ متد اختصاصی httpCustum میزارم تست کنید
+</div>
+
+## tasiyanc — post 6965
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 سرور سرعتی NPV 
+🌟
+T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6964
 
@@ -237,27 +262,5 @@ T.me/Tasiyanc ✅
 ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6944
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز June 15
-روز جهانی گل گرفتنه 💐
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتونم بخیر 🥹
-</div>
-
-## tasiyanc — post 6942
-
-<div align="center"><img src="files/post_6942_tasiyanc_6942.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑ساب لینک اختصاصی تاسیان👑 https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt اینو بزنید 🔐🔐 هر ۴ ساعت کانفیگا آپدیت میشن بعد از ۴ ساعت update subscription بزنید تا آپدیت شن @Tasiyanc ✅
 </div>
 

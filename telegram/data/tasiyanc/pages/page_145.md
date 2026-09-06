@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 145
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 5690
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 Config - vip sv 🇬🇧
+
+vless://6202b230-417c-4d8e-b624-0f71afa9c75d@5.10.245.191:443?path=Telegram%40WangCai2%2F&security=tls&encryption=none&insecure=1&host=sni.my111000.tech&fp=chrome&type=ws&allowInsecure=1&sni=sni.my111000.tech#%40Tasiyanc%20%F0%9F%87%AC%F0%9F%87%A7
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 5689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass @Tasiyanc
+
+📱 اختصاصی تاسیان  نامحدود📱
+
+⛈سرور vip تست شده همه اپراتورا⛈ 
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅V2rayNG 3 vip server 🔐 vless://bafacd98-136a-4530-838d-4e5c51838dac@188.226.180.209:443?path=%2Fshows%2Fregister%2Fjuzibaipiao&security=tls&encryption=none&insecure=0&host=juzi8186.qea.ccwu.cc&type=ws&allowInsecure=0&sni=juzi8186.qea.ccwu.cc#%40Tasiyanc…
+</div>
 
 ## tasiyanc — post 5687
 
@@ -156,35 +185,5 @@ vless://9d27a374-26d9-46df-9895-312a2062bc47@104.18.32.47:443?path=%2F&security=
 
 ترکیبی ✅
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5668
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Mci [22].npvt
-</div>
-
-## tasiyanc — post 5667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈سرور سرور تست شده همراه بقیه اپراتورا تست کنن⛈
-
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 🇸🇦
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈3 سرور وی ای پی تست شده وای‌فای ⛈
-
-
-🚀 @Tasiyanc ✅
 </div>
 

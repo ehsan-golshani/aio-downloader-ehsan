@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ صدای انفجار در خرم آباد
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️صدای انفجار مهیب در کنارك
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8470
 
@@ -145,23 +171,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانییییییییییییا قهرمان جام جهانی شد
-</div>
-
-## tasiyanc — post 8452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماااااامممممممم
-</div>
-
-## tasiyanc — post 8451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه اسپانیا از کون اورد
 </div>
 

@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه جون دارن جنوب میزنن خب؟چرا گیر دادی ب کردستان عراق داری اشتباهی میزنی ها😹
+</div>
+
+## tasiyanc — post 8207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ آمریکا رفته سراغ پل های ارتباطی بوشهر - تایید نشده
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8205
 
@@ -145,29 +165,5 @@ https://rubika.ir/joinc/FDHBEIFG0HQOFBGQLTGDPFIUHKYRJZWE
 🚨سخنرانی مهم پرزیدنت ترامپ ۳ ساعت دیگه در کاخ سفید شروع میشه
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حملات امشب بی سابقه اس
-</div>
-
-## tasiyanc — post 8185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدا حافظ مردم شریف جنوب ایران و ایران باشد ❤️
-</div>
-
-## tasiyanc — post 8184
-
-<div align="center"><img src="files/post_8184_tasiyanc_8184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨تصویر تخریب پل کهورستان در بندر خمیر
-
-@Tasiyanc 
-⭐️
 </div>
 

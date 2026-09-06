@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : در این دو جنگ ۱۸ سرباز از دست دادیم
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ:
+ما روابط بسیار خوبی با ایران داریم. آنها به دنبال یک توافق هستند، اما من می‌گویم که آنها هنوز آماده نیستند. آنها باید بیشتر مجازات شوند. آنها هنوز هم اهداف شومی در مورد برنامه هسته‌ای خود دارند، و آنها هرگز نباید به سلاح هسته‌ای دست یابند.
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 8622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ درباره جنگ ایران:
+
+ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8621
 
@@ -221,37 +245,5 @@ Fact @TASIYANC ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا : تعداد کشته‌ها به 3 نفر رسید. @TASIYANC ✅
-</div>
-
-## tasiyanc — post 8602
-
-<div align="center"><video src="files/post_8602_tasiyanc_8602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8602_tasiyanc_8602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت گذرگاه مرزی شلمچه بین ایران و عراق، بعد از حملات ارتش آمریکا :
-
-تعداد کشته‌ها به 3 نفر رسید.
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبلیغات و همکاری با مجموعه ما
-👉 Admin @TsSub
-</div>
-
-## tasiyanc — post 8600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ :
-
-بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
-
-اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
-
-@Tasiyanc ⭐️
 </div>
 

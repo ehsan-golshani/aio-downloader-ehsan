@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 6330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بیاید گپمون - تبادل کانفیگ & ...
+https://t.me/+RTGtcYWb8HdkNjdk
+</div>
+
+## tasiyanc — post 6328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN♻️
+تست شده  🚀
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۹۰٪ کانفیگای ک روزهای گذشته گذاشتیم وصله
+</div>
 
 ## tasiyanc — post 6326
 
@@ -179,27 +200,5 @@ Password : @Tasiyanc  ⏩
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شما باشید فشار نمیخورید؟
-</div>
-
-## tasiyanc — post 6303
-
-<div align="center"><video src="files/post_6303_tasiyanc_6303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_6303_tasiyanc_6303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبه این وایرگارد ما زدیم متدشو یادتون دادیم، ۱۰۰ تا endpoit تست کردیم تا شما برید تو چنلتون بزنید اختصاصی و آموزشش بزارید واسه ممبراتون
-</div>
-
-## tasiyanc — post 6302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به هرحال فشار میاد و تردید میکنم برای ادامه فعالیت
-</div>
-
-## tasiyanc — post 6301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ما ک از اولش گفتم Ovpn تو حیطه من نی و نمیزارم ،چیزای ام ک میزاریم از Ovpn بیشتر از vpnbook یا vpnjantit که اشتراکشو دارم
 </div>
 

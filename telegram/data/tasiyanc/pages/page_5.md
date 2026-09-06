@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠طبق گزارش ها؛
+روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
++ دلیلشم انجام برخی کارهای +۱۸ بوده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9878
+
+<div align="center"><img src="files/post_9878_tasiyanc_9878.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠عکسی که میبینید متعلق به خودکشی دسته جمعی جونزتاون گویان در سال ۱۹۷۸ هست.
+
+جیم جونز، رهبر یه فرقه مذهبی که به مرور کنترل زیادی روی زندگی اعضای فرقه پیدا کرده بود، تو این منطقه اعضا رو با تهدید و زور حبس میکرد و با ضرب و شتم به کار اجباری وادار میکرد.
+
+یه نماینده از کنگره آمریکا به اسم لئو رایان برای بازدید به جونزتاون رفت و یه عده از مردم اونجا ازش درخواست کردن که یواشکی از جونزتاون خارجشون کنه. جیم جونز که از این قضیه مطلع شده بود، رایان و ۴ همراهش رو حین خروج با شلیک گلوله به قتل رسوند.
+
+بعد از این اتفاق، جونز دستور مرگ دسته جمعی داد و گفت این آخرین اعتراض به دنیای فاسد و ظالم هست.
+به اعضای فرقه نوشیدنی انگور حاوی سیانور داده شد. یه عده خودشون نوشیدن و یه عده هم که مقاومت کردن با زور و اجبار مجبور به نوشیدن شدن. تعدادی هم که خواستن فرار کنن، با شلیک نیروهای امنیتی وابسته به جونز کشته شدن.
+
+اون روز مجموعا ۹۱۸ نفر تو جونزتاون کشته شدن که ۲۷۰ نفرشون بچه بودن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9877
+
+<div align="center"><video src="files/post_9877_tasiyanc_9877.dat" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9877_tasiyanc_9877.dat" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9876
 
@@ -245,62 +286,5 @@ sa11
 ⭕️
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9856
-
-<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
-
-ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9855
-
-<div align="center"><video src="files/post_9855_tasiyanc_9855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9855_tasiyanc_9855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید فکر کنید پسرا دنبال زیبایی و هیکل خوبن‌، ولی تنها چیزی که یه مرد میخواد همچین دختریه که تو هر شرایطی کنارش باشه.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9854
-
-<div align="center"><video src="files/post_9854_tasiyanc_9854.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9854_tasiyanc_9854.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

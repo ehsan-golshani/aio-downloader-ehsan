@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9688
+
+<div align="center"><img src="files/post_9688_tasiyanc_9688.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
+
+                        ⭕️ بدون قرعه‌کشی!
+⭕️ هدیه ویژه برای همه کاربران جدید!
+
+
+💵پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+
+👽 ثبت نام کنید 👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+
+
+🌐آدرس سایت👇
+https://Winamit.com/fa
+https://Winamit.com/fa
+https://Winamit.com/fa
+
+📲 کانال تلگرامی #وینامیت :
+
+✅@Winamit_fa
+</div>
+
+## tasiyanc — post 9687
+
+<div align="center"><img src="files/post_9687_tasiyanc_9687.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لیست جدید قیمت‌های موبایل در ایران؛ پایین‌رده‌ترین گوشی سامسونگ، A07 نزدیک به ۵۰ میلیون تومن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار 206 هزار تومان .
+</div>
 
 ## tasiyanc — post 9684
 
@@ -346,51 +395,4 @@ til.ac/0L4vyJf
 
 🩸 @Tasiyanc
 </div>
-
-## tasiyanc — post 9663
-
-<div align="center"><video src="files/post_9663_tasiyanc_9663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9663_tasiyanc_9663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پشت پرده ی تلخ داستان کارتون پلنگ صورتی 💔
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9661
-
-<div align="center"><video src="files/post_9661_tasiyanc_9661.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9661_tasiyanc_9661.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید نسخه جدید
-
-دانلود آیفون نسخه جدید
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود 
-⬇️ ترید 
-🤑 اینستاگرام 
-📸 جمنای 
-🤖
-
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9659
 

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
+</div>
+
+## tasiyanc — post 8934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 گزارش انفجار از سیریك
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 8933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نامحدود نپسترنت 📱
+
+سرور سرعتی تست شده مولتی لوکیشن 📍
+
+آموزش اتصال ⚡️
+
+اتصال امن برای همه
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 8932
 
@@ -249,41 +277,5 @@ IPv6
 🌐 betinja.bet
 کانال بونوس های رایگان r11
 @betinjabet
-</div>
-
-## tasiyanc — post 8912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 آکسیوس:
-
-در پی تماسهای وزرای امور خارجه ترکیه قطر و پاکستان در مورد آمادگی ایران برای برگزاری نشستی در ژنو سوئیس برای ادامه مذاکرات فرماندهی مرکزی ایالات متحده (CENTCOM) عملیات امشب را به طور موقت به مدت ۴۸ ساعت متوقف کرد.
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8911
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 ترامپ:
-
-من به خاطر آینده جهان و بقای ج ا ایران موافقت کردم که در ازای احتمال دستیابی سریع به توافق، حمله را لغو کنم.
-
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-پروکسی | پروکسی | پروکسی
-
-🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8910
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: رهبران قطر، عربستان سعودی و امارات متحده عربی درخواست کردند که حمله به ایران دو یا سه روز به تعویق بیفتد
-
-🔱 @Tasiyanc
 </div>
 

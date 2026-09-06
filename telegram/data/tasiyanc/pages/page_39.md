@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9004
+
+<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
+بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9003
+
+<div align="center"><video src="files/post_9003_tasiyanc_9003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9003_tasiyanc_9003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تهران نوروز ۱۳۵۶ نزدیک به ۵۰ سال پیش
+😭 !!
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 
+🖤 Config Unlimated Vip 
+⚡️━━━╮
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.210:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://Y2hhY2hhMjAtaWV0Zi1wb2x5MTMwNTprMWRCT21PQjRvcWk3VW1wMzdhMWJR@82.38.31.176:8080#%F0%9F%87%B3%F0%9F%87%B1NL%20%40Tasiyanc
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.179:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@141.98.101.178:443#%F0%9F%87%AC%F0%9F%87%A7GB%20%20%40TASIYANC
+
+
+📍Location 
+🇬🇧
+🇳🇱
+
+
+📱@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9001
 
@@ -282,64 +333,5 @@ Fast - HCustum 🇮🇹B.hc
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبر بد
 متاسفانه پورت های مهم من جمله 22 که برای پروتکل های SSHبکار میره مسدود شده کار نمیکنه ، امیدوارم اوکی شه چون این نشانه از چیزیه ک دوس ندارم عنوان کنم.
-</div>
-
-## tasiyanc — post 8982
-
-<div align="center"><video src="files/post_8982_tasiyanc_8982.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8982_tasiyanc_8982.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم
-🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 
-📱
-
-سرور سرعتی مناسب تمام نت‌ها 
-⚡️
-
-آموزش اتصال 
-✅
-
-دانلود 
-📱 android
-🕹 iOS
-
-اتصال امن برای همه 
-🏠
-
-
-💙@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 8980
-
-<div align="center"><video src="files/post_8980_tasiyanc_8980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8980_tasiyanc_8980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی مراسم اربعین امسال، آهوهای ایرانیو کباب کردن میدن به زائرین!!!
-
-⚠️ حاوی تصاویر دلخراش.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 8978
-
-<div align="center"><video src="files/post_8978_tasiyanc_8978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8978_tasiyanc_8978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید خواهر جاویدنام دانیال مرادی‌زاده، قلب هر انسانی رو بدرد میاره ...
-
-@Tasiyanc 
-⭐️
 </div>
 

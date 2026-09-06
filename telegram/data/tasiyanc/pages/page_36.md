@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
+</div>
+
+## tasiyanc — post 9083
+
+<div align="center"><video src="files/post_9083_tasiyanc_9083.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9083_tasiyanc_9083.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مورگان فریمن ستاره هالیوود : من زرتشتی هستم !!
+
+🤴 دین زرتشت یکی از کهن‌ترین آیین‌های توحیدی جهان است که در ایران باستان ظهور کرد و پایه‌گذار آن «اشوزرتشت» پیامبر بزرگ ایرانی بود و اصول بنیاد آن پرستش خدای یکتا ( اهورا مزدا) بود ، ایرانیان ۳۵۰۰ سال پیش با پیروی از دین زرتشت از اولین یکتا پرستان جهان بودند !!
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9081
+
+<div align="center"><video src="files/post_9081_tasiyanc_9081.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9081_tasiyanc_9081.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕کانفیگ اختصاصی نامحدود اینجکتور
+📶
+
+پایداری بالا ، مناسب گیم ، دانلود ، وبگردی 
+⚡️
+
+سرور سرعتی‌ لوکیشن USA - Germany 
+📍
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون  
+📱
+
+آموزش اتصال 
+🔸
+
+اتصال امن برای همه 
+🇮🇷
+
+
+📱 @TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9080
 
@@ -311,52 +365,5 @@ r16
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9060
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ ⭕️ اطلاع رسانی حداکثری ... کلاهبرداری ..
-
-🚨 جدیدا برخی کانالهای تلگرامی در حوزه ارز دیجیتال شروع به معرفی شت‌کوین ( توکن های کلاهبرداری) بدون پشتوانه میکنن که بخرید قراره پامپ شه میلیونر بشید ...
-از جایی که ۹ ساله کارم فارکس و ارزدیجیتاله باید به شما هشدار بدم به هیچ عنوان حتی ۱ دلار هم بابت خرید این توکنهای دیجیتال پول ندید ، بعد خرید حتی نمیتونید بفروشید ، لیکوییدیتی (پشتوانه) این توکنها دست خود سازنده توکن قرار میگیره و فروش توکنو میبندن و شما نمیتوانید بفروشید چون لاک میشه و پولتون حروم میشه ، این روزا داره شدیداً ترند میشه ، حتی شما هم میتونید با یه برنامه نویسی ساده ارز دیجیتال ( توکن) بسازید با هر اسمی بر پایه شبکه اسمارت چین یا اتریوم ، به دام این کلاهبردارهای بی ریشه نیوفتید ، اطلاع رسانی کنید به همه تا سرشون کلاه نره .
-
-Join @TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9059
-
-<div align="center"><img src="files/post_9059_tasiyanc_9059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴قتل پسر به دست پدر در شاهرود، بخاطر اینکه پسر ۲۵ ساله از باباش موتور میخواست براش بخره
-
-توی شاهرود، یه پسر 25 ساله بخاطر اینکه یه مدت اصرار میکرده و از باباش موتور می‌خواسته؛
-باباش با سنگ میزنه تو سرش و به قتل میرسونتش و بعدش جنازه‌شو میندازه تو یه چاه 40 متری!!
-@TASIYANC 
-✅
-</div>
-
-## tasiyanc — post 9058
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟اپلیکیشن‌های کاربردی برای ادیت :
-
-
-⚡️ Picsart
-• کلاژ، فیلترای خوب، همه کار
-⚡️ Ps Express
-•روتوش چهره
-⚡️ Snapedit
-•حذف سوژه‌ی اضافه
-⚡️ Lightroom
-•خدای رنگ و نور
-⚡️ VN
-•ادیت Cash ویدئو
-⚡️ Instories
-•ساخت استوری‌های متفاوت
-
-👹@TASIYANC ✅
 </div>
 

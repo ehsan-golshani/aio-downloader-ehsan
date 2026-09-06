@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8307
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خاورمیانه آرومه امشب انگار؟
+</div>
+
+## tasiyanc — post 8306
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ شنیده شدن صدای انفجار در اهواز
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 8305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کاهش پهنای باند داره گزارش میشه
+کانفیگ مخصوص نت ملی رو بگیرید
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8303
 
@@ -153,25 +176,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کص مادرت عرزشی نهایتش با اک فیک فحش بدی ، خایه داری شماره بده بزنگم بهت
-</div>
-
-## tasiyanc — post 8284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو امام سجاد نیستی بگی مریضم و نمیتونم بجنگم. جانفدا ثبت نام کردی بااااید بری😹😹😹
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8283
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
-</div>
-
-## tasiyanc — post 8281
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-JAVID SHAH 👑
 </div>
 

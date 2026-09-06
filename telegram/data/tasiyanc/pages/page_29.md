@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9263
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چالش میو بزاریم؟
+</div>
+
+## tasiyanc — post 9262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9259
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+در صورت ارور چند بار بزنید
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9258
 
@@ -257,46 +286,5 @@ https://t.me/+MT03hkV78q9kMTc0
 تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
-
-@Tasiyanc⭐️
-</div>
-
-## tasiyanc — post 9232
-
-<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
-جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
-
-
-@Tasiyanc ⭐️
 </div>
 

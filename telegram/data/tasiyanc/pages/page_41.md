@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8957
+
+<div align="center"><img src="files/post_8957_tasiyanc_8957.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طومار جدید ترامپ:
+ـ‌ رهبران ایران واقعاً دورو و غیرقابل‌باورن! خودشون درخواست مذاکره دادن، اونا حتی التماس کردن.
+مذاکرات شروع شده و قرار هم هست به‌زودی ادامه پیدا کنه، ولی بعدش میان جلوی دوربین می‌گن اصلاً مذاکره‌ای در کار نیست و فقط با عمان در ارتباطن.
+بعد هم طبق معمول شروع می‌کنن به حرف زدن و میگن تنگه هرمز با قدرت دست خودشونه؛ در حالی که الان عملاً نیروی دریایی آمریکا کنترل کاملش رو در اختیار داره و چیزی که بعضیا اسمش رو گذاشتن “دیوار فولادی آمریکا” اونجاست. هیچ چیزی بدون اجازه ما به ایران نمی‌رسه و تا وقتی توافقی انجام نشه یا ایران کاملاً تسلیم نشه، هم چیزی وارد ایران نمی‌شه. چه ایران قبول بکنه چه نکنه، ما در حال مذاکره برای حل مشکلی هستیم که خودش دهه‌ها ایجادش کرده. موضوع خیلی ساده است؛ ایران هیچ‌وقت به سلاح هسته‌ای دست پیدا نخواهد کرد.
+
+👹@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بی بی نتانیاهو:
+
+اکثریت قاطع ایرانیان اسرائیل را تحسین می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8955
+
+<div align="center"><img src="files/post_8955_tasiyanc_8955.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت اینفوگرافیک ( وایب) اسم 🆕
+قسمت NAME اسم خودتون رو بزنید!
+
+Prompt For only ChatGpt 🤖
+
+Create a trendy Pinterest-style aesthetic collage graphic, vertical format 9:16, dreamy and elegant design with soft pastel gradient background (blush pink, cream, and gold tones), decorative botanical elements (dried flowers, gold leaf accents), minimalist elegant Persian calligraphy-inspired typography.
+
+At the top, display the name “[NAME]” in large, elegant Persian script as the main title.
+
+Below it, arrange the content in a clean magazine-style layout divided into 4 soft-edged sections/cards, each with a small icon (a feather, a flame, a compass, a tree-root symbol), and Persian text (nice readable font, right-to-left) describing:
+
+1. وایب اسم (شخصیت و حس اسم)
+2. انرژی اسم
+3. ریشه و معنی اسم
+4. اصالت و خاستگاه اسم
+
+Add subtle sparkle/glitter overlay, warm soft lighting, high-resolution, ultra-realistic aesthetic photography style mixed with elegant flat-lay design elements, Instagram-worthy composition, no visible text errors, clean and balanced spacing.
+
+
+👹@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8954
 
@@ -229,33 +280,5 @@ vless://f75814f6-8f81-4847-b792-168c41f2dc85@45.196.201.94:443?security=reality&
 
 
 👹@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8935
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ اختلالی در اینترنت نیست کانفیگای کانال با سرعت وصله
-</div>
-
-## tasiyanc — post 8934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 گزارش انفجار از سیریك
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نامحدود نپسترنت 📱
-
-سرور سرعتی تست شده مولتی لوکیشن 📍
-
-آموزش اتصال ⚡️
-
-اتصال امن برای همه
-
-✅ @TASIYANC
 </div>
 

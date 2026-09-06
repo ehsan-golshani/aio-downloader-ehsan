@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
+
+@Tasiyanc⭐️
+</div>
+
+## tasiyanc — post 9232
+
+<div align="center"><img src="files/post_9232_tasiyanc_9232.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ رفته تماشای بازی‌های پاتریوتس؛ بازیکنا هم دخترای نوجوان بودند.
+جالبه ترامپی که همه‌جا چرت می‌زنه، این بار چند ساعت کامل بیدار و متمرکز مونده!🤣
+
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9231
 
@@ -179,37 +220,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
-</div>
-
-## tasiyanc — post 9207
-
-<div align="center"><img src="files/post_9207_tasiyanc_9207.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📞 با پروکسی هم میشه تماس تلگرامی گرفت؟
-
-⚡️ بله حتماً! شاید تا حالا اگه میخواستید به کسی زنگ بزنید مجبور بودید فیلترشکن قوی وصل کنید و کلی دردسر بکشید؛ ولی الان میخوام یه ترفند خوب بهتون بگم که دیگه به هیچ VPN اضافی نیاز ندارید.
-
-⚡️ قدم اول: برید تو تنظیمات و بخش Privacy and security رو باز کنید. بعد Call رو انتخاب کنید، گزینه Use Peer-to-Peer with رو بزنید و My Contacts رو انتخاب کنید.
-
-⚡️ حالا برگردید عقب و به بخش Data and Storage برید. گزینه Use less data for calls رو پیدا کنید و روی حالت Always بذارید تا مصرف اینترنت کم بشه.
-
-⚡️ کافیه فقط یه پروکسی MTPROTO خوب و پایدار وصل باشید و تماس بگیرید. فقط یه نکته مهم: حتماً طرف مقابل باید آنلاین باشه و شماره شما توی لیست مخاطبانشون ذخیره شده باشه.
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+fxq9NcirUag3N2Zk
 </div>
 

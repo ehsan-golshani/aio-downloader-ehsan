@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8818
+
+<div align="center"><video src="files/post_8818_tasiyanc_8818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_8818_tasiyanc_8818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حکم اعدام بنیامین نقدی صادر شد.
+
+بنیامین از قهرمانان کیک بوکس بود و کلی مدال کشوری و جهانی داشت.
+
+⭐@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡𝙉𝙚𝙬 𝙎𝙥𝙚𝙚𝙙 ⚡.npvt
+</div>
+
+## tasiyanc — post 8815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن
+🇩🇪🇮🇹🇸🇪🇯🇵🇹🇼🇹🇷
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود ⬇️ ترید 🤑
+اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8814
 
@@ -229,49 +274,5 @@ Multi Location ⚡
 قله المپوس مریخ با 21222 متر
 
 ⭐ @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8792
-
-<div align="center"><video src="files/post_8792_tasiyanc_8792.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8792_tasiyanc_8792.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید کاخ سفید با تصاویری از ترامپ و متن:
-
-« کار این جنگ رو یه‌سره کن »
-
-
-⭐ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8791
-
-<div align="center"><video src="files/post_8791_tasiyanc_8791.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8791_tasiyanc_8791.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مجری بعد این برنامه کلا اخراج شد 😂
-ارزش دانلود ۱۰۰۰ از ۱۰
-
-داستان از این قراره کسایی ک مشکلات حنجره داشتن و معلول بودن دعوت بودن به برنامه
-
-⭐@TASIYANC 
-⭐️
-</div>
-
-## tasiyanc — post 8790
-
-<div align="center"><img src="files/post_8790_tasiyanc_8790.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک نوکیا مدل 3310 پس از 22 سال پیدا شد
-هنوز 70% شارژ باتری داشت ! 🗿
-
-گزارش شده که یک گوشی Nokia 3310 که در شهر Ellesmere Port پیدا شده، پس از حدود ۲۲ سال همچنان روشن شده و نزدیک به ۷۰ درصد شارژ باتری داشته است.
-⭐ @Tasiyanc 
-⭐️
 </div>
 

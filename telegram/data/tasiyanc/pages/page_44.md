@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 8885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔻 امریکا به شهروندانش در اردن و اسراییل هشدار تخلیه فوری ارسال کرده
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 8883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز August 1، روز دوست دختره 
+😞
+
+پروکسی متصل | پروکسی متصل
+
+
+
+✈️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@TASIYANC ⚡ 04.ovpn
+</div>
 
 ## tasiyanc — post 8881
 
@@ -273,34 +301,5 @@ Restore this old photograph with maximum realism. Remove scratches, dust, stains
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴نت بلاکس : دولت ترکیه بصورت ناگهانی اینترنت کل مردم ترکیه رو قطع کرد.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8853
-
-## tasiyanc — post 8852
-
-<div align="center"><img src="files/post_8852_tasiyanc_8852.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معتبر ترین دانشگاه ها در سال 2026 🌐
-
-پروکسی متصل | پروکسی متصل
-
-
-✈️@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8851
-
-<div align="center"><video src="files/post_8851_tasiyanc_8851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8851_tasiyanc_8851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«ویدیوی وایرال شده این روزها » صبحانه ای که برای سربازان ارتش آمریکا در میدان جنگ / بیرون مرزها دور از وطنشون « سرو » میشود
-
-پروکسی متصل | پروکسی متصل
-
-✈️@TASIYANC
 </div>
 

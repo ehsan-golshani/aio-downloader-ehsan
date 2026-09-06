@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9803
+
+<div align="center"><video src="files/post_9803_tasiyanc_9803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9803_tasiyanc_9803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9802
+
+<div align="center"><img src="files/post_9802_tasiyanc_9802.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یسری از گرایش های جنسی هستن که شاید کمتر توی زندگی شنیده باشین و چه بهتر که الان باهاشون آشنا بشید تا وقتی یه نفر بهتون گفت همچین گرایشی دارم گیج نشید.
+
+Asexual
+کسی که به هیچکس هیچ حسی نداره.
+Bisexual
+کسی که هم به دختر و هم پسر حس داره.
+Pansexual
+کسی که جذب شخصیت افراد میشه.
+Homosexual
+کسی که به همجنسش حس داره.
+Demsexual
+کسی که تا یه رابطه عمیق احساسی با کسی نداشته باشه حس نداره.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9801
+
+<div align="center"><video src="files/post_9801_tasiyanc_9801.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9801_tasiyanc_9801.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9800
 
@@ -300,40 +362,5 @@ til.ac/0L4vyJf
 یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9773
-
-<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
-
-بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
-
-+ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9772
-
-<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایان اسطوره فوتبال لیونل مسی
-مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9771
-
-<div align="center"><img src="files/post_9771_tasiyanc_9771.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نوید محمد زاده از اجرای نمایش آرش بخاطر حواشی اخراج شد 😂
-
-🩸 @Tasiyanc
 </div>
 

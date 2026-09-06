@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/15 01:59
+📅 آخرین بروزرسانی: 1405/06/15 03:40
 
 ---
+
+## tasiyanc — post 9581
+
+<div align="center"><img src="files/post_9581_tasiyanc_9581.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تغییر دامنه بانک‌ها؛ دردسر تازه برای مشتریانشون
+
+بعد از بانک ملی، حالا نام بانک ملت و چند بانک دیگر هم در ارتباط با محدودیت‌های گواهی‌های Let’s Encrypt مطرح شده است.
+
+در مورد بانک ملت، آدرس قدیمی ebanking.bankmellat.ir در حال هدایت کاربران به ebanking.mellat.ir است.
+
+
+تغییر دامنه شاید در کوتاه‌مدت راه‌حل به نظر برسد، اما تبعات خودش را دارد؛ از لینک‌های قدیمی و اپلیکیشن‌ها گرفته تا نتایج جست‌وجو و سردرگمی کاربران درباره اینکه آدرس رسمی بانک دقیقاً کدام است.
+
+این موضوع از نظر امنیتی هم حساس است؛ چون وقتی کاربران به تغییر مداوم آدرس‌های بانکی عادت کنند، تشخیص دامنه‌های جعلی و صفحات فیشینگ سخت‌تر می‌شود.
+در چنین شرایطی، اطلاع‌رسانی شفاف بانک‌ها و معرفی دقیق دامنه‌های رسمی اهمیت بسیار بیشتری پیدا می‌کند.
+چون کوچک‌ترین سردرگمی در آدرس یک سامانه بانکی می‌تواند فرصت مناسبی برای کلاهبرداری ایجاد کند.
+
+
+﻿
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نرخ هر دلار کف طهران 205000
+</div>
+
+## tasiyanc — post 9579
+
+<div align="center"><video src="files/post_9579_tasiyanc_9579.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9579_tasiyanc_9579.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی برنامه زیگیل ابدی آمریکا یک شرکت کننده ایرانی به نام پارمیدا حضور داشت یه دور بغل همه مردا رفت بقیشو خودتون ببینید .
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9578
 
@@ -283,54 +326,5 @@ til.ac/0L4vyJf
 💰💰💰💰💰
 📱Telegram Channel👇
 https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9553
-
-<div align="center"><img src="files/post_9553_tasiyanc_9553.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
-
-🪙سایت بین المللی و معتبر لاین بت
-
-❤️‍🔥اسپانسر لیگ  فرانسه
-💳 واریز و برداشت ریالی
-👀بازگشت باخت ب صورت هفتگی
-📣دارای پشتیبانی فارسی فعال
-🎁بونوس 💯 روز های دوشنبه
-sr2
-🎡کدهدیه ثبت نام ➡️ L5670
-
-🔗《 لینک سایت برای کاربران ایرانی》
-
-👍《 دانلود اپلیکیشن اندروید》
-❤️https://telegram.me/+dukgrB6-zGsyNGM8
-🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
-
-✔️ آموزش کامل و جامع شرطبندی👉
-</div>
-
-## tasiyanc — post 9552
-
-<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
-
-اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
