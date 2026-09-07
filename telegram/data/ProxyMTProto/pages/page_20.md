@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/16 23:36
+📅 آخرین بروزرسانی: 1405/06/17 02:26
 
 ---
+
+## ProxyMTProto — post 50552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: api2.kvakzon.top
+Port: 443
+Secret: eef6cce71eb4d775d3d908fef1301395b5617069322e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50551
 
@@ -172,15 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: main.startnetwork.shop
 Port: 443
 Secret: dd1358da8f1cda1c754a865a27107e19f3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo-jet.balestic.ir.ghsisncbv.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

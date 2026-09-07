@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/16 23:36
+📅 آخرین بروزرسانی: 1405/06/17 02:26
 
 ---
+
+## ProxyMTProto — post 50833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: bolt.utkanos.life
+Port: 2443
+Secret: eefcc4cf72e265ef4e47068bfe3fbd44fb626f6c742e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50832
 
@@ -172,15 +181,6 @@ Secret: eeed1174406b243d5a4afc1591498613dd7374726d2e79616e6465782e6e6574
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media9.happtg.org
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
 @ProxyMTProto
 </div>
 

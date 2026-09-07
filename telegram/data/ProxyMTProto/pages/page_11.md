@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/16 23:36
+📅 آخرین بروزرسانی: 1405/06/17 02:26
 
 ---
+
+## ProxyMTProto — post 50733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jadid.zhigool.co.uk
+Port: 25565
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50732
 
@@ -172,15 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
 Server: Unknown
 Port: 443
 Secret: dd00000000000000000000000000000000
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ssh.meow0.co.uk
-Port: 22
-Secret: dd79e344818749bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
