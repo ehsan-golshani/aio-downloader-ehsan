@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/16 19:43
+📅 آخرین بروزرسانی: 1405/06/16 23:38
 
 ---
+
+## tasiyanc — post 10000
+
+<div align="center"><video src="files/post_10000_tasiyanc_10000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10000_tasiyanc_10000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨عبور شاخص کل بورس تهران از مرز ۶.۸ میلیون واحد
+
+
+🔹شاخص کل بورس تهران در پنج دقیقه نخست معاملات امروز دوشنبه ۱۶ شهریور ۱۴۰۵، با افزایش ۱۶۷ هزار واحدی (معادل ۲.۵ درصد رشد) به ۶ میلیون و ۸۹۰ هزار و ۵۸۲ واحد رسید.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9999
+
+<div align="center"><video src="files/post_9999_tasiyanc_9999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9999_tasiyanc_9999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سالم ترین دیس برا صنعت بدنسازی🤣 :
+
++ چند نفر بدن سوز داریم تو کانال؟
+
+🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
+
+👈 دریافت کانفیگ اختصاصی OpenVpn 📱
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9997
 
@@ -273,61 +317,5 @@ sg15
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9980
-
-<div align="center"><img src="files/post_9980_tasiyanc_9980.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ساده‌ترین گوشی شیائومی ۵۰ میلیون تومان شد!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9978
-
-<div align="center"><img src="files/post_9978_tasiyanc_9978.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بابک زنجانی برای استخدام راننده در شرکت دات‌وان آگهی زده؛ بعد یکی از شرایط استخدام را گذاشته:
-«عدم سوءپیشینه»! 😐
-
-مشتی تو خودت ۳ ماهه آزاد شدی 😐
-
-
-💋 @Tasiyanc
 </div>
 

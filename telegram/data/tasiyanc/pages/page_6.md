@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/16 19:43
+📅 آخرین بروزرسانی: 1405/06/16 23:38
 
 ---
+
+## tasiyanc — post 9908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9907
+
+<div align="center"><img src="files/post_9907_tasiyanc_9907.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 تکرار حادثه تلخ الهه حسین نژاد برای ملیکا دادپور در تهران
+
++ ملیکا دادپور، دختر ۲۲ ساله ، پس از ترک محل کارش در میدان آرژانتین تهران سوار یک خودروی عبوری شد به مقصد خونشون تو قرچک. او هنگام سفر به دوستش گفت راننده رفتار مشکوکی دارد و مقصد مکانی خود را برای او فرستاد. کمی بعد مسیر خودرو تغییر کرد و دوستش هنگام تماس، صدای کمک‌خواهی ملیکا را شنید.
+خانواده‌اش به پلیس اطلاع دادند. دو روز بعد (عجیبه واقن با اینکه لوکیشن و همه چی فرستاده نتونستن پیدا کنن؟!) ، جسد ملیکا در حوالی فشافویه در کانال آب پیدا شد و طبق بررسی‌های پزشکی قانونی، او بر اثر ضربات چاقو و درگیری جان باخته بود.
+همچنین برخی وسایل ملیکا مثل طلا و آیفون ، اپل واچ به سرقت رفته بود. پلیس پس از بررسی دوربین‌ها و پلاک خودرو، راننده را ۱۲ روز بعد دستگیر کرد. متهم آرمین ۳۹ ساله قتل را انکار کرده بود، اما تحقیقات پلیس ادامه یافت و مشخص شد آرمین ۳۹ ساله حرامزاده دخترک بی دفاع را کشته و داخل کانال آب انداخته ، به امید اع*دام و منقرض شدن این حرامزاده‌ها.
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9906
+
+<div align="center"><video src="files/post_9906_tasiyanc_9906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9906_tasiyanc_9906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون بریزه از خیانت
+
+تو کانادا یه زن به نام اشلی شوهرش با GPS میوفته دنبالش ببینه کجا رفته سر از خونه دوس پسر زنه درمیاره و پسره به شوهر طرف میگه من اصن نمیدونستم این شوهر داره تو مجازی باهم اوکی شده بودیم بعدش مچ زنشو میگیره ، با پسره هم میرن دو شات ودکا میخورن میگن کو*ن لق طرف
+😞
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9905
 
@@ -265,41 +315,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 
 + بعد میگید کار نیست
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9884
-
-<div align="center"><img src="files/post_9884_tasiyanc_9884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی کریمی: از این به بعد هرکسی اسم رضا پهلوی رو زیر پستای من بنویسه بلاکش میکنم. اسم پدرش مشکلی نداره ولی اسم خودش نه.
-
-+ جدیدا هرکی میخواد شاهزاده رو تخریب کنه الکی میاد اسم از پدرشون میاره تا راه باز کنه
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9883
-
-<div align="center"><video src="files/post_9883_tasiyanc_9883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9883_tasiyanc_9883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گوشی اقتصادی A17 سامسونگ از ۱۵ میلیون پارسال، شد ۹۷ میلیون
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 
