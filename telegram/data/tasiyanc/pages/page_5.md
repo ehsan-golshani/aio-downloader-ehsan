@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/16 02:09
+📅 آخرین بروزرسانی: 1405/06/16 14:08
 
 ---
+
+## tasiyanc — post 9917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9916
+
+<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9915
+
+<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9914
+
+<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 سپاه هفته قبل: اگه اسرائیل به تپه‌های علی الطاهر حمله کنه با خشم ما روبرو میشه
++ اسرائیل دیشب اونجا رو فتح کرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9910
+
+<div align="center"><video src="files/post_9910_tasiyanc_9910.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9910_tasiyanc_9910.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠وزیر خزانه داری آمریکا در مورد ایران:
+همه می‌خواهند این وضعیت به پایان برسد. ۴۷ سال است که با این رژیم شیطانی زندگی می‌کنیم و مردم جهان از این وضعیت خسته شده‌اند.
+مردم ایران، مردمی بزرگ هستند. اما متاسفانه، یک رژیم سرکوبگر بر آن‌ها حاکم است. یا این رژیم از درون تغییر خواهد کرد، یا مردم قیام خواهند کرد، وگرنه باید ببینیم چه اتفاقی می‌افتد.
+ما آن‌ها را از نظر اقتصادی به زانو درخواهیم آورد. آن‌ها در چیزی که من "چنگال مرگ اقتصادی" می‌نامم، گرفتار شده‌اند.
+ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9909
+
+<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9907
 
@@ -172,140 +303,6 @@ til.ac/0L4vyJf
 سایت پیشنهادی برای تماشا و دانلود بدون سانسور
 🔗https://www.novigrad.top
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه دلار به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9895
-
-<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
-
-⭕️پس همین الان وارد کانال Evil Bet شو
-چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
-
-💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+TmGWkUYH_8c0OWZk
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9893
-
-<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9892
-
-<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری
-
-با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9890
-
-<div align="center"><img src="files/post_9890_tasiyanc_9890.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 متاسفانه یه دختر ۱۹ ساله توی توییتر بعد از انتشار این پست‌ها، دست به خودکشی کرده و خبری ازش نیست .
-
-علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
-خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
-خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9887
-
-<div align="center"><img src="files/post_9887_tasiyanc_9887.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9885
-
-<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آگهی عجیب شرکت کاریابی که وایرال شده ،
-گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
-
-+ بعد میگید کار نیست
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9884
-
-<div align="center"><img src="files/post_9884_tasiyanc_9884.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی کریمی: از این به بعد هرکسی اسم رضا پهلوی رو زیر پستای من بنویسه بلاکش میکنم. اسم پدرش مشکلی نداره ولی اسم خودش نه.
-
-+ جدیدا هرکی میخواد شاهزاده رو تخریب کنه الکی میاد اسم از پدرشون میاره تا راه باز کنه
 💋 @Tasiyanc
 </div>
 
