@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/17 22:00
+📅 آخرین بروزرسانی: 1405/06/18 00:58
 
 ---
+
+## tasiyanc — post 10057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
+نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
+آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله آمریکا به نفتکش ایرانی در ۴ مایلی خارک ( تسنیم)
+
+آمریکا امشب دستور تخلیه فوری داده به نفتکش‌های ایرانی و میخواد بفرستتشون قعر دریا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هادی چوپون:
+
+دوست داشتم تو المپیا امسال مدال طلا میگرفتم و اونو به رهبرمون تقدیم میکردم
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10051
 
@@ -222,95 +280,6 @@ sg17
 + قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
 پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10035
-
-<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
-
-مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
-
-
-دریافت کانفیگ ها 👉
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 10034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10033
-
-<div align="center"><img src="files/post_10033_tasiyanc_10033.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10032
-
-<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
 
 💋 @Tasiyanc
 </div>
