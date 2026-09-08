@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/17 18:21
+📅 آخرین بروزرسانی: 1405/06/17 22:00
 
 ---
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9910
+
+<div align="center"><video src="files/post_9910_tasiyanc_9910.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9910_tasiyanc_9910.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠وزیر خزانه داری آمریکا در مورد ایران:
+همه می‌خواهند این وضعیت به پایان برسد. ۴۷ سال است که با این رژیم شیطانی زندگی می‌کنیم و مردم جهان از این وضعیت خسته شده‌اند.
+مردم ایران، مردمی بزرگ هستند. اما متاسفانه، یک رژیم سرکوبگر بر آن‌ها حاکم است. یا این رژیم از درون تغییر خواهد کرد، یا مردم قیام خواهند کرد، وگرنه باید ببینیم چه اتفاقی می‌افتد.
+ما آن‌ها را از نظر اقتصادی به زانو درخواهیم آورد. آن‌ها در چیزی که من "چنگال مرگ اقتصادی" می‌نامم، گرفتار شده‌اند.
+ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9909
+
+<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9908
 
@@ -256,64 +301,6 @@ https://t.me/+TmGWkUYH_8c0OWZk
 خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
 خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9887
-
-<div align="center"><img src="files/post_9887_tasiyanc_9887.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴طرز تهیه 10 قهوه پر طرفدار که میتونید تو خونه درست کنید نوشجان کنید 🖤
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9885
-
-<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آگهی عجیب شرکت کاریابی که وایرال شده ،
-گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
-
-+ بعد میگید کار نیست
 💋 @Tasiyanc
 </div>
 
