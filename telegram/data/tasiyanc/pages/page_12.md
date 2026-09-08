@@ -1,8 +1,109 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/18 00:58
+📅 آخرین بروزرسانی: 1405/06/18 03:12
 
 ---
+
+## tasiyanc — post 9801
+
+<div align="center"><video src="files/post_9801_tasiyanc_9801.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9801_tasiyanc_9801.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9800
+
+<div align="center"><video src="files/post_9800_tasiyanc_9800.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9800_tasiyanc_9800.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+sg10
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9798
+
+<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
+همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9797
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به تازگی بزرگترین دزدی دزفول اتفاق افتاده! از خونه یه نفر ۳ کیلو طلا دزدیدن!
+به محض اینکه اعلام کرده میخواد طلا فروشی بزنه اومدن ازش دزدی کردن!
+در حالی که درِ ضدسرقت، دوربین مداربسته، دزدگیر و... فعال کرده بوده.
+خانمش چون باردار بوده همیشه توی خونه بوده، فقط ۳۰ ثانیه بعد اینکه خانمش اومده بیرون، اومدن دزدی!
+حالا ۱۰ میلیارد پاداش گذاشته برای هر کسی که بتونه یه نشونه و آدرسی از این دزدا در بیاره.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9796
 
@@ -251,53 +352,5 @@ til.ac/0L4vyJf
 مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9771
-
-<div align="center"><img src="files/post_9771_tasiyanc_9771.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نوید محمد زاده از اجرای نمایش آرش بخاطر حواشی اخراج شد 😂
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9769
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ترامپ:
-
-تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9767
-
-<div align="center"><img src="files/post_9767_tasiyanc_9767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فواید بوسیدن یار 💋:
-
-•کاهش فشارخون و کمک به سلامت قلب
-
-•از بین بردن گرفتگی عضلات بدن محافظت دندان در برابر پوسیدگی
-
-•افزایش درخشندگی پوست و جلوگیری از شل شدگی صورت
-
-•افزایش قدرت سیستم ایمنی بدن در برابر سرما خوردگی
-
-•کاهش وسواس فکری
-
-🩸@Tasiyanc
 </div>
 

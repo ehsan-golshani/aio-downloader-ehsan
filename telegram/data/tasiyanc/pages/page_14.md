@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/18 00:58
+📅 آخرین بروزرسانی: 1405/06/18 03:12
 
 ---
+
+## tasiyanc — post 9745
+
+<div align="center"><img src="files/post_9745_tasiyanc_9745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧠معرفی هوش مصنوعی های ساخت ویدیو با دسترسی رایگان
+
+⚡️ برای ساخت ویدیو با هوش مصنوعی میتونید از سرویس های زیر استفاده کنید که هرکدومشون تعداد محدودی کردیت رایگان برای ساخت میدن!
+
+•Gemini Omni : https://flow.google
+
+•Veo 3.1 : https://flow.google
+
+•Wan 2.7 : https://wan.video
+
+•Grok : https://grok.com/imagine
+
+•LTX 2.3 : https://ltx.io/studio
+
+•Kling 3.0 : https://kling.ai/
+
+•Seedance 2.0 : https://dola.com
+﻿
+
+پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال هانتر بت شو👇
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
+
+## tasiyanc — post 9743
+
+<div align="center"><img src="files/post_9743_tasiyanc_9743.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
+
+## tasiyanc — post 9741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9740
 
@@ -168,70 +228,5 @@
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9714
-
-<div align="center"><img src="files/post_9714_tasiyanc_9714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9708
-
-<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9707
-
-<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مردی که میبینید اسمش جیسون کوئیج هستش
-
-جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
-🩸 @Tasiyanc
 </div>
 
