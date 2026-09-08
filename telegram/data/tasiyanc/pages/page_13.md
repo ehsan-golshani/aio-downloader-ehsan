@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/17 02:28
+📅 آخرین بروزرسانی: 1405/06/17 13:50
 
 ---
+
+## tasiyanc — post 9740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار ۲۱۱ تومن شد 😞
+</div>
+
+## tasiyanc — post 9738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
+
++با یه باک پر کجا رو داری بری هموطن؟
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9737
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اول رویترز: جنگ آغاز شده است
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9735
 
@@ -193,80 +233,5 @@ til.ac/0L4vyJf
 
 جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تیم ملی والیبال زنان ایران چهارم آسیا شد
-
-🏐 تیم ملی والیبال زنان ایران در دیدار رده‌بندی رقابت‌های قهرمانی آسیا ۲۰۲۶ با نتیجه ۳ بر صفر مغلوب ژاپن شد و به رتبه چهارم آسیا دست یافت
-
-+ درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9705
-
-<div align="center"><video src="files/post_9705_tasiyanc_9705.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9705_tasiyanc_9705.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گاهی زخم از دشمن نیست ؛ از همان چیزیست که روزی مایه‌ی غرورمان بود
-+ آهو میپرید ، بی خبر از اینکه شاخ‌هایش ، پیش از هر شکارچی خودش را خواهد آزرد .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9703
-
-<div align="center"><img src="files/post_9703_tasiyanc_9703.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 210.000 تومان 😐
 </div>
 

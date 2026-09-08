@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/17 02:28
+📅 آخرین بروزرسانی: 1405/06/17 13:50
 
 ---
+
+## tasiyanc — post 9766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وینامیت 🔥
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+</div>
+
+## tasiyanc — post 9765
+
+<div align="center"><img src="files/post_9765_tasiyanc_9765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
+
+                        ⭕️ بدون قرعه‌کشی!
+⭕️ هدیه ویژه برای همه کاربران جدید!
+
+
+💵پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+
+👽 ثبت نام کنید 👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+
+
+🌐آدرس سایت👇
+https://Winamit.com/fa
+https://Winamit.com/fa
+https://Winamit.com/fa
+
+📲 کانال تلگرامی #وینامیت :
+
+✅@Winamit_fa
+</div>
+
+## tasiyanc — post 9762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت ترامپ :
+ایران یک کشور شکست‌خورده است. مرده! آنها نه نیروی دریایی دارند، نه نیروی هوایی، نه ارز، نه حقوق سربازان و پلیس خود را پرداخت می‌‌کنند، تورم ۳۰۰ درصد است و رهبری آنها کاملاً آشفته و ناتوان از نمایندگی صحیح کشور است. تنها چیزی که دارند اخبار جعلی از ایالات متحده، تمایل به کشتن معترضانشان (که اکنون بیش از ۱۰۰۰۰۰ نفر کشته شده‌اند. آنها باید به جرم جنایات جنگی علیه بشریت محاکمه شوند!) و یک مشت «چرندیات» است. از توجه شما به این موضوع متشکرم!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9761
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری | ترامپ:
+
+ایالات متحده به حمله‌ای که شب گذشته علیه نیروهای آمریکایی انجام شد، پاسخ خواهد داد.
+
+"ما آنها را با قدرت مورد هدف قرار خواهیم داد."
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖🤖 Gemini - ChatGpt
+</div>
 
 ## tasiyanc — post 9757
 
@@ -206,46 +272,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار ۲۱۱ تومن شد 😞
-</div>
-
-## tasiyanc — post 9738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
-
-+با یه باک پر کجا رو داری بری هموطن؟
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تیتر اول رویترز: جنگ آغاز شده است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
 
 🩸 @Tasiyanc
 </div>

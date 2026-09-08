@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/17 02:28
+📅 آخرین بروزرسانی: 1405/06/17 13:50
 
 ---
+
+## tasiyanc — post 9255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
+</div>
+
+## tasiyanc — post 9254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این همه جوان به خاطر شما رفتن کشته شدن خایه نداشتید بگید جاوید شاه؟
+</div>
+
+## tasiyanc — post 9253
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ابد و یک روز؟؟؟؟
+</div>
+
+## tasiyanc — post 9252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ابد و یک روز؟؟؟؟
+</div>
+
+## tasiyanc — post 9249
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱Android🕹  iOS
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9248
 
@@ -217,43 +262,5 @@ r22
 امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک⚡️
-</div>
-
-## tasiyanc — post 9224
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاون اقتصادی وزارت  این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد. @Tasiyanc
-</div>
-
-## tasiyanc — post 9223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاون اقتصادی وزارت 
-
-این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گنلمه دار خلقتده ... وررسن باده خلوتده
-</div>
-
-## tasiyanc — post 9221
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طرح امتحانی بنزین ۴ نرخی آغاز شد! نرخ اول: ۶۰ لیتر بنزین با نرخ ۱۵۰۰ تومان نرخ دوم: ۵۰ لیتر با نرخ ۳۰۰۰ تومان نرخ سوم: ۴۰ لیتر با نرخ ۵۰۰۰ تومان نرخ چهارم: ۸۷,۲۰۰ تومان این طرح هنوز به طور رسمی کامل اجرا نشده و اکنون محدود به ۲۰۴ جایگاه سوخت در استان کرمان…
 </div>
 
