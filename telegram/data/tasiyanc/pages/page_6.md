@@ -1,8 +1,149 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/17 13:50
+📅 آخرین بروزرسانی: 1405/06/17 18:21
 
 ---
+
+## tasiyanc — post 9928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9927
+
+<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9926
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9925
+
+<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
+
+
+گذشته ی همدیگه‌رو جدی بگیرید:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 کانفیگ  پرمیوم OpenVpn 📶
+
+مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
+
+دریافت کانفیگ ها 👉
+
+💋 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9923
+
+<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9922
+
+<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه نصیحت
+اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
+چون اگه منصرف بشی پلیس میکشتت 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
+
++ خوشبختانه حالش خوبه❤️
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله موشکی از سیریک به تنگه هرمز
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9919
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9918
 
@@ -119,183 +260,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9907
-
-<div align="center"><img src="files/post_9907_tasiyanc_9907.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 تکرار حادثه تلخ الهه حسین نژاد برای ملیکا دادپور در تهران
-
-+ ملیکا دادپور، دختر ۲۲ ساله ، پس از ترک محل کارش در میدان آرژانتین تهران سوار یک خودروی عبوری شد به مقصد خونشون تو قرچک. او هنگام سفر به دوستش گفت راننده رفتار مشکوکی دارد و مقصد مکانی خود را برای او فرستاد. کمی بعد مسیر خودرو تغییر کرد و دوستش هنگام تماس، صدای کمک‌خواهی ملیکا را شنید.
-خانواده‌اش به پلیس اطلاع دادند. دو روز بعد (عجیبه واقن با اینکه لوکیشن و همه چی فرستاده نتونستن پیدا کنن؟!) ، جسد ملیکا در حوالی فشافویه در کانال آب پیدا شد و طبق بررسی‌های پزشکی قانونی، او بر اثر ضربات چاقو و درگیری جان باخته بود.
-همچنین برخی وسایل ملیکا مثل طلا و آیفون ، اپل واچ به سرقت رفته بود. پلیس پس از بررسی دوربین‌ها و پلاک خودرو، راننده را ۱۲ روز بعد دستگیر کرد. متهم آرمین ۳۹ ساله قتل را انکار کرده بود، اما تحقیقات پلیس ادامه یافت و مشخص شد آرمین ۳۹ ساله حرامزاده دخترک بی دفاع را کشته و داخل کانال آب انداخته ، به امید اع*دام و منقرض شدن این حرامزاده‌ها.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9906
-
-<div align="center"><video src="files/post_9906_tasiyanc_9906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9906_tasiyanc_9906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون بریزه از خیانت
-
-تو کانادا یه زن به نام اشلی شوهرش با GPS میوفته دنبالش ببینه کجا رفته سر از خونه دوس پسر زنه درمیاره و پسره به شوهر طرف میگه من اصن نمیدونستم این شوهر داره تو مجازی باهم اوکی شده بودیم بعدش مچ زنشو میگیره ، با پسره هم میرن دو شات ودکا میخورن میگن کو*ن لق طرف
-😞
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9905
-
-<div align="center"><video src="files/post_9905_tasiyanc_9905.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9905_tasiyanc_9905.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری / ‌به دنبال تهدید ترامپ مبنی بر کاهش همکاری نظامی: دفتر ریاست جمهوری کره جنوبی اعلام کرد که این کشور در حال آماده شدن برای اعزام نیروهای نظامی به تنگه هرمز است تا به تضمین عبور آزاد کشتی‌ها در این منطقه کمک کند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9904
-
-<div align="center"><img src="files/post_9904_tasiyanc_9904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ۴ سپتامبر روز جهانی سرطان خون است
-🎗
-
-هدف از این پست افزایش آگاهی و پیشگیری از بیماری هست ، امیدوارم تن همتون سالم باشه تا آخر عمر ❤️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9903
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9902
-
-<div align="center"><video src="files/post_9902_tasiyanc_9902.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9902_tasiyanc_9902.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9901
-
-<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9900
-
-<div align="center"><video src="files/post_9900_tasiyanc_9900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9900_tasiyanc_9900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئوی دوربین مداربسته از حمله دو نفر سارق به یک زن میانسال در خیابان و سرقت وحشیانه طلاهای او
-
-در مکانهای خلوت، احتیاط بیشتری کنید و وسایل و اشیای ارزشمند خود را در معرض دید قرار ندید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
 
 
 💋 @Tasiyanc

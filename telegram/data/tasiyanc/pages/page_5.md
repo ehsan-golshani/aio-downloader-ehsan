@@ -1,8 +1,155 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/17 13:50
+📅 آخرین بروزرسانی: 1405/06/17 18:21
 
 ---
+
+## tasiyanc — post 9954
+
+<div align="center"><video src="files/post_9954_tasiyanc_9954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9954_tasiyanc_9954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت تسلا بالاخره تاکسی‌های بدون راننده خودش رو به خیابون‌های آستین تگزاس آورد.
+
+تاکسی‌های جدید Cybercab که نه فرمون دارن و نه پدال گاز و ترمز، به ناوگان Robotaxi اضافه شدن.
+تصور کنید سوار ماشینی می‌شید که درهای پروانه‌ایش با اپلیکیشن باز می‌شه و هوش مصنوعی شما رو به مقصد می‌رسونه.
++این تاکسی های تسلا رو یه یارویی شخصا تست کرده خیلی خفنن ایلان ماسک داره دنیا رو تغییر میده:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9953
+
+<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
+
+سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9952
+
+<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
+حالا ببینید چه صحنه‌ محشری خلق میشه
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sg14
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9950
+
+<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه هنوز به آینده امید داری این پیام رو لایک کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9948
+
+<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
+
+مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9947
+
+<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  
+📶
+
+لوکیشن 
+🇲🇦 Morocco
+
+مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
+
+
+⬅️ دریافت کانفیگ ها 
+🟠
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9946
+
+<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9944
 
@@ -156,147 +303,6 @@ til.ac/0L4vyJf
 🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
 
 +کمر به نابودی مردم بستن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9927
-
-<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9925
-
-<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
-
-
-گذشته ی همدیگه‌رو جدی بگیرید:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ ها 👉
-
-💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9923
-
-<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9922
-
-<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه نصیحت
-اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
-چون اگه منصرف بشی پلیس میکشتت 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
-
-+ خوشبختانه حالش خوبه❤️
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 حمله موشکی از سیریک به تنگه هرمز
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
 
 💋 @Tasiyanc
 </div>
