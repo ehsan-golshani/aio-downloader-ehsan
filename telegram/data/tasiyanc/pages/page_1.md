@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 10079
+
+<div align="center"><video src="files/post_10079_tasiyanc_10079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10079_tasiyanc_10079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸فیلم خارق‌العاده کمتر دیده شده از پرواز موشک‌ که میره از جو خارج میشه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10078
 
@@ -21,8 +34,6 @@ What would i have looked like in the 80’s
 </div>
 
 ## tasiyanc — post 10077
-
-<div align="center"><a href="files/post_10077_1xbet_ir.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1xbet_ir.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
@@ -288,19 +299,6 @@ sg17
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 شرط‌های پدر عروس () واسه داماد گذاشته :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10042
-
-<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
 
 
 💋 @Tasiyanc

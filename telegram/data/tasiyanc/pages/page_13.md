@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9772
+
+<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایان اسطوره فوتبال لیونل مسی
+مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9771
 
@@ -256,11 +267,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
 </div>
 

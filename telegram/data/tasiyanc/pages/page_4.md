@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای جدید در ربات آپلود شد 🔐📱
+
+دریافت ۶ کانفیگ سرعتی OpenVpn 👉
+
+دریافت ۲۰ کانفیگ سرعتی نپسترنت در ۲ فرمت 👉
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9994
 
@@ -294,15 +309,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9975
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

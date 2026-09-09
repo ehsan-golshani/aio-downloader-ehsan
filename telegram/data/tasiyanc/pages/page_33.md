@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9262
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 9259
 
@@ -293,13 +301,5 @@ https://t.me/+MT03hkV78q9kMTc0
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ اینترنشنال : ترامپ اطلاعات کلی مهاجر ایرانیو داده به مقامات جمهوری اسلامی
-
-@Tasiyanc⭐️
 </div>
 

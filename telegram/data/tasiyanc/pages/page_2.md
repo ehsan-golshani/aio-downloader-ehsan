@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 10042
+
+<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10041
 
@@ -285,15 +298,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨آیدا حیدری نامزد جاویدنام ابوالفضل سلیمانی پس از تحمل درد و غم از دست دادن نامزدش ، صبح امروز به زندگی خودش پایان داد
 اعضای خانواده های جاویدنام ها کم کم داره تحمل این داغ براشون سخت میشه و دست به خودکشی میزنن توی ۲۴ ساعت اخیر دو خودکشی!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران واقعاً جای عجیبیه، یه مرد ۴۲ ساله یه دختر ۱۴ ساله رو به عنوان زن سوم صیغه کرده و دختره رو حامله کرده و افتاده زندان، اونوقت دختره الان داره سزارین میکنه 😐
-
 
 💋 @Tasiyanc
 </div>

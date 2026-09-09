@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9802
+
+<div align="center"><img src="files/post_9802_tasiyanc_9802.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یسری از گرایش های جنسی هستن که شاید کمتر توی زندگی شنیده باشین و چه بهتر که الان باهاشون آشنا بشید تا وقتی یه نفر بهتون گفت همچین گرایشی دارم گیج نشید.
+
+Asexual
+کسی که به هیچکس هیچ حسی نداره.
+Bisexual
+کسی که هم به دختر و هم پسر حس داره.
+Pansexual
+کسی که جذب شخصیت افراد میشه.
+Homosexual
+کسی که به همجنسش حس داره.
+Demsexual
+کسی که تا یه رابطه عمیق احساسی با کسی نداشته باشه حس نداره.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9801
 
@@ -339,17 +361,6 @@ til.ac/0L4vyJf
 بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
 
 + بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9772
-
-<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایان اسطوره فوتبال لیونل مسی
-مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
 
 🩸 @Tasiyanc
 </div>

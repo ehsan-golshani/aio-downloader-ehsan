@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نرخ هر دلار کف طهران 205000
+</div>
 
 ## tasiyanc — post 9579
 
@@ -322,18 +328,5 @@ sr2
 🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
 
 ✔️ آموزش کامل و جامع شرطبندی👉
-</div>
-
-## tasiyanc — post 9552
-
-<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
-
-اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد 
+
+حجم و کاربر نامحدود
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel 🔗
+
+آموزش اتصال با windscribe🔗
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9715
 
@@ -292,16 +311,5 @@ https://Winamit.com/fa
 📲 کانال تلگرامی #وینامیت :
 
 ✅@Winamit_fa
-</div>
-
-## tasiyanc — post 9687
-
-<div align="center"><img src="files/post_9687_tasiyanc_9687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لیست جدید قیمت‌های موبایل در ایران؛ پایین‌رده‌ترین گوشی سامسونگ، A07 نزدیک به ۵۰ میلیون تومن
-
-
-💋 @Tasiyanc
 </div>
 

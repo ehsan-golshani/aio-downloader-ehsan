@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9831
+
+<div align="center"><video src="files/post_9831_tasiyanc_9831.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9831_tasiyanc_9831.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9830
 
@@ -211,28 +222,6 @@ IR server
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9802
-
-<div align="center"><img src="files/post_9802_tasiyanc_9802.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یسری از گرایش های جنسی هستن که شاید کمتر توی زندگی شنیده باشین و چه بهتر که الان باهاشون آشنا بشید تا وقتی یه نفر بهتون گفت همچین گرایشی دارم گیج نشید.
-
-Asexual
-کسی که به هیچکس هیچ حسی نداره.
-Bisexual
-کسی که هم به دختر و هم پسر حس داره.
-Pansexual
-کسی که جذب شخصیت افراد میشه.
-Homosexual
-کسی که به همجنسش حس داره.
-Demsexual
-کسی که تا یه رابطه عمیق احساسی با کسی نداشته باشه حس نداره.
 
 
 🩸 @Tasiyanc

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
+</div>
 
 ## tasiyanc — post 9745
 
@@ -209,24 +215,5 @@
 تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد 
-
-حجم و کاربر نامحدود
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel 🔗
-
-آموزش اتصال با windscribe🔗
-
-
-🩸 T.me/Tasiyanc
 </div>
 

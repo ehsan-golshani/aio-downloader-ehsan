@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/18 03:12
+📅 آخرین بروزرسانی: 1405/06/18 10:24
 
 ---
+
+## tasiyanc — post 9484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) 
+😞
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9483
 
@@ -472,13 +484,5 @@ https://t.me/+Mcyp10mcfFA2MTM0
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
-
-@Tasiyanc ⭐️
 </div>
 
