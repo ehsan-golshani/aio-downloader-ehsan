@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/18 15:46
+📅 آخرین بروزرسانی: 1405/06/18 20:21
 
 ---
+
+## tasiyanc — post 9988
+
+<div align="center"><img src="files/post_9988_tasiyanc_9988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انقد کله زرد گفتین ترامپ موهاشو رنگ کرده تا خوشتیپ تر بنظر برسه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9987
+
+<div align="center"><video src="files/post_9987_tasiyanc_9987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9987_tasiyanc_9987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9986
+
+<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
+
+سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9984
 
@@ -269,50 +315,6 @@ til.ac/0L4vyJf
 
 
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9964
-
-<div align="center"><img src="files/post_9964_tasiyanc_9964.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
-
-آیدی عددی اکانت 7189150445
-</div>
-
-## tasiyanc — post 9963
-
-<div align="center"><video src="files/post_9963_tasiyanc_9963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9963_tasiyanc_9963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روایت یه خیانت پشم ریزان از سمت یک مشتری آقا در طلافروشی
-
-+ به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9961
-
-<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت برگ ریزان گوشی ۱۴ شهریور
-
-یه موبایل میان رده هم شد آرزو!
 
 💋 @Tasiyanc
 </div>

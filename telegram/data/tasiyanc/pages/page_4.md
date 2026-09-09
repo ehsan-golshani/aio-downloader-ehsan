@@ -1,8 +1,117 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/18 15:46
+📅 آخرین بروزرسانی: 1405/06/18 20:21
 
 ---
+
+## tasiyanc — post 10012
+
+<div align="center"><video src="files/post_10012_tasiyanc_10012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10012_tasiyanc_10012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨این روزا خیلی مواظب گوشیتون باشید؛
+دختره داشت برای پیجش تولید محتوا میکرد که یهو حمله کردن گوشیشو بزنن.
+سعی کنید تا حد امکان گوشیتون رو توی خیابون در نیارید اگه آیفونه‌.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10010
+
+<div align="center"><video src="files/post_10010_tasiyanc_10010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10010_tasiyanc_10010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 10005
+
+<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ سرعتی وایرگارد 
+🔓
+
+حجم و کاربر نامحدود 
+⚡️
+
+
+دانلود 
+📱Android
+🕹  iOS
+
+
+آموزش اتصال با WgTunnel 
+🔗
+
+آموزش اتصال با windscribe
+🔗
+
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10004
 
@@ -265,51 +374,5 @@ sg15
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9988
-
-<div align="center"><img src="files/post_9988_tasiyanc_9988.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴انقد کله زرد گفتین ترامپ موهاشو رنگ کرده تا خوشتیپ تر بنظر برسه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9987
-
-<div align="center"><video src="files/post_9987_tasiyanc_9987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9987_tasiyanc_9987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9986
-
-<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
-
-سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
-
-
-💋 @Tasiyanc
 </div>
 

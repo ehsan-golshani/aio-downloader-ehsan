@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/18 15:46
+📅 آخرین بروزرسانی: 1405/06/18 20:21
 
 ---
+
+## tasiyanc — post 9601
+
+<div align="center"><img src="files/post_9601_tasiyanc_9601.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر لو رفته سامسونگ S27 که قراره تو سال 2027 عرضه بشه ، تا حدودی ماژول دوربین از آیفون ۱۷ پرومکس الهام گرفته شده
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9600
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9594
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9593
+
+<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨آیفون ۱۷ پرومکس ۲ ترابایت:
+۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9592
 
@@ -257,59 +308,5 @@ sa2
 
 اتصال امن برای همه 🇮🇷
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
-
-🚨 آموزش فعال سازی IPv6 
-⛓
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9565
-
-<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو:
-
-جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت🔐
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-آموزش اتصال ⛓
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9563
-
-<div align="center"><video src="files/post_9563_tasiyanc_9563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9563_tasiyanc_9563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه دنبال فیلم سینمایی عاشقانه اید می‌تونه پیشنهاد خوبی باشه 👍
-
-🎥 فیلم The Idea of You (2024)
-
-+ مشاهده بدون سانسور 👉
-
-💋 @Tasiyanc
 </div>
 
