@@ -1,8 +1,114 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/19 13:19
+📅 آخرین بروزرسانی: 1405/06/19 17:31
 
 ---
+
+## tasiyanc — post 9975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9974
+
+<div align="center"><video src="files/post_9974_tasiyanc_9974.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9974_tasiyanc_9974.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سد مهدی دهمردی بریم تو کارت یا ن 😐
+</div>
+
+## tasiyanc — post 9972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9971
+
+<div align="center"><video src="files/post_9971_tasiyanc_9971.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9971_tasiyanc_9971.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9970
+
+<div align="center"><video src="files/post_9970_tasiyanc_9970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9970_tasiyanc_9970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه سپاه:
+امروز واسه پاسخ به حمله آمریکا، 3 نفتکش تو مسیر غیرمجاز تنگه هرمز + 3 شناور وابسته به آمریکا رو تو یه منطقه دیگه زدیم!
+فریب آمریکا رو نخورید، از هر راهی غیر از اون مسیر مجاز برید، بهتون شلیک میشه...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9969
 
@@ -182,87 +288,5 @@ sg14
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز به آینده امید داری این پیام رو لایک کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9948
-
-<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9947
-
-<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  
-📶
-
-لوکیشن 
-🇲🇦 Morocco
-
-مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
-
-
-⬅️ دریافت کانفیگ ها 
-🟠
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9946
-
-<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9944
-
-<div align="center"><video src="files/post_9944_tasiyanc_9944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9944_tasiyanc_9944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌حسین پاک، خبرنگار صداوسیما حوزه لبنان:
-منتظر بیانیه حزب‌الله هستیم ولی چیزی که معلومه اینه که علی الطاهر سقوط کرده و به دست اسرائیل افتاده!
-رزمنده‌ها تو علی الطاهر محاصره شدن و امکان ارسال غذا و اسلحه بهشون نیست.
-شرایط اونجا کاملا عاشورایی شده.
-میشه اسرائیل رو فرستاد عقب، حمله نظامی تاثیر داره.
-5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
-
-💋@Tasiyanc
 </div>
 
