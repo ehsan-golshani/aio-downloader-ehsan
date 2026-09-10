@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/19 17:31
+📅 آخرین بروزرسانی: 1405/06/19 21:18
 
 ---
+
+## tasiyanc — post 9808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوررری
+
+حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Low Ping Game & download
+IR server
+</div>
+
+## tasiyanc — post 9803
+
+<div align="center"><video src="files/post_9803_tasiyanc_9803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9803_tasiyanc_9803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9802
 
@@ -322,46 +352,5 @@ til.ac/0L4vyJf
 @HUNTTER_BET @HUNTTER_BET
 @HUNTTER_BET @HUNTTER_BET
 @HUNTTER_BET @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9782
-
-<div align="center"><video src="files/post_9782_tasiyanc_9782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9782_tasiyanc_9782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره عکس نودشو گذاشته والپیپر گوشی بعد گوشیو داده تعمیرکار🐸
-
-+احتمالا میخواسته جور دیگه حساب کنه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9775
-
-<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانستنی‌ها 😐
-پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
-
-یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9773
-
-<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
-
-بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
-
-+ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
-
-🩸 @Tasiyanc
 </div>
 

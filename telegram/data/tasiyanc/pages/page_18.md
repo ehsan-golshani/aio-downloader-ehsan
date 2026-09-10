@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/19 17:31
+📅 آخرین بروزرسانی: 1405/06/19 21:18
 
 ---
+
+## tasiyanc — post 9690
+
+<div align="center"><video src="files/post_9690_tasiyanc_9690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9690_tasiyanc_9690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 چند روز پیش توی باشگاه انقلاب تهران مسابقات و ایونت تنیس برگزار شد که حسابی سر و صدا کرده:
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وینامیت 🔥
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+</div>
+
+## tasiyanc — post 9688
+
+<div align="center"><img src="files/post_9688_tasiyanc_9688.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
+
+                        ⭕️ بدون قرعه‌کشی!
+⭕️ هدیه ویژه برای همه کاربران جدید!
+
+
+💵پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+
+👽 ثبت نام کنید 👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+
+
+🌐آدرس سایت👇
+https://Winamit.com/fa
+https://Winamit.com/fa
+https://Winamit.com/fa
+
+📲 کانال تلگرامی #وینامیت :
+
+✅@Winamit_fa
+</div>
 
 ## tasiyanc — post 9687
 
@@ -340,41 +392,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9665
-
-<div align="center"><img src="files/post_9665_tasiyanc_9665.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دولینگو (معروفترین برنامه آموزش زبان جهان) اعلام کرد آزمون‌های این برنامه از ۱ سپتامبر (۱۰ شهریور) برای ایرانیا متوقف خواهد شد و دیگه از ایرانیا آزمون نمیگیره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9664
-
-<div align="center"><img src="files/post_9664_tasiyanc_9664.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 بهترین برندها در هر زمینه دیجیتال طبق رضایت استفاده کننده‌ها ..
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9663
-
-<div align="center"><video src="files/post_9663_tasiyanc_9663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9663_tasiyanc_9663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پشت پرده ی تلخ داستان کارتون پلنگ صورتی 💔
-
-
-
-🩸 @Tasiyanc
 </div>
 

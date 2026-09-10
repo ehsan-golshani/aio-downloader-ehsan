@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/19 17:31
+📅 آخرین بروزرسانی: 1405/06/19 21:18
 
 ---
+
+## tasiyanc — post 9952
+
+<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
+حالا ببینید چه صحنه‌ محشری خلق میشه
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9951
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sg14
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9950
+
+<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9949
 
@@ -280,38 +332,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9925
-
-<div align="center"><video src="files/post_9925_tasiyanc_9925.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9925_tasiyanc_9925.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ماجرای خیانت پشم ریزان یک زن به شوهرش:)
-
-
-گذشته ی همدیگه‌رو جدی بگیرید:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ ها 👉
-
-💋 T.me/Tasiyanc
 </div>
 

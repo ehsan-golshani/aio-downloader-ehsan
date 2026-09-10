@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/19 17:31
+📅 آخرین بروزرسانی: 1405/06/19 21:18
 
 ---
+
+## tasiyanc — post 9665
+
+<div align="center"><img src="files/post_9665_tasiyanc_9665.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولینگو (معروفترین برنامه آموزش زبان جهان) اعلام کرد آزمون‌های این برنامه از ۱ سپتامبر (۱۰ شهریور) برای ایرانیا متوقف خواهد شد و دیگه از ایرانیا آزمون نمیگیره.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9664
+
+<div align="center"><img src="files/post_9664_tasiyanc_9664.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 بهترین برندها در هر زمینه دیجیتال طبق رضایت استفاده کننده‌ها ..
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9663
+
+<div align="center"><video src="files/post_9663_tasiyanc_9663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9663_tasiyanc_9663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پشت پرده ی تلخ داستان کارتون پلنگ صورتی 💔
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9661
 
@@ -374,32 +410,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9634
-
-<div align="center"><img src="files/post_9634_tasiyanc_9634.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی
-- از هیچ شخص یا حزب سیاسی حمایت نمیکنم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
