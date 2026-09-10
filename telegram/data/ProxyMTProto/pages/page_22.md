@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/19 01:41
+📅 آخرین بروزرسانی: 1405/06/19 08:36
 
 ---
+
+## ProxyMTProto — post 50580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rich.mtproto.baby
+Port: 443
+Secret: ddbd162e545e5cd6d7d7aa76b230c3083a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50578
 
@@ -163,24 +181,6 @@ Secret: dd0ef5f4a09c2e33527338e9184a9a6178
 Server: 65.21.205.41
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50560
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: run.helloworld.surf
-Port: 443
-Secret: dde80c91fa5050b02631672334ecb38b6a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50559
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

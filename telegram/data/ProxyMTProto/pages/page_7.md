@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/19 01:41
+📅 آخرین بروزرسانی: 1405/06/19 08:36
 
 ---
+
+## ProxyMTProto — post 50881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s13.assetflux.org
+Port: 443
+Secret: ee3afc68787d0be6268346b66a3563001b686f66662e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50880
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.37
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50879
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: anchor.lovely.lat
 Port: 443
 Secret: eeaadd88aa9facd454936d0c42dc128e776d2e6265626f6f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bolt.utkanos.life
-Port: 2443
-Secret: eefcc4cf72e265ef4e47068bfe3fbd44fb626f6c742e75746b616e6f732e6c696665
 @ProxyMTProto
 </div>
 
