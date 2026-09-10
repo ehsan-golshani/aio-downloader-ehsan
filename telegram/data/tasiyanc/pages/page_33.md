@@ -1,8 +1,121 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/19 21:18
+📅 آخرین بروزرسانی: 1405/06/19 23:43
 
 ---
+
+## tasiyanc — post 9335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪐 05.conf
+</div>
+
+## tasiyanc — post 9332
+
+<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
+
+«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
+
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9331
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9330
+
+<div align="center"><img src="files/post_9330_tasiyanc_9330.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+a24
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
+
+## tasiyanc — post 9329
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
+</div>
+
+## tasiyanc — post 9328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختر توپُر & اسکینی ؟
+
+پسر توپُر & سیکس پک ؟
+
+کامنت
+</div>
+
+## tasiyanc — post 9323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد 😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9321
+
+<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید نوید محمدزاده با پرچم پِلستین
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9319
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برا دوستانی ک همراه اول (اختلال) دارن
+
+ساب ۵۰ گیگی - ارسالی از Parisa
+
+https://sub.connecti24.info/roKRodKdpbqkdXXk
+
+
+ساب رو تو هاپ ، ویتوباکس ، ویتوری بزنید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9318
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9317
 
@@ -152,115 +265,5 @@ https://t.me/+c5jwC3lt9z45NTE0
 r24
 🔔کانال دربی بت :👇
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9304
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ : تورم تو ایران ۳۵۰ درصده،۸۲ درصد از موشکاشونم نابود کردیم، ۲۲۰ تا هواپیما داشتن همه رو نابود کردیم، سه گروه اول از رهبرانشونم ترور کردیم.
-
-@tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9303
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از فوبیاتون بگید .... از چی میترسید؟
-</div>
-
-## tasiyanc — post 9302
-
-<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کد های مخفی ChatGpt که بکارتون میاد🤖
-
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
-
-آموزش اتصال روی اندروید⚡️
-
-آموزش اتصال روی ویندوز  ⚡️
-
-دانلود برنامه برای ویندوز 💻
-
-@TASIYANC ☑️
-</div>
-
-## tasiyanc — post 9300
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐊 crocodile
-بعد سه ماه متولد شده عشق کنید
-تو قطعیا یادتونه دیگه چقد ترکوندیم
-</div>
-
-## tasiyanc — post 9299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑فقط کافیه مرغ از خیابون رد کنی و‌ پولت چند برابر کنی راحت💵👌
-</div>
-
-## tasiyanc — post 9297
-
-<div align="center"><video src="files/post_9297_tasiyanc_9297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9297_tasiyanc_9297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-😤اگ توم دوس داری خیلی راحت از بازی های انلاین پول در بیاری حتما عضو کازینو شبانه شو✅
-
-توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری👌
-
-🔔کانال کازینو شبانه راهی برای چند برابر کردن سرمایت 🤷‍♂
-
-➕کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 💵
-a23
-🎯همین حالا عضو شو و شروع کن👇
-https://t.me/+FaoDjhEVG34wMWFk
-https://t.me/+FaoDjhEVG34wMWFk
-</div>
-
-## tasiyanc — post 9295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکس هاتونو با یه ایموجی معرفی کنید
-
-کامنت بازه.
-</div>
-
-## tasiyanc — post 9294
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا؟
 </div>
 

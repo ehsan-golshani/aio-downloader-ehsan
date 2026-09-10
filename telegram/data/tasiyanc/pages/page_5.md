@@ -1,8 +1,191 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/19 21:18
+📅 آخرین بروزرسانی: 1405/06/19 23:43
 
 ---
+
+## tasiyanc — post 10035
+
+<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
+
+مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
+
+
+دریافت کانفیگ ها 👉
+
+@Tasiyanc 💋
+</div>
+
+## tasiyanc — post 10034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10033
+
+<div align="center"><img src="files/post_10033_tasiyanc_10033.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 10032
+
+<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10030
+
+<div align="center"><video src="files/post_10030_tasiyanc_10030.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10030_tasiyanc_10030.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 10029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تغییرات جدید کنکور اعلام شد:
+
+بر اساس مصوبه جدید، در کنکور ۱۴۰۵ نمرات امتحانات نهایی پایه یازدهم فقط به‌ صورت «تأثیر مثبت» و نمرات پایه دوازدهم به‌ صورت «تأثیر قطعی» در نتیجه کنکور اعمال میشه. سهم سوابق تحصیلی هم همچنان ۶۰ درصد خواهد بود.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 دانشگاه آزاد: با توجه به حضوری شدن دانشگاه‌ها از ترم جدید، این موارد رو حتما باید رعایت کنین!
+
+۱. قد مانتو تا روی زانو باشه.
+۲. مانتو جلو باز نباشه.
+۳. شلوار کوتاه و جذب ممنوعه.
+۴. پوشیدن شلوارهای زاپ‌دار ممنوعه.
+۵. پوشیدن هودی و شومیز و همه لباس‌های کوتاه برای خانم‌ها ممنوعه.
+۶. پوشیدن صندل ممنوعه.
+۷. اگه تتوهای زیادی دارید باید حتماً پوشیده بشن.
+۸. اگه پیرسینگ‌های زیادی دارین باید پوشیده بشن.
+۹. پوشیدن جوراب شلواری به تنهایی ممنوعه.
+۱۰. پوشیدن تیشرت‌های بدن‌نما و دارای نمادهای بیگانه ممنوعه.
+﻿
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10027
+
+<div align="center"><video src="files/post_10027_tasiyanc_10027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10027_tasiyanc_10027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیروز یه خبرنگار لبنانی🇱🇧 داشت از شهر " نبطیه " لبنان گزارش تهیه میکرد که همون لحظه اسرائیل بیخ گوشش حمله کرد :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10026
+
+<div align="center"><video src="files/post_10026_tasiyanc_10026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10026_tasiyanc_10026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پدر جاویدنام ایلیا اجاقلو در اعتراض به تخریب تصویر مزار فرزندش تصاویر برادرانش را که در جنگ هشت ساله عراق شهید شده بودند را پایین کشید .
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10024
 
@@ -130,206 +313,6 @@ sg16
 + فرمول‌های قدیمی که هفتگی یا ماهانه حقوق می‌گرفتید دورانشون تموم میشه .
 
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10012
-
-<div align="center"><video src="files/post_10012_tasiyanc_10012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10012_tasiyanc_10012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این روزا خیلی مواظب گوشیتون باشید؛
-دختره داشت برای پیجش تولید محتوا میکرد که یهو حمله کردن گوشیشو بزنن.
-سعی کنید تا حد امکان گوشیتون رو توی خیابون در نیارید اگه آیفونه‌.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10010
-
-<div align="center"><video src="files/post_10010_tasiyanc_10010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10010_tasiyanc_10010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10005
-
-<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ سرعتی وایرگارد 
-🔓
-
-حجم و کاربر نامحدود 
-⚡️
-
-
-دانلود 
-📱Android
-🕹  iOS
-
-
-آموزش اتصال با WgTunnel 
-🔗
-
-آموزش اتصال با windscribe
-🔗
-
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10004
-
-<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
-امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10003
-
-<div align="center"><video src="files/post_10003_tasiyanc_10003.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10003_tasiyanc_10003.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری مهر:
-
-ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10002
-
-<div align="center"><video src="files/post_10002_tasiyanc_10002.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10002_tasiyanc_10002.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ حاوی تصاویر دلخراش 
-🚨جوان همدانی خودشو چندساعت پیش تو شهر جلوی بقیه آتیش زد هنوز اطلاعات دقیقی از علت این خودسوزی بیرون نيومده ولی دادستان همدان گفته این جوون دارای مشکلات روحی و روانی بوده و درحال حاضر هم تو بیمارستان بستریه... 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10001
-
-<div align="center"><video src="files/post_10001_tasiyanc_10001.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10001_tasiyanc_10001.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨درحالیکه قیمت بنزین در ایران از امشب دو برابر‌ میشه؛ نتانیاهو اعلام کرد از امشب قیمت بنزین در اسرائیل ۰.۵ شِکِل (۳۵ هزار تومن) ارزون تر میشه.
-
-قیمت هر لیتر بنزین در اسرائیل ۸.۲۵ شِکِل (۲۷۰ هزار تومنه) که میشه ۷.۷۵ شِکِل (۲۳۵ هزار تومن).
-حقوق ها توی اسرائیل بالاست و بطور متوسط 4500 تا 5000 دلار (۱ میلیارد تومن و بالاتر) درامدشونه .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10000
-
-<div align="center"><video src="files/post_10000_tasiyanc_10000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10000_tasiyanc_10000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨عبور شاخص کل بورس تهران از مرز ۶.۸ میلیون واحد
-
-
-🔹شاخص کل بورس تهران در پنج دقیقه نخست معاملات امروز دوشنبه ۱۶ شهریور ۱۴۰۵، با افزایش ۱۶۷ هزار واحدی (معادل ۲.۵ درصد رشد) به ۶ میلیون و ۸۹۰ هزار و ۵۸۲ واحد رسید.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9999
-
-<div align="center"><video src="files/post_9999_tasiyanc_9999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9999_tasiyanc_9999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سالم ترین دیس برا صنعت بدنسازی🤣 :
-
-+ چند نفر بدن سوز داریم تو کانال؟
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-👈 دریافت کانفیگ اختصاصی OpenVpn 📱
 
 💋 @Tasiyanc
 </div>
