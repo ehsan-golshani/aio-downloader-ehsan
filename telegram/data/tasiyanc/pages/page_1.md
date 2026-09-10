@@ -1,8 +1,96 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/19 01:43
+📅 آخرین بروزرسانی: 1405/06/19 13:19
 
 ---
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10115
+
+<div align="center"><a href="files/post_10115_Melbet1.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melbet1.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10114
+
+<div align="center"><img src="files/post_10114_tasiyanc_10114.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاااااب لیگ قهرمانان اروپا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🆕
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 240.000 هزار تومان
+طلا 24.600.000 هزار تومان
+ریدین تو مملکت و آینده ما مبارکتون باشه
+
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10112
+
+<div align="center"><img src="files/post_10112_tasiyanc_10112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 10 September، روز جهانی آرایش کردنه💄
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10110
 
@@ -18,8 +106,6 @@
 </div>
 
 ## tasiyanc — post 10109
-
-<div align="center"><a href="files/post_10109_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🇩🇪آپ اندروید سایت جهانی Melbet💥
@@ -191,91 +277,5 @@ sa18
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10092
-
-<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
-
-تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
-بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
-دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
-مهریه کم میگیریم، ذلت نمی پذیریم.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شروط جمهوری اسلامی برای پایان جنگ توسط سخنگوی سپاه اعلام شد:
-
-۱-ضمن توقف کامل جنگ،
-۲- از تهدید مجدد دست بکشد،
-۳- ارتش اسرائیل از لبنان عقب‌نشینی کند،
-۴- محاصرهٔ یمن پایان یابد،
-۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
-۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-sg18
-ادرس عضویت کانال:👇
-▪️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10089
-
-<div align="center"><img src="files/post_10089_tasiyanc_10089.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:
-✉️https://t.me/+sjy90Yl3Bg41MzEy
 </div>
 

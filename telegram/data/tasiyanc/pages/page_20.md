@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/19 01:43
+📅 آخرین بروزرسانی: 1405/06/19 13:19
 
 ---
+
+## tasiyanc — post 9625
+
+<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
+
+بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🔐
+
+سرور سرعتی مولتی لوکیشن⚡️
+
+آموزش اتصال 
+⛓
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+🩸 @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9623
+
+## tasiyanc — post 9621
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
+
++ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9620
+
+<div align="center"><img src="files/post_9620_tasiyanc_9620.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: ماموریت به پایان رسید / ماموریت با موفقیت انجام شد .
+
++ دو معنی میده
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9619
 
@@ -258,96 +310,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9603
-
-<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃😃
-         😃
-😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9601
-
-<div align="center"><img src="files/post_9601_tasiyanc_9601.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تصاویر لو رفته سامسونگ S27 که قراره تو سال 2027 عرضه بشه ، تا حدودی ماژول دوربین از آیفون ۱۷ پرومکس الهام گرفته شده
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ : آمریکا جهان را تحت فشار قرار می‌دهد تا ضربه اقتصادی نهایی را به ایران ورشکسته وارد کند. آمریکا در حال فشار آوردن به تمام کشورهایی است که هنوز با ایران تجارت می‌کنند تا روابط خود را به طور کامل قطع کنند.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9593
-
-<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨آیفون ۱۷ پرومکس ۲ ترابایت:
-۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
-
-
-🩸 @Tasiyanc
 </div>
 
