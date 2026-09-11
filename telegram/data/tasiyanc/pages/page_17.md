@@ -1,8 +1,104 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/20 13:37
+📅 آخرین بروزرسانی: 1405/06/20 17:58
 
 ---
+
+## tasiyanc — post 9757
+
+<div align="center"><video src="files/post_9757_tasiyanc_9757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9757_tasiyanc_9757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴در یک لحظهٔ عادی اما م،رگبار، دانیل ریدِ ۳۲ ساله زنی به نام جسیکا را دید که غرق در گوشی موبایلش، قدم به خیابان می‌گذارد؛ بی‌آنکه متوجه ماشینِ درحال نزدیک شدن باشد. تنها چند ثانیه تا فاجعه وقت باقی بود. دانیل بدون فکر زن را از مرگ نجان داد
++ چند روز بعد جسیکا از دانیل شکایت کرد که او به حریم خصوصی وی تجاوز کرده و نباید نجاتش میداد 😭
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9756
+
+<div align="center"><video src="files/post_9756_tasiyanc_9756.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9756_tasiyanc_9756.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هِلِن زن ۹۱ ساله به جرم تلاش برای دزدیدن دارو برای شوهر بیمار ۸۸ ساله اش دستگیر شد !
+
++ هلن با اینکه خودش بیمار بود و لباس بیمارستان به تن داشت در دفاعیه از خود فقط گفت چاره دیگری نداشتم اون حالش بد بود و کار دیگری نمیتوانستم بکنم ، قاضی پرونده را مختومه و این عمل را مجرمانه نخواند
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9755
+
+<div align="center"><video src="files/post_9755_tasiyanc_9755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9755_tasiyanc_9755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
+
+او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی
+
+🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
+
++ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9751
+
+<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9750
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 🇮🇱 فوری، نتانیاهو در گفتگو با کانال ۱۴ اسرائیل:
+
+من رژیم ایران رو نابود خواهم کرد، اینو بهتون قول میدم و مطمئنم این کار شدنیه.
+اونا خیلی ضعیف تر از قبل شدن.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9748
 
@@ -152,80 +248,5 @@ til.ac/0L4vyJf
 🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش غیر رسمی از آغاز حملات موشکی سپاه همین الان
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9734
-
-<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 توییت جدید دونالد ترامپ
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری پرواز های مهرآباد لغو شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقام آمریکایی:
-
-نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9727
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
 </div>
 

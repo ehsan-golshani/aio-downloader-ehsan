@@ -1,8 +1,103 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/20 13:37
+📅 آخرین بروزرسانی: 1405/06/20 17:58
 
 ---
+
+## tasiyanc — post 9961
+
+<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨قیمت برگ ریزان گوشی ۱۴ شهریور
+
+یه موبایل میان رده هم شد آرزو!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9958
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺حسن روحانی:
+هیچکس از طرف خدا حاکم نشده. همتون مستقیم و غیرمستقیم با رای مردم مسئولیت دارید. از اون بالایی تا پایینی‌. پس ببینید مردم چی میگن؛ همون کارو کنید. اگه میخواید ۲۰ سال دیگه با دنیا بجنگید اول باید مردم موافق باشن. اون که پیغمبرش بود و به خدا وصل بود مشورت میکرد؛ حالا شما کی هستید؟!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
+
+🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9956
+
+<div align="center"><video src="files/post_9956_tasiyanc_9956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9956_tasiyanc_9956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسرا چقد مهربون شدن جدیدا به هیشکی نه نمیگن😞...
+
++ حقیقتا با دیدن این ریدم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9954
+
+<div align="center"><video src="files/post_9954_tasiyanc_9954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9954_tasiyanc_9954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت تسلا بالاخره تاکسی‌های بدون راننده خودش رو به خیابون‌های آستین تگزاس آورد.
+
+تاکسی‌های جدید Cybercab که نه فرمون دارن و نه پدال گاز و ترمز، به ناوگان Robotaxi اضافه شدن.
+تصور کنید سوار ماشینی می‌شید که درهای پروانه‌ایش با اپلیکیشن باز می‌شه و هوش مصنوعی شما رو به مقصد می‌رسونه.
++این تاکسی های تسلا رو یه یارویی شخصا تست کرده خیلی خفنن ایلان ماسک داره دنیا رو تغییر میده:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9953
+
+<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
+
+سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9952
+
+<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
+حالا ببینید چه صحنه‌ محشری خلق میشه
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9951
 
@@ -171,158 +266,5 @@ https://t.me/+PTaxqSvYQ_A0MTc8
 بنابر اطلاعات این فرد پیشتر به اتهام تجاوز و شکنجه مواجه بوده است اما قربانیان بخاطر « آبروی خانواده » عنوان نکردند
 امیدوارم این حرامزاده جانی بزودی دستگیر بشه ، خدا می‌دونه چه بلاهایی سر چند تا دختر دیگه هم آورده.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9935
-
-<div align="center"><img src="files/post_9935_tasiyanc_9935.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هشدار 🚨 ترفند جدید کلاهبرداری ( خطر از دست رفتن اکانت تلگرام )
-
-گاهی اوقات پیامی از اکانتی دریافت می‌کنید که کاملاً شبیه اکانت‌های معتبر مثل تلگرام یا حتی اکانت خودتان است. کلاهبرداران با استفاده از حروف غیرانگلیسی در نام کاربری، اکانت‌های مشابه می‌سازند تا تشخیص آن‌ها سخت‌تر شود.
-در این پیام‌ها معمولاً ادعا می‌کنند که اکانت شما به‌زودی حذف یا مسدود می‌شود و از شما می‌خواهند روی دکمه‌ای کلیک کنید یا کدی را ارسال کنید. این دکمه‌ها ممکن است شما را به صفحات فیشینگ یا فایل‌های APK آلوده هدایت کنند و تمام اطلاعات چت‌ها و کانال‌های شما به سرقت بروند.
-قبل از هر اقدامی، نام کاربری فرستنده را با دقت بررسی کنید و روی لینک‌ها یا دکمه‌های مشکوک کلیک نکنید.
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9933
-
-<div align="center"><img src="files/post_9933_tasiyanc_9933.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-⚡دریافت کانفیگ های وایرگارد 🔥
-
-⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9929
-
-<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
-
-+کمر به نابودی مردم بستن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9927
-
-<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9926
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶 مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥 دریافت کانفیگ ها 👉 💋 T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال MehdiBudam - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/20 13:35
+📅 آخرین بروزرسانی: 1405/06/20 17:56
 
 ---
+
+## MehdiBudam — post 8144
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor27
+
+
+slipnet-enc://Aa/sx3ZkUVM4wP3gnlNvmXo4pLJY9BN2uhvbTtwbIr+x2GN47Xj+qdxQaXGnIJ4Y6G5oSdJqb7TBVslVX7zZmwceKPr+YiGq/aLtgaIezkf4p7hHm9l1KZctXeekryVQHBg6j9VyVq4oPJI4734+siMchUl/et5dtweVh6nUhNfRZf6OGpsF+HU780YvJ2WbJ6pB0g0M3HR1YHgDQ1qt6aks5Hyu8sO247vYm6CtQf3fcxst/dbbNfIkQDTWNL6oM2lJC9RO0k5Bngk2F4MnojChjdlzQl6Frvmm7p1JSXLGbV4JS/+cJzMi9llPZSpGwZIv6x+3m89K2bzCa4rcp0AoU7rszFly/JZLCrxNhvGnPbIeVmucGRf/RiXsxhwg6hbHrj1ej3e0hg3Y5JGVAUGg4d/55iWWWgXOsEHE/SO/YrVp5vPis5JsNFKF/D5v9RGHCTgHNdkX76IdwYRKUw+pRNbUTb0W6bE97L70VPhCrHr/hlDlnkgiMiSxMYPNG3i0SYJbRbEuigokKYivFvKb2M9PJXoM7vO6Rum3zAh+751CPmhUTjuyaoa9M2ykkWvcgEh3x/oii3lVmM0/jmNoIR83xyqkGsbHqR7SFvrPl92Wz65ZwJ4iZfdGL+q35CxhM7/6sOnd7K2/CqFsoCuHKK7DK7IsaHWstTfR7xqy+Q5pOUTi+Eu8bWxkTEGdVIZE7sVUGBe8y0AOcRHI3lWzlieJlMTR/h/h7spC
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor26
+
+
+slipnet-enc://Ae9hlbCIYPFSSO4kQ9QhNTMTmyVmMg3NnEimU4LLyEbeY36gpU16RLWd3kOkEGPIo7vmWEhdzIe9hkcvU0SZU+ozOPILU0rlmJar9b9mGSkqhIBNHtjnyV21y0GBWKmcUiiIL5bD6lGjmFqXz8pSXmI16z42wOAzmZhL/YeBAcc0CMGOP3FE6DL/HYj38VIrX0CZi2tk9lBBMAXe77Q6c+aCt8IhfbPrrDuExTKWzuiPabDgnehI1WW+AfUqzx85g4yEx/uIW1YV2yCMawlltYRrZt2lJSFTMOwfhLiLVP+p+6cNJm5R+kIr/1sGwU/mTuCYJOew/Ek7EDGcj/RRLJHCxtvjk1MHoEmMUiIP1zsY62WAGwm4IklWwUzTr46Fsp0zSJLqlNiOwOk2ouKQM1M7DG6oBr5Ni2/5yFTW0wg6sl+YNtBJ83l7/MeyavMnP85Zh158oLTcgkRRYnCarYN2f0a41xRHMJpE9hU7re9xkofa6n3PBFTEWxUQT/4I36k77RAaASmj9mvac4JoFhnL5yhwVqfS70/MYhCza466QjsjXIuunVQ58ic2SzmWQwE0Q1CIE6YiYApa6OxQUKuf16CiIcfOYchzx9Toq/tokKpBEUMduEoOQkaNm5XBNFZNiL3gPh2Rhft881vzKu7M/aa9j2T53a+F9wdS2nEAyN/+CIceyJXehHRisaTvVIc4vX/+joyOxnMUlh4TcZkPmDDkRoPbLEp37CWk
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8142
 
@@ -182,17 +206,5 @@ slipnet-enc://Ae01OTAJU4aYPHQ75hj7HbRwSBFIW2Mck5pIDbXW2/u2qkGAl8xsz8mrV1l4mHPLpE
 
 ﻿
 @MehdiBudam
-</div>
-
-## MehdiBudam — post 8124
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
-</div>
-
-## MehdiBudam — post 8123
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان این تور های که گذاشته میشه همشون بریج هاشون متفاوته بخاطر همون برای بعضیا شاید وصل نشه نه اینکه مثل یه چنل دیگه که یدونه بریج پر سرعت پیدا کرده با همون چند‌تا تور گذاشته و همشون یکین و اگه یدونه Delete Duplicate بزنی کلا یدونه میمونه.
 </div>
 
