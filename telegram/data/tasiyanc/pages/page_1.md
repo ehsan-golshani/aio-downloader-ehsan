@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 10174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه مبلغی‌رو اشتباهی واریز کردید میتونید در ساعت اولیه با شماره های زیر (پشتیبانی) تماس بگیرید و بهشون بگید واریز اشتباه انجام دادید تا پولتون سریع برگرده حسابتون
+
+•بانک ملی ایران - 09622
+
+•بانک کشاورزی - 02187611
+
+•بانک دی - 02128930
+
+•بانک صادرات - 09602
+
+•بانک مسکن - 5941
+
+•بانک تجارت - 1554
+
+•بانک سپه - 1557
+
+•بانک ملت - 1556
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10173
+
+<div align="center"><video src="files/post_10173_tasiyanc_10173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10173_tasiyanc_10173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟣 این قسمت پیک موتوری اسنپ‌فود
+
+دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
+فکر کنم دستشم تمیز باشه
+بعد به دست مشتری میرسونه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10171
+
+<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
+
+یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10170
 
@@ -37,8 +91,6 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 </div>
 
 ## tasiyanc — post 10168
-
-<div align="center"><a href="files/post_10168_1xbet_ir.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1xbet_ir.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔔 اپلیشیکن بدون فیلتر1xbet 3️⃣2️⃣1️⃣
@@ -261,39 +313,6 @@ Final result: A believable rediscovered real color photograph from Tehran around
 امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
 
 ماموریت را به پایان رساندیم. سال نو مبارک!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوروارد ۲ پست پرامپت بالارو به ۵۰۰ برسونید وایرال شه ❤️
-</div>
-
-## tasiyanc — post 10146
-
-<div align="center"><img src="files/post_10146_tasiyanc_10146.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑 اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰ Prompt 🤖🤖 Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress…
-</div>
-
-## tasiyanc — post 10145
-
-<div align="center"><img src="files/post_10145_tasiyanc_10145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑
-
-
-اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰
-
-Prompt 🤖🤖
-
-Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress me as an elegant Iranian aristocratic woman in a luxurious vintage evening gown with refined jewelry. Place me inside a grand Tehran palace with Persian carpets, crystal chandeliers and warm golden lighting. Sophisticated, feminine, wealthy, cinematic 35mm film photography, realistic vintage aesthetic. No modern objects .
-
-آموزش استفاده ➡️
 
 💋 @Tasiyanc
 </div>

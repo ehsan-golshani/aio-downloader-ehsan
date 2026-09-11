@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 9738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
+
++با یه باک پر کجا رو داری بری هموطن؟
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9737
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اول رویترز: جنگ آغاز شده است
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9735
 
@@ -218,55 +244,5 @@ til.ac/0L4vyJf
 + آهو میپرید ، بی خبر از اینکه شاخ‌هایش ، پیش از هر شکارچی خودش را خواهد آزرد .
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9703
-
-<div align="center"><img src="files/post_9703_tasiyanc_9703.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 210.000 تومان 😐
 </div>
 

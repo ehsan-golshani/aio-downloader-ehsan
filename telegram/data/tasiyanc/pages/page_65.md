@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 8465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز
+
+تایید یا تکذیب نمیشه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 بازی ایران آمریکا آغاز شد
+</div>
+
+## tasiyanc — post 8463
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبه به ترامپ میکروفن ندادن وگرنه میخواست بگه ایران نباید سلاح هسته ای داشته باشه وسط زمین
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8462
 
@@ -130,23 +154,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسپانیااااااااااا میزنه
-</div>
-
-## tasiyanc — post 8445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرررررررررررررررران تووووووووووورس
-</div>
-
-## tasiyanc — post 8444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگگگگگگگگل
-</div>
-
-## tasiyanc — post 8443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقت اول اضافه تموم شد ، میریم پنالتیا؟
 </div>
 

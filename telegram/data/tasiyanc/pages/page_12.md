@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 9895
+
+<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
+
+⭕️پس همین الان وارد کانال Evil Bet شو
+چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
+
+💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+TmGWkUYH_8c0OWZk
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9893
+
+<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9892
+
+<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری
+
+با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9890
 
@@ -256,37 +299,5 @@ til.ac/0L4vyJf
 ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9869
-
-<div align="center"><video src="files/post_9869_tasiyanc_9869.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9869_tasiyanc_9869.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
-</div>
-
-## tasiyanc — post 9867
-
-<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-sa11
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
 </div>
 

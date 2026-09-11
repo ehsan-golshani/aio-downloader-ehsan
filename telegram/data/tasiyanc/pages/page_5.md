@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 10055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
+نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
+آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله آمریکا به نفتکش ایرانی در ۴ مایلی خارک ( تسنیم)
+
+آمریکا امشب دستور تخلیه فوری داده به نفتکش‌های ایرانی و میخواد بفرستتشون قعر دریا
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10052
 
@@ -253,64 +282,5 @@ Tasiyan | تاسیان pinned a photo
 🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10035
-
-<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
-
-مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
-
-
-دریافت کانفیگ ها 👉
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 10034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10033
-
-<div align="center"><img src="files/post_10033_tasiyanc_10033.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

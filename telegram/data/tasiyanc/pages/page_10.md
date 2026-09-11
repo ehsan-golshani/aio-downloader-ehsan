@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/20 17:58
+📅 آخرین بروزرسانی: 1405/06/20 21:33
 
 ---
+
+## tasiyanc — post 9942
+
+<div align="center"><video src="files/post_9942_tasiyanc_9942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9942_tasiyanc_9942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠مهر تاییدی بر این موضوع که هر سگ و گربه‌ای رو نباید عقد و عروسیتون دعوت کنید:
+
++ طفلی عروس چه فشاری میخوره
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر دستگیری این مادر جنده بیاد به ۱۰ نفر اوپن VPN اختصاصی نامحدود میدم ( فقد اعضای گروه)
+
+https://t.me/+PTaxqSvYQ_A0MTc8
+
+
+🔴تا ساعت ۱۴ زیر پست کامنت بزارید قرعه کشی میشه ( به گزارش تابناک قاتل کردن تو گونی و موقع فرار از مرز دستگیر شده )
+</div>
+
+## tasiyanc — post 9938
+
+<div align="center"><img src="files/post_9938_tasiyanc_9938.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 نیلوفر مجاور، دختر ۲۷ ساله اهل پیرانشهر توسط خواستگار ۴۱ ساله سابقش سید عزت الدین سیدطاهری ۴۱ ساله که جواب رد بهش داده بود به بدترین شکل ممکن بقتل رسیده.
+
+نیلوفر به مدت ۱۲ روز تو مکانی نامعلوم، تحت شکنجه تجاوز قرار گرفته او با جراحات زیادی به بیمارستان امام پیرانشهر اعزام و متاسفانه پزشکان مرگ مغزی اورا تایید کردند
+کبودی‌های گسترده در سراسر بدن، شکستگی چانه و پهلو، آسیب شدید به سر و جراحات شدید در ناحیه واژن و مقعد نشون از تجاوزی وحشتناک میداد!
+در تمام این مدت به نیلوفر آب و غذا داده نمیشده و اگه نیلوفر درخواست آب میکرده، این حرومزاده ادرار میکرده براش! در نهایت دخترک بی دفاع جان نازینینش را از دست می‌دهد
+حدود ۱۰ سال پیش این جانی بخاطر مرگ همسر سابقشم متهم شده بود و بعد مدتی آزاد شد این حرامزاده یک فرزند پسر هم از ازدواج قبلیش دارد
+بنابر اطلاعات این فرد پیشتر به اتهام تجاوز و شکنجه مواجه بوده است اما قربانیان بخاطر « آبروی خانواده » عنوان نکردند
+امیدوارم این حرامزاده جانی بزودی دستگیر بشه ، خدا می‌دونه چه بلاهایی سر چند تا دختر دیگه هم آورده.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9935
 
@@ -249,55 +289,5 @@ til.ac/0L4vyJf
 ⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9916
-
-<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9915
-
-<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9914
-
-<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 
