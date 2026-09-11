@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/20 21:33
+📅 آخرین بروزرسانی: 1405/06/21 00:31
 
 ---
+
+## tasiyanc — post 10155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شروع هفته مد نیویورک با صدای بهشتی بانو هایده و طراح ایرانی لباس یاسمین لاریان بنیانگذار خانه مد «کالت‌گایا»
+
+
+یاسمین لاریان حکمت (Jasmin Larian Hekmat)، طراح آمریکایی-ایرانی‌ و بنیان‌گذار و مدیر هنری خانه مد «کالت گایا»، روز چهارشنبه ۱۸ شهریورماه در هفته مد نیویورک مجموعه بهار ۲۰۲۷ خود با عنوان «بهشت» را به نمایش گذاشت و طنین صدای هایده، خواننده مشهور و فقید ایرانی، در این نمایش شنیده شد.
+
+مجموعه بهار ۲۰۲۷ «بهشت» نیز مانند بخشی از آثار پیشین لاریان حکمت، بازتابی از ریشه‌های ایرانی و فرهنگ پارسی او است. چهره‌های مطرح دنیای مد و سرگرمی آمریکا در نمایش این مجموعه حاضر بودند.
+
+یاسمین لاریان حکمت مجموعه «بهشت» را با الهام از درگذشت مادربزرگش و تجربه سوگ طراحی کرده است. نمایش از لباس‌های تیره و حال‌وهوایی اندوهگین آغاز شد و به تدریج به طراحی‌هایی روشن‌تر و شادتر رسید تا گذار از سوگواری به جشن زندگی را به تصویر بکشد.
+
+این طراح ایرانی-آمریکایی مجموعه پاییز و زمستان ۲۰۲۶-۲۰۲۷ را نیز با عنوان فارسی شیرزن (shirzan) و در ادای احترام میراث زنان ایرانی به بازار روانه کرده بود.
+
+یاسمین لاریان حکمت در سال ۲۰۱۲ نشان کالت گایا را در لس‌آنجلس بنیان گذاشت و این خانه مد را به یک نشان بین‌المللی در حوزه مد و لوازم جانبی تبدیل کرد. او در سال ۲۰۱۷ نیز در فهرست «۳۰ فرد زیر ۳۰ سال» موفق مجله فوربس قرار گرفت.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40میلیون جایزه برای ۱۰۰ نفر
+همین حالا عضو خانواده وی پاری شو✔️
+</div>
+
+## tasiyanc — post 10153
+
+## tasiyanc — post 10150
+
+<div align="center"><img src="files/post_10150_tasiyanc_10150.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توییت نتانیاهو:
+امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
+
+ماموریت را به پایان رساندیم. سال نو مبارک!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10147
 
@@ -229,104 +270,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 🇹🇷
 
             🚨 امنیت مالی در 1xbet🚨
-</div>
-
-## tasiyanc — post 10120
-
-<div align="center"><video src="files/post_10120_tasiyanc_10120.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10120_tasiyanc_10120.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 
-📸 یوتوب 
-🎥
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-درصورت ارور چند بار بزنید 
-⭕️
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10118
-
-<div align="center"><video src="files/post_10118_tasiyanc_10118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10118_tasiyanc_10118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 
-👑
-
-Name: Tehran 1350
-
-Prompt 
-🤖
-🤖
-
-Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and recognizable appearance. Set the scene in Tehran, Iran during the 1350s (1970s). She is standing on a Tehran street near Azadi Square, facing the camera in a sophisticated three-quarter pose while her face remains clearly visible. She is dressed as a fashionable Iranian woman from the 1350s
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10117
-
-<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
-فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
-پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10116
-
-<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
-
-
-🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
-
-
-•چرخاندن مدل بدن از زوایای مختلف
-
-•بزرگ‌نمایی و بررسی جزئیات
-
-•مشاهده جداگانه استخوان‌ها و اندام‌ها
-
-•حالت Explode برای تفکیک لایه‌های مختلف بدن
-
-•نمایش نام بخش‌های مختلف آناتومی
-﻿
-🌐 یه جورایی Google Maps، ولی برای بدن انسان!
-
-🔗https://human-atlas-seven.vercel.app
-
-
-
-🩸 @Tasiyanc
 </div>
 

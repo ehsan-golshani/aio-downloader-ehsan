@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/20 21:33
+📅 آخرین بروزرسانی: 1405/06/21 00:31
 
 ---
+
+## tasiyanc — post 10017
+
+<div align="center"><video src="files/post_10017_tasiyanc_10017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10017_tasiyanc_10017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ادب کردن عراقی‌ها که در سمنان به یه دختر ایرانی قصد تعرض داشتند
+
+توی سمنان چند نفر عراقی برای یک بانوی ایرانی ایجاد مزاحمت کرده بودن اینطوری ادب شدن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10015
+
+<div align="center"><video src="files/post_10015_tasiyanc_10015.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10015_tasiyanc_10015.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10014
+
+<div align="center"><img src="files/post_10014_tasiyanc_10014.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه میخواید میزان تورم ایران دستتون بیاد کافیه بدونید که سال 1391 با 14 میلیون تومن میتونستی یه پراید بخری؛ امروز با ۱۴ میلیون تومن میتونی یه بسته کـاندوم بخری تا یه آدم دیگه به دنیا نیاد مثل ما بدبخت بشه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10013
+
+<div align="center"><video src="files/post_10013_tasiyanc_10013.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10013_tasiyanc_10013.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک هشدار داده 10 سال دیگه وقت داریم که با کار کردن فیزیکی پول دربیاریم. بعد از اون، ربات‌ها ، هوش مصنوعی بیشتر کارها رو بدست میگیرن و دلیل نداره تو به‌جای اونا کار کنی
+
++ فرمول‌های قدیمی که هفتگی یا ماهانه حقوق می‌گرفتید دورانشون تموم میشه .
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10012
 
@@ -308,71 +362,5 @@ til.ac/0L4vyJf
 +اشاره به شباهت نقشه برعکس ایران با کله خودش
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنگوی دولت رسما اعلام کرد:
-
-نرخ کارت جایگاه سوخت از بامداد ۱۷ شهریور به ۱۰ هزار تومان افزایش خواهد یافت.
-
-+ سهمیه اول و دوم ثابت ، نرخ سوم ۱۰ هزار تومان شد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9991
-
-<div align="center"><video src="files/post_9991_tasiyanc_9991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9991_tasiyanc_9991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 به تازگی یه چیزی مُد شده به اسم:
-«جوجو پارتی»، تو این پارتی،
-
-پسرا رفیقای دوس دخترشون رو به همراه رفیق سینگلشون به این پارتی میارن، تا برای همدیگه جوجه بکشن و از سینگلی در بیان.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg15
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9989
-
-<div align="center"><img src="files/post_9989_tasiyanc_9989.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

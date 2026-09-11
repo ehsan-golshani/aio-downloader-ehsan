@@ -1,8 +1,107 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/20 21:33
+📅 آخرین بروزرسانی: 1405/06/21 00:31
 
 ---
+
+## tasiyanc — post 10120
+
+<div align="center"><video src="files/post_10120_tasiyanc_10120.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10120_tasiyanc_10120.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+درصورت ارور چند بار بزنید 
+⭕️
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10118
+
+<div align="center"><video src="files/post_10118_tasiyanc_10118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10118_tasiyanc_10118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده دهه 50 
+👑
+
+Name: Tehran 1350
+
+Prompt 
+🤖
+🤖
+
+Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and recognizable appearance. Set the scene in Tehran, Iran during the 1350s (1970s). She is standing on a Tehran street near Azadi Square, facing the camera in a sophisticated three-quarter pose while her face remains clearly visible. She is dressed as a fashionable Iranian woman from the 1350s
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10117
+
+<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
+فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10115
 
@@ -204,59 +303,6 @@ sa18
 🚨🔩 ترامپ:
 
 مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 🔩 فوری٬ ترامپ :
-
-حملات بیشتری علیه ایران انجام خواهیم داد. جنگ ایران بلافاصله پس از انتخابات میان‌دوره‌ای پایان خواهد یافت!
-
-پی‌نوشت : انتخابات میان‌دوره‌ای ۱۲ آبان هست
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10095
-
-<div align="center"><video src="files/post_10095_tasiyanc_10095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10095_tasiyanc_10095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10094
-
-<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
-
-ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
-تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
 
 🩸 @Tasiyanc
 </div>
