@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/21 00:31
+📅 آخرین بروزرسانی: 1405/06/21 02:56
 
 ---
+
+## tasiyanc — post 9995
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگای جدید در ربات آپلود شد 🔐📱
+
+دریافت ۶ کانفیگ سرعتی OpenVpn 👉
+
+دریافت ۲۰ کانفیگ سرعتی نپسترنت در ۲ فرمت 👉
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9994
+
+<div align="center"><video src="files/post_9994_tasiyanc_9994.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9994_tasiyanc_9994.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لحظه تصادف وحشتناکی که دیروز تو سنندج رخ داد؛
+انقدر شدت و قدرت انفجار بالا بود که فعلا فقط هویت 6 نفر از 11 کشته این تصادف معلوم شده!
+1. صاحب منصوری — اهل روستای صلوات‌آباد
+2. ارشاد منصوری — اهل روستای صلوات‌آباد
+3. مازیار شکری — اهل سنه (سنندج)
+4. فرزاد ریازی — اهل سنه (سنندج)، بازنشسته اداره راه
+5. یدالله سلیمی — اهل سنه (سنندج)
+6. مهدی زندی پوریان
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9993
+
+<div align="center"><img src="files/post_9993_tasiyanc_9993.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عادی‌ترین پست ترامپ 😂
+
+اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
++اشاره به شباهت نقشه برعکس ایران با کله خودش
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9992
 
@@ -262,76 +309,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9975
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9974
-
-<div align="center"><video src="files/post_9974_tasiyanc_9974.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9974_tasiyanc_9974.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سد مهدی دهمردی بریم تو کارت یا ن 😐
 </div>
 

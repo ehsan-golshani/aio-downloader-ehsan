@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/21 00:31
+📅 آخرین بروزرسانی: 1405/06/21 02:56
 
 ---
+
+## tasiyanc — post 10042
+
+<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10041
+
+<div align="center"><video src="files/post_10041_tasiyanc_10041.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10041_tasiyanc_10041.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو نیکول کیدمن ستاره هالیوود « کراش دهه شصت و هفتادیا» گفته جدایی بعد از بیست سال زندگی و در محدوده سنی شصت سال خیلی راحت نیست!:)
++ زیبایی بانو ›››››
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10040
+
+<div align="center"><video src="files/post_10040_tasiyanc_10040.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10040_tasiyanc_10040.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد میگن چرا پسرا دیگه حال ازدواج ندارن
+فک کن این همه هزینه کنی که این جیندرلا برا یکی دیگه دابسمش بگیره💆🏻
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10039
 
@@ -260,52 +300,5 @@ til.ac/0L4vyJf
 اعضای خانواده های جاویدنام ها کم کم داره تحمل این داغ براشون سخت میشه و دست به خودکشی میزنن توی ۲۴ ساعت اخیر دو خودکشی!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران واقعاً جای عجیبیه، یه مرد ۴۲ ساله یه دختر ۱۴ ساله رو به عنوان زن سوم صیغه کرده و دختره رو حامله کرده و افتاده زندان، اونوقت دختره الان داره سزارین میکنه 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg16
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10018
-
-<div align="center"><img src="files/post_10018_tasiyanc_10018.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

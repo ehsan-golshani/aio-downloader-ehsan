@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/21 00:31
+📅 آخرین بروزرسانی: 1405/06/21 02:56
 
 ---
+
+## tasiyanc — post 10129
+
+<div align="center"><video src="files/post_10129_tasiyanc_10129.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10129_tasiyanc_10129.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استایل وایرال شده ریما رامین‌فر و لاله مرزبان در جشنواره فرش قرمز ونیز ایتالیا‌
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10128
+
+<div align="center"><video src="files/post_10128_tasiyanc_10128.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10128_tasiyanc_10128.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 اپلیشیکن بدون فیلتر1xbet 
+3️⃣
+2️⃣
+1️⃣
+
+🤝 اسپانسر لالیگا🇪🇸
+
+🤝 اسپانسر سری آ
+🇮🇹
+
+🤝اسپانسر باشگاه یوونتوس🇮🇹
+🤩 آموزش ثبت نام در 1 دقیقه
+
+💀 https://t.me/+mneyQS4mfqNjNjBk
+</div>
+
+## tasiyanc — post 10127
+
+<div align="center"><video src="files/post_10127_tasiyanc_10127.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10127_tasiyanc_10127.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+▪️ سایت بین المللی و معتبر 1xbet
+
+⚽️
+⚽️
+⚽️
+
+🔠دارای مجوز بین المللی CURACAO
+تسویه حساب کمتر از 2دقیقه
+
+🤑شارژ حساب از طریق یو ووچر و پی اس ووچر ،تمام ارزها
+┅━━━━━━━━━━━
+
+🎁 واریز اول و هر شنبه دو برابر شارژ شوید(بونوس ۱۰۰٪)
+
+💡کد هدیه ثبت نام: S5670
+👽ثبت نام کنید.     
+👇
+
+📲 نصب اپلیکیشن اندرید کلیک کنید
+👉
+
+
+🌐آدرس سایت 
+▫️
+
+
+‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید
+🇨🇦  
+🇮🇳
+🇹🇷
+
+            🚨 امنیت مالی در 1xbet🚨
+</div>
 
 ## tasiyanc — post 10120
 
@@ -273,37 +353,5 @@ sa18
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10100
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ترامپ: ایرانی‌ها تمام تلاششان را می‌کنند تا روی نتیجه انتخابات ما اثر بگذارند، به این امید که یک گروه ضعیف روی کار بیاید تا کاری به کار آن‌ها نداشته باشد و بگذارد به سلاح هسته‌ای برسند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10098
-
-<div align="center"><video src="files/post_10098_tasiyanc_10098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10098_tasiyanc_10098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پارت جدید؛ برنامه عشق ابدی آمریکاییا چخبره 😐😐
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🔩 ترامپ:
-
-مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
-
-🩸 @Tasiyanc
 </div>
 
