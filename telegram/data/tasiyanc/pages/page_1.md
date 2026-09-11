@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/20 02:17
+📅 آخرین بروزرسانی: 1405/06/20 13:37
 
 ---
+
+## tasiyanc — post 10160
+
+<div align="center"><video src="files/post_10160_tasiyanc_10160.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10160_tasiyanc_10160.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 امروز ۱۱ سپتامبر ، 25 سال پیش در چنین روزی تلخ‌ترین حادثه تروریستی برای آمریکا رقم خورد
+صبحی که با برخورد دو هواپیما به برج‌های دوقلوی تجارت جهانی نیویورک، جهان شوکه شد.
+۲۹۷۷ نفر کشته شدند؛ دو برج فرو ریختند و تاریخ سیاست آمریکا برای همیشه تغییر کرد.
+این حملات توسط ۱۹ هواپیماربا انجام شد که اعضای شبکه تروریستی القاعده (Al-Qaeda) بودند و عملیات تحت رهبری اسامه بن لادن برنامه‌ریزی شده بود.
+چهار هواپیما ربوده شدند:
+دو هواپیما به برج‌های دوقلوی نیویورک برخورد کردند.
+یکی به پنتاگون اصابت کرد.
+چهارمی در پنسیلوانیا سقوط کرد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10159
+
+<div align="center"><img src="files/post_10159_tasiyanc_10159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✝️حکم دستگیری دختر و پسر تو ماشین
+احتمالا به دردتون بخوره بدونید
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10158
+
+<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
+این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10157
+
+<div align="center"><a href="files/post_10157_Melbet1.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melbet1.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چرا این روزها همه سایت جهانی MelBet رو انتخاب میکنن ⁉️
+
+🎁 شارژ هدیه 130 دلاری اولین واریز
+🎁 شارژ هدیه 100 دلاری در روز های یکشنبه و چهارشنبه
+🎁 و ده ها بانس ارزنده دیگر...
+🥇 متنوع ترین آپشن های ورزشی
+🖥 پخش زنده مسابقات
+🎮 بیش از 80 نوع ورزش مجازی با پخش زنده
+⭐ کاملترین کازینو آنلاین
+🛡 امنیت فوق العاده بالا
+🌐 اسپانسر رسمی جام جهانی
+💵 واریز آنی جوایز با بیش از 30 روش شارژ و برداشت، از جمله کارت بکارت
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
 
 ## tasiyanc — post 10155
 
@@ -163,112 +244,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10136
-
-<div align="center"><img src="files/post_10136_tasiyanc_10136.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یه مرده تو تهران زنشو ۴ قلو حامله کرده و حالا ۶ تا بچه داره برگشته گفته با اینکه تو یه خونه چهل متری زندگی می‌کنیم اما شادترین پدر دنیا هستم
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10131
-
-<div align="center"><img src="files/post_10131_tasiyanc_10131.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عجیب‌ترین مسابقه مُد و فشن (ISIS FASHION AWARDS AMSTERDAM 2026) تو هلند🇳🇱 برگزار شد؛
-
-قانون اصلی این فشن‌شو اینه که فقط و فقط اکسسوری‌ها باید دیده بشن، یعنی چیزایی مثل کیف، کفش، عینک، جواهرات، کلاه و کمربند.
-
-مدل‌ها نباید هیچ لباسی بپوشن و فقط همون اکسسوری‌های طراح رو روی بدنشون دارن تا تمرکز کامل روی طراحی‌ها باشه.
-
-‌
-مشاهده ویدیو مسابقات بدون سانسور 🖤
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10129
-
-<div align="center"><video src="files/post_10129_tasiyanc_10129.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10129_tasiyanc_10129.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 استایل وایرال شده ریما رامین‌فر و لاله مرزبان در جشنواره فرش قرمز ونیز ایتالیا‌
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10128
-
-<div align="center"><video src="files/post_10128_tasiyanc_10128.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10128_tasiyanc_10128.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔔 اپلیشیکن بدون فیلتر1xbet 
-3️⃣
-2️⃣
-1️⃣
-
-🤝 اسپانسر لالیگا🇪🇸
-
-🤝 اسپانسر سری آ
-🇮🇹
-
-🤝اسپانسر باشگاه یوونتوس🇮🇹
-🤩 آموزش ثبت نام در 1 دقیقه
-
-💀 https://t.me/+mneyQS4mfqNjNjBk
-</div>
-
-## tasiyanc — post 10127
-
-<div align="center"><video src="files/post_10127_tasiyanc_10127.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10127_tasiyanc_10127.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-▪️ سایت بین المللی و معتبر 1xbet
-
-⚽️
-⚽️
-⚽️
-
-🔠دارای مجوز بین المللی CURACAO
-تسویه حساب کمتر از 2دقیقه
-
-🤑شارژ حساب از طریق یو ووچر و پی اس ووچر ،تمام ارزها
-┅━━━━━━━━━━━
-
-🎁 واریز اول و هر شنبه دو برابر شارژ شوید(بونوس ۱۰۰٪)
-
-💡کد هدیه ثبت نام: S5670
-👽ثبت نام کنید.     
-👇
-
-📲 نصب اپلیکیشن اندرید کلیک کنید
-👉
-
-
-🌐آدرس سایت 
-▫️
-
-
-‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید
-🇨🇦  
-🇮🇳
-🇹🇷
-
-            🚨 امنیت مالی در 1xbet🚨
 </div>
 
