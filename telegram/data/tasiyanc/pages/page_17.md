@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/21 17:26
+📅 آخرین بروزرسانی: 1405/06/21 20:37
 
 ---
+
+## tasiyanc — post 9818
+
+<div align="center"><img src="files/post_9818_tasiyanc_9818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ جای نگرانی نیست، حجابش کامله!
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
++ متاسفانه این حادثه کشته داده
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تسنیم:
+آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9809
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوررری
+
+حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Low Ping Game & download
+IR server
+</div>
 
 ## tasiyanc — post 9803
 
@@ -248,119 +312,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9789
-
-<div align="center"><img src="files/post_9789_tasiyanc_9789.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نذر متفاوت پسر سبزواری برای رسیدن به دختر مورد علاقه اش :|
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9788
-
-<div align="center"><img src="files/post_9788_tasiyanc_9788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9787
-
-<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-
-
-💵12 سایت عالی برای فریلنسری
-(گرفتن پروژه دورکاری ; خونه بشین کار کن)
-
-
-🔗 www.fiverr.com
-
-🔗 www.odesk.com
-
-🔗 www.elance.com
-
-🔗 www.99designs.com
-
-🔗 www.freelancer.com
-
-🔗 www.freelanced.com
-
-🔗 www.ifreelance.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.upwork.com
-
-سایت های معرفی شده معتبر و اثبات شده هستند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
-
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9785
-
-<div align="center"><video src="files/post_9785_tasiyanc_9785.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9785_tasiyanc_9785.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کجا میتونی همچین آماری ببینی؟فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)
-😊
-😂
-
-میگی ن ؟ بیا تو چنلمون و ببین
-🔥
-@HUNTTER_BET @HUNTTER_BET
-@HUNTTER_BET @HUNTTER_BET
-@HUNTTER_BET @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9782
-
-<div align="center"><video src="files/post_9782_tasiyanc_9782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9782_tasiyanc_9782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره عکس نودشو گذاشته والپیپر گوشی بعد گوشیو داده تعمیرکار🐸
-
-+احتمالا میخواسته جور دیگه حساب کنه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9775
-
-<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانستنی‌ها 😐
-پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
-
-یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
-
-🩸@Tasiyanc
 </div>
 

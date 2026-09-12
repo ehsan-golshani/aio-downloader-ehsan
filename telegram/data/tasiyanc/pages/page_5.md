@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/21 17:26
+📅 آخرین بروزرسانی: 1405/06/21 20:37
 
 ---
+
+## tasiyanc — post 10109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sa18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10108
+
+<div align="center"><img src="files/post_10108_tasiyanc_10108.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10107
+
+<div align="center"><video src="files/post_10107_tasiyanc_10107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10107_tasiyanc_10107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست ترامپ در تروث‌سوشال:
+
+این رژیم به‌زودی می‌فهمد که هیچ‌کس نباید قدرت آمریکا را به چالش بکشد.
+ای مردم سربلند ایران، ساعت آزادی شما نزدیک است. وقتی کار ما تمام شد، حکومت خود را به دست بگیرید. این حکومت از آنِ شما خواهد بود.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو
+به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای انفجار سیریک ، میناب
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10103
+
+<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
+بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10101
 
@@ -190,87 +280,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 تمام افرادیم که برای دانشجوهای عراقی مزاحمت ایجاد کردن، بازداشت شدن و انداختیم‌شون زندان.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️ چندین مورد عجیب درباره فیلترشکن JumpJump که قبلاً هم بهش پرداخته بودم متاسفانه ایرانیا اکثرا نصبش دارن فیلترشکن JumpJumpVPN تاکنون بیش از ۵۰ میلیون بار از گوگل‌پلی دانلود شده است. بررسی‌های پس‌کوچه نشان می‌دهد که پشت این ویترین جذاب و آمار دانلود…
-</div>
-
-## tasiyanc — post 10085
-
-<div align="center"><img src="files/post_10085_tasiyanc_10085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همینطوری که چند ماه پیش راجب JumpJump VPN براتون اخطار داده بودیم و یه سری بیسواد حمله کردن به من، الان میبینیم که دیتا بیس کاربران این فیلتر شکن در دارک وب منتشر شده از جمله شماره کارت ها، و برخی اسناد خصوصی« فقط میتونم بگم سریعا پاک کنید» و از کانفیگ های متن باز که با امنیت هستن و تو چنل میزارم استفاده کنید ، هیچ اپلیکشن فیلترشکنی امن نیست به جز چند تا مثل ویندسکرایب و یکی دوتا دیگه.
-
-« اطلاع رسانی کنید »
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10084
-
-<div align="center"><img src="files/post_10084_tasiyanc_10084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 سرور پر سرعت نامحدود OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ‌ها ➡️
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دلار 232 هزار تومن
-🟠 سکه 240 میلیون تومن
-🟠 طلا 24میلیون تومن
-🟠 نفت 100 دلار
-
-وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10082
-
-<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
-
-خراب شه سقفی که زن خونه‌اش امثال توء …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/21 17:26
+📅 آخرین بروزرسانی: 1405/06/21 20:37
 
 ---
+
+## tasiyanc — post 10087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
+
+## tasiyanc — post 10086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️ چندین مورد عجیب درباره فیلترشکن JumpJump که قبلاً هم بهش پرداخته بودم متاسفانه ایرانیا اکثرا نصبش دارن فیلترشکن JumpJumpVPN تاکنون بیش از ۵۰ میلیون بار از گوگل‌پلی دانلود شده است. بررسی‌های پس‌کوچه نشان می‌دهد که پشت این ویترین جذاب و آمار دانلود…
+</div>
+
+## tasiyanc — post 10085
+
+<div align="center"><img src="files/post_10085_tasiyanc_10085.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 همینطوری که چند ماه پیش راجب JumpJump VPN براتون اخطار داده بودیم و یه سری بیسواد حمله کردن به من، الان میبینیم که دیتا بیس کاربران این فیلتر شکن در دارک وب منتشر شده از جمله شماره کارت ها، و برخی اسناد خصوصی« فقط میتونم بگم سریعا پاک کنید» و از کانفیگ های متن باز که با امنیت هستن و تو چنل میزارم استفاده کنید ، هیچ اپلیکشن فیلترشکنی امن نیست به جز چند تا مثل ویندسکرایب و یکی دوتا دیگه.
+
+« اطلاع رسانی کنید »
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10084
+
+<div align="center"><img src="files/post_10084_tasiyanc_10084.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 سرور پر سرعت نامحدود OpenVpn 📶
+
+مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 📸 یوتوب 🎥
+
+دریافت کانفیگ‌ها ➡️
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10083
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 دلار 232 هزار تومن
+🟠 سکه 240 میلیون تومن
+🟠 طلا 24میلیون تومن
+🟠 نفت 100 دلار
+
+وضعیت ممه‌لکت :|
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10082
+
+<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
+
+خراب شه سقفی که زن خونه‌اش امثال توء …
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10080
 
@@ -180,137 +262,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 
 کدوم رنگش خوشگله؟
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران. جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست. فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10049
-
-<div align="center"><video src="files/post_10049_tasiyanc_10049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10049_tasiyanc_10049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران.
-
-جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست.
-
-فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10048
-
-<div align="center"><img src="files/post_10048_tasiyanc_10048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳۰ تا نامزد توپ طلا با حضور مسی معرفی شد که متاسفانه رونالدو تازه ازدواج کرده نامزد نیست 🐸
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10047
-
-<div align="center"><video src="files/post_10047_tasiyanc_10047.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10047_tasiyanc_10047.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌بی‌سی فارسی از لندن میفرمایند بنزین در ایران تقریباً مجانی است!
-تا حالا شده بی بی سی فارسی حقوق کارگران در ایران را هم به دلار حساب کند و نتیجه بگیرد مجانی کار می‌کنند؟؟
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10046
-
-<div align="center"><video src="files/post_10046_tasiyanc_10046.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10046_tasiyanc_10046.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-sg17
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10045
-
-<div align="center"><video src="files/post_10045_tasiyanc_10045.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10045_tasiyanc_10045.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
 💋 @Tasiyanc
 </div>
 
