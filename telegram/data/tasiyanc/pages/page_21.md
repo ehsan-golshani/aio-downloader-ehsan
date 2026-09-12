@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9700
+
+<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9699
 
@@ -309,18 +321,5 @@ til.ac/0L4vyJf
 @Vision_Bet
 @Vision_Bet
 @Vision_Bet
-</div>
-
-## tasiyanc — post 9675
-
-<div align="center"><video src="files/post_9675_tasiyanc_9675.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9675_tasiyanc_9675.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨با اعلام پزشکیان نرخ سوم بنزین ۱۰ هزار تومان شد و به زودی این تغییر قیمت اعمال می‌شود.
-پس از نرخ سوم ۱۰ هزار تومانی نیز نرخ آزاد اعمال خواهد شد که مابین ۴۰ تا ۸۷ هزار تومان خواهد بود
-
-🩸 @Tasiyanc
 </div>
 

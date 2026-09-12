@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9933
 
@@ -282,14 +292,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 سپاه هفته قبل: اگه اسرائیل به تپه‌های علی الطاهر حمله کنه با خشم ما روبرو میشه
 + اسرائیل دیشب اونجا رو فتح کرد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9912
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
 
 💋 @Tasiyanc
 </div>

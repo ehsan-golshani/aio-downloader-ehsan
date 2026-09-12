@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 10169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون بریزه ؛ روستایی در چین که همه فارسی صحبت میکنند و نامش پارسیان هست
+
+
+روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10168
 
@@ -274,11 +285,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 پروکسی | پروکسی  | پروکسی
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
 </div>
 

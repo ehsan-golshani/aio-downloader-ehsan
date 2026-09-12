@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 10051
+
+<div align="center"><img src="files/post_10051_tasiyanc_10051.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 فردا اپل رسما از سری 18 رونمایی میکنه:
+
+کدوم رنگش خوشگله؟
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10050
 
@@ -301,15 +313,5 @@ til.ac/0L4vyJf
 این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

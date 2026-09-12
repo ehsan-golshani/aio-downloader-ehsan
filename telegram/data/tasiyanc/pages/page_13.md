@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9911
 
@@ -292,21 +300,6 @@ https://t.me/+TmGWkUYH_8c0OWZk
 علت خودکشی 90% دخترا چیزی بجز رفتار بد خانواده و کم توجهی از سمت خانواده نیست، یکی نیست بگه بیناموس تویی که نمیتونی عشق و محبت به دخترت بدی درکش کنی و نیازشو برطرف کنی گوه میخوری بچه دار میشی آخه حرومزاده!
 خیلیا رو میبینیم برای دخترشون یه بسته اینترنت یا شارژ نمیخرن یا منت همونم میزارن  چه برسه پول تو جیبی یا هزینه های دیگه.
 خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9619
+
+<div align="center"><video src="files/post_9619_tasiyanc_9619.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9619_tasiyanc_9619.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی اختلال شکن OpenVpn 
+📶
+
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9618
 
@@ -314,17 +346,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨آیفون ۱۷ پرومکس ۲ ترابایت:
 ۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9592
-
-<div align="center"><img src="files/post_9592_tasiyanc_9592.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨عمق فاجعه برا یه کشور : این کاغذ ۱۱۷ میلیون تومان !
 
 
 🩸 @Tasiyanc

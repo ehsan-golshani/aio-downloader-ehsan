@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9889
+
+<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ایران عالیه
+
+یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
++همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9888
 
@@ -273,17 +288,5 @@ sa11
 خدا شاهده عمدی نبود، از تعادل خارج شدم دچار تشنج شدم و جا اینکه ترمز بگیرم، گاز دادم و همه رو زیر گرفتم
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9865
-
-<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
-
-💋@Tasiyanc
 </div>
 

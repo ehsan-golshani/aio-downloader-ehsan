@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/21 20:35
+📅 آخرین بروزرسانی: 1405/06/21 22:46
 
 ---
+
+## ProxyMTProto — post 51012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lux.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.mtproto.baby
+Port: 443
+Secret: dd3322508f2739bc297206f8db6c7df9fa
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51010
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51009
 
@@ -154,33 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: global.lovely.lat
 Port: 443
 Secret: eeaadd88aa9facd454936d0c42dc128e776d2e6265626f6f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 10ping-proxy.best
-Port: 443
-Secret: dd98847be1819bbde82a326ce629ce50a7
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

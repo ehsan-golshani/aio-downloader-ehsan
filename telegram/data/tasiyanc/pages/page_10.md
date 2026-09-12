@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9984
+
+<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۶ کانفیگ پرمیوم سرعتی OpenVpn 
+📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
+
+
+👈 دریافت کانفیگ ها 
+➡️
+
+
+لوکیشن : 
+🇩🇰
+🇪🇸
+🇫🇮
+🇮🇪
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9983
 
@@ -288,11 +315,5 @@ til.ac/0L4vyJf
 یه موبایل میان رده هم شد آرزو!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
 </div>
 

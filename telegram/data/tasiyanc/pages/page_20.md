@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/21 20:37
+📅 آخرین بروزرسانی: 1405/06/21 22:47
 
 ---
+
+## tasiyanc — post 9734
+
+<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 توییت جدید دونالد ترامپ
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9733
 
@@ -271,17 +281,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9700
-
-<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
-
-💋 @Tasiyanc
 </div>
 
