@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/21 22:47
+📅 آخرین بروزرسانی: 1405/06/22 01:08
 
 ---
+
+## tasiyanc — post 9762
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت ترامپ :
+ایران یک کشور شکست‌خورده است. مرده! آنها نه نیروی دریایی دارند، نه نیروی هوایی، نه ارز، نه حقوق سربازان و پلیس خود را پرداخت می‌‌کنند، تورم ۳۰۰ درصد است و رهبری آنها کاملاً آشفته و ناتوان از نمایندگی صحیح کشور است. تنها چیزی که دارند اخبار جعلی از ایالات متحده، تمایل به کشتن معترضانشان (که اکنون بیش از ۱۰۰۰۰۰ نفر کشته شده‌اند. آنها باید به جرم جنایات جنگی علیه بشریت محاکمه شوند!) و یک مشت «چرندیات» است. از توجه شما به این موضوع متشکرم!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9761
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری | ترامپ:
+
+ایالات متحده به حمله‌ای که شب گذشته علیه نیروهای آمریکایی انجام شد، پاسخ خواهد داد.
+
+"ما آنها را با قدرت مورد هدف قرار خواهیم داد."
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖🤖 Gemini - ChatGpt
+</div>
+
+## tasiyanc — post 9757
+
+<div align="center"><video src="files/post_9757_tasiyanc_9757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9757_tasiyanc_9757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴در یک لحظهٔ عادی اما م،رگبار، دانیل ریدِ ۳۲ ساله زنی به نام جسیکا را دید که غرق در گوشی موبایلش، قدم به خیابان می‌گذارد؛ بی‌آنکه متوجه ماشینِ درحال نزدیک شدن باشد. تنها چند ثانیه تا فاجعه وقت باقی بود. دانیل بدون فکر زن را از مرگ نجان داد
++ چند روز بعد جسیکا از دانیل شکایت کرد که او به حریم خصوصی وی تجاوز کرده و نباید نجاتش میداد 😭
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9756
 
@@ -209,39 +248,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلار ۲۱۱ تومن شد 😞
-</div>
-
-## tasiyanc — post 9738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
-
-+با یه باک پر کجا رو داری بری هموطن؟
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تیتر اول رویترز: جنگ آغاز شده است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش غیر رسمی از آغاز حملات موشکی سپاه همین الان
-
-🩸 @Tasiyanc
 </div>
 

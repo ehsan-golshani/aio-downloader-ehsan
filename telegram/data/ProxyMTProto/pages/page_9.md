@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/21 22:46
+📅 آخرین بروزرسانی: 1405/06/22 01:06
 
 ---
+
+## ProxyMTProto — post 50935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 88.198.197.199
+Port: 4466
+Secret: dd114562821249bd7ac519130220c25d08
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad1.arixo.shop
+Port: 443
+Secret: eee09f46368021f91b92ad3dea14c7ac896164312e617269786f2e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50932
 
@@ -154,33 +181,6 @@ Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
 Server: Unknown
 Port: 80
 Secret: 3RbZ3hNtxAbJ6L5BQipx2_s=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ykima.davay.click
-Port: 443
-Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50913
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media14.happtg.org
-Port: 443
-Secret: ee4f9067589367c2ef531642d501664f43686f66662e7275
 @ProxyMTProto
 </div>
 

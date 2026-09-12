@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/21 22:47
+📅 آخرین بروزرسانی: 1405/06/22 01:08
 
 ---
+
+## tasiyanc — post 9823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی: هر چه سریعتر اینترنت رو قطع کنید
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9821
+
+<div align="center"><video src="files/post_9821_tasiyanc_9821.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9821_tasiyanc_9821.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+پدافند شرق تهران فعال شده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محاصره بی تاثیره ؟
+
+تانکر ترکرز: صادرات نفت خام جمهوری اسلامی در ماه آگوست (۳۰ روز گذشته) به صفر رسید
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9819
 
@@ -238,57 +281,5 @@ sg10
 نظر شما چیه طبیعیه یا غیرطبیعی؟
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9794
-
-<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
-
-+ هانا فقط 16 سال سن داشت :)
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9792
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفسور همتی بدون اینکه خندش بگیره :
-
-دشمنان هر هفته تحریم جدیدی علیه ایران اعمال می‌کنند، اما سیستم اقتصادی کشور همچنان به کار خود ادامه می‌دهد.
-آمادگی داریم تا ۲ میلیارد دلار ارز در بازار عرضه کنیم.
-گرد و خاک ایجادشده در بازار ارز فروخواهد نشست و افزایش اخیر نرخ ارز نیز بیش از آنکه ناشی از عوامل واقعی باشد، تحت تأثیر فضای روانی است.
-+قیمت هر دلار امروز ۱۰ شهریور از ۲۱۱ هم عبور کرد ولی شما ها از اراجیفتون خسته نشدید
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
