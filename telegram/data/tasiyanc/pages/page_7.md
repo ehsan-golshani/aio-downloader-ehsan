@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/21 14:13
+📅 آخرین بروزرسانی: 1405/06/21 17:26
 
 ---
+
+## tasiyanc — post 10043
+
+<div align="center"><img src="files/post_10043_tasiyanc_10043.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شرط‌های پدر عروس () واسه داماد گذاشته :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10042
+
+<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10041
+
+<div align="center"><video src="files/post_10041_tasiyanc_10041.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10041_tasiyanc_10041.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بانو نیکول کیدمن ستاره هالیوود « کراش دهه شصت و هفتادیا» گفته جدایی بعد از بیست سال زندگی و در محدوده سنی شصت سال خیلی راحت نیست!:)
++ زیبایی بانو ›››››
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10040
+
+<div align="center"><video src="files/post_10040_tasiyanc_10040.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10040_tasiyanc_10040.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعد میگن چرا پسرا دیگه حال ازدواج ندارن
+فک کن این همه هزینه کنی که این جیندرلا برا یکی دیگه دابسمش بگیره💆🏻
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10039
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز ۱۷ شهریور تولد 57 سالگی سیدمجتبی خامنه‌ای سومین رهبر جمهوری اسلامی است
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10038
+
+<div align="center"><video src="files/post_10038_tasiyanc_10038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10038_tasiyanc_10038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صبح امروز جسد مهین اعتصام، ۳۳ ساله اهل هشتگرد البرز بعد از ۱۶ روز بی خبری و تلاش خانوادش پیدا شد
+
+مهین کلی تلاش کرد به جای پرایدش ماشین جدید بخره
+یکی از دوستای نزدیک خانوادگیشون گفت پراید و طلاها و پولایی که داریو بیار واست ماشین خوب بخرم
+ولی بین راه مهینو با روسری خودش خفه میکنه و به قتل میرسونه و جسدشو تو بیابونای نظراباد رها میکنه.
++ قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
+پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10037
 
@@ -219,93 +298,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۶ کانفیگ پرمیوم سرعتی OpenVpn 📶 مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب 👈 دریافت کانفیگ ها ➡️ لوکیشن : 🇩🇰🇪🇸🇫🇮🇮🇪 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10021
-
-<div align="center"><video src="files/post_10021_tasiyanc_10021.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10021_tasiyanc_10021.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨آیدا حیدری نامزد جاویدنام ابوالفضل سلیمانی پس از تحمل درد و غم از دست دادن نامزدش ، صبح امروز به زندگی خودش پایان داد
-اعضای خانواده های جاویدنام ها کم کم داره تحمل این داغ براشون سخت میشه و دست به خودکشی میزنن توی ۲۴ ساعت اخیر دو خودکشی!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران واقعاً جای عجیبیه، یه مرد ۴۲ ساله یه دختر ۱۴ ساله رو به عنوان زن سوم صیغه کرده و دختره رو حامله کرده و افتاده زندان، اونوقت دختره الان داره سزارین میکنه 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10019
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg16
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10018
-
-<div align="center"><img src="files/post_10018_tasiyanc_10018.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10017
-
-<div align="center"><video src="files/post_10017_tasiyanc_10017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10017_tasiyanc_10017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ادب کردن عراقی‌ها که در سمنان به یه دختر ایرانی قصد تعرض داشتند
-
-توی سمنان چند نفر عراقی برای یک بانوی ایرانی ایجاد مزاحمت کرده بودن اینطوری ادب شدن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10015
-
-<div align="center"><video src="files/post_10015_tasiyanc_10015.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10015_tasiyanc_10015.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
-
-
-💋 @Tasiyanc
 </div>
 

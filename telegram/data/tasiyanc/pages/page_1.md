@@ -1,8 +1,104 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/21 14:13
+📅 آخرین بروزرسانی: 1405/06/21 17:26
 
 ---
+
+## tasiyanc — post 10220
+
+<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویت شده در تجمعات شبانه 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10218
+
+<div align="center"><img src="files/post_10218_tasiyanc_10218.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رزی عضور گروه بلک پینک بعد از معرفی سری ۱۸ اپل پستی با ایفون ۱۸ پرومکس چری در اینستاگرام منتشر کرد که به نظر میاد فتوشاپ شده باشه و حالا کامنت های زیر این پست مورد توجه رسانه قرار گرفته.
+کامنت اکانت سامسونگ :اگه یه گوشی واقعی می‌خواستی می‌تونستی بهمون بگی.
+کامنت اکانت پیکس ارت :دفعه بعد از پیکس‌ارت استفاده کن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10217
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم خود مدیر همراه اول و کارکناش از اینترنت اپراتورای دیگه استفاده میکنن ،مگه میشه داده اپراتور به این بزرگی انقد کیری ضعیف باشه یا همیشه اختلال داشته باشه ، هزینه بسته‌ میگیرن چند صد هزارتومان اینم خدماتی که به مردم میدن از روز وصلی اینترنت این اپراتور فقط ۲ بامداد تا ۹ صبح خوبه که همه خوابن نمیبینن
+</div>
+
+## tasiyanc — post 10214
+
+<div align="center"><video src="files/post_10214_tasiyanc_10214.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10214_tasiyanc_10214.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_10214_@Tasiyanc ³¹ 🇺🇸.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ³¹ 🇺🇸.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10213
+
+<div align="center"><img src="files/post_10213_tasiyanc_10213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت وایرال‌شده مادر فرزند دهه ۶۰
+
+Prompt 🤖🤖
+
+Create an ultra-realistic vintage photograph of an Iranian mother holding her young child, set in Iran during the 1360s Persian calendar (1980s). The mother and child are standing outdoors on a nostalgic Iranian city street during golden hour, with an authentic old Iranian car parked in the background and softly blurred urban scenery.
+
+The mother has naturally curly dark hair, large vintage sunglasses and classic hoop earrings. She is wearing an authentic colorful 1980s Nike-style retro windbreaker with teal green, purple, pink and white color-block patterns. The child is wearing a matching retro colorful tracksuit jacket, creating a beautiful coordinated mother-and-child look.
+
+The mother is holding the child naturally and affectionately, both facing the camera with calm, natural expressions. Warm sunset light creates a soft golden glow around them. Authentic 1980s Persian/Iranian atmosphere, nostalgic family photography, old analog camera aesthetic, subtle film grain, light dust, tiny scratches, faded vintage colors, slightly soft focus, realistic skin texture, natural facial proportions, candid documentary feeling.
+
+Composition: medium portrait, vertical 4:5 framing, mother positioned slightly to the left while holding the child on the right, eye-level camera angle, shallow depth of field, cinematic warm lighting, realistic background bokeh.
+
+Extremely photorealistic, authentic 1980s family photo, analog film photography, Kodak-style vintage tones, highly detailed, natural imperfections, no modern objects, no smartphones, no contemporary cars, no text, no watermark.
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10212
+
+<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
+که تک‌تیرانداز به هیچ کدومشون رحم نکرد
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10210
 
@@ -78,8 +174,6 @@
 
 ## tasiyanc — post 10195
 
-<div align="center"><a href="files/post_10195_@Tasiyanc ²⁶ 🇮🇪.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc ²⁶ 🇮🇪.ovpn</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  فول سرعتی OpenVpn 📶
 
@@ -120,8 +214,6 @@
 
 ## tasiyanc — post 10191
 
-<div align="center"><a href="files/post_10191_GoFlyVPN-Android.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 GoFlyVPN-Android.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
 
@@ -156,8 +248,6 @@
 
 <div align="center"><a href="files/post_10189_tasiyanc_10189.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_10189_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥 جدیدترین آپدیت اپلیکیشن Wepari 📱
 
@@ -174,138 +264,5 @@
 
 🔥 کانال تلگرام وی پاری:
 ✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10188
-
-<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-🍏 آموزش برای کاربران iOS
-
-🌐 لینک ورود به سایت👇
-
-🔥 til.ac/PJHVQSm
-🔥 til.ac/PJHVQSm
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
-</div>
-
-## tasiyanc — post 10184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10180
-
-<div align="center"><img src="files/post_10180_tasiyanc_10180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10179
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-
-🟠با این سایت میتونید روزانه ۱۵ ویدیو رایگان تولید محتوا و تبلیغاتی با هوش مصنوعی بسازید
-
-برای تست کردنش کافیه وارد سایت زیر بشید
-https://fal.ai/models/minimax/h3-max/text-to-video
-
-🤖 یه گزینه خوب برای ساخت کلیپ‌های کوتاه، تست ایده‌ها ، تولید محتوای تبلیغاتی و ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همسر غلامعلی حدادعادل تعداد کشته شدگان حمله ۹ اسفند در بیت رهبری را اعلام کرد: ۷۶ نفر
-
-همسر حدادعادل:
-هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
-
-💋 @Tasiyanc
 </div>
 

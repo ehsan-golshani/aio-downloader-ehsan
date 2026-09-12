@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/21 14:13
+📅 آخرین بروزرسانی: 1405/06/21 17:26
 
 ---
+
+## tasiyanc — post 9976
+
+<div align="center"><img src="files/post_9976_tasiyanc_9976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#پرونده_قتل
+
+
+🔴پدرو آلونسو لوپز هیولای آند بی رحم ترین قاتل اکوادور ، کلمبیا ؛ مردی که ۳۰۰ قربانی را به نام خود زد.
+سال‌ها، در مناطق دورافتاده‌ی کلمبیا، اکوادور و پرو، دختران یکی‌یکی ناپدید می‌شدند؛ بدون اینکه کسی بداند چه اتفاقی برایشان افتاده است.
+در سال ۱۹۸۰، پدرو آلونسو لوپز در شهر آمباتوِ اکوادور هنگام تلاش برای ربودن یک دختر دستگیر شد. بعد از بازجویی، اعتراف کرد که صدها دختر را کشته است و پلیس را به محل دفن قربانیان برد؛ جایی که ده‌ها جسد کشف شد.
+
+اما شاید تکان‌دهنده‌ترین بخش پرونده، پایان آن بود:
+او به ۱۶ سال زندان محکوم شد؛ حداکثر مجازاتی که قانون آن زمان اکوادور اجازه می‌داد. تنها ۱۴ سال بعد، به دلیل «رفتار خوب» آزاد شد.
+و بعد از آزادی؟
+ناپدید شد.
+تا امروز، سرنوشت دقیق او همچنان در هاله‌ای از ابهام است
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9974
+
+<div align="center"><video src="files/post_9974_tasiyanc_9974.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9974_tasiyanc_9974.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سد مهدی دهمردی بریم تو کارت یا ن 😐
+</div>
+
+## tasiyanc — post 9972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9971
+
+<div align="center"><video src="files/post_9971_tasiyanc_9971.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9971_tasiyanc_9971.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9970
 
@@ -171,95 +286,5 @@
 sg14
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9950
-
-<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز به آینده امید داری این پیام رو لایک کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9948
-
-<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9947
-
-<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  
-📶
-
-لوکیشن 
-🇲🇦 Morocco
-
-مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
-
-
-⬅️ دریافت کانفیگ ها 
-🟠
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9946
-
-<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
 </div>
 
