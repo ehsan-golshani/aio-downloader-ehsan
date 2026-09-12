@@ -1,8 +1,225 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/21 02:56
+📅 آخرین بروزرسانی: 1405/06/21 14:13
 
 ---
+
+## tasiyanc — post 10117
+
+<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
+فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10114
+
+<div align="center"><img src="files/post_10114_tasiyanc_10114.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاااااب لیگ قهرمانان اروپا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🆕
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 240.000 هزار تومان
+طلا 24.600.000 هزار تومان
+ریدین تو مملکت و آینده ما مبارکتون باشه
+
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10112
+
+<div align="center"><img src="files/post_10112_tasiyanc_10112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 10 September، روز جهانی آرایش کردنه💄
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10110
+
+<div align="center"><video src="files/post_10110_tasiyanc_10110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10110_tasiyanc_10110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فیلم وایرال شده عروسی اسرائیلی‌ها با آهنگ ایرانی در کمتر از یک روز ۵ میلیون ویو خورد !
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sa18
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10108
+
+<div align="center"><img src="files/post_10108_tasiyanc_10108.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10107
+
+<div align="center"><video src="files/post_10107_tasiyanc_10107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10107_tasiyanc_10107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست ترامپ در تروث‌سوشال:
+
+این رژیم به‌زودی می‌فهمد که هیچ‌کس نباید قدرت آمریکا را به چالش بکشد.
+ای مردم سربلند ایران، ساعت آزادی شما نزدیک است. وقتی کار ما تمام شد، حکومت خود را به دست بگیرید. این حکومت از آنِ شما خواهد بود.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو
+به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای انفجار سیریک ، میناب
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10103
+
+<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
+بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10101
+
+<div align="center"><video src="files/post_10101_tasiyanc_10101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10101_tasiyanc_10101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیوهای وایرال‌شده از بانو تیلور سوئیفت ( کراش خیلیا ) در کنسرت جدیدش
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10100
 
@@ -57,228 +274,5 @@
 🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10094
-
-<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
-
-ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
-تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10092
-
-<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
-
-تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
-بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
-دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
-مهریه کم میگیریم، ذلت نمی پذیریم.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شروط جمهوری اسلامی برای پایان جنگ توسط سخنگوی سپاه اعلام شد:
-
-۱-ضمن توقف کامل جنگ،
-۲- از تهدید مجدد دست بکشد،
-۳- ارتش اسرائیل از لبنان عقب‌نشینی کند،
-۴- محاصرهٔ یمن پایان یابد،
-۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
-۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-sg18
-ادرس عضویت کانال:👇
-▪️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10089
-
-<div align="center"><img src="files/post_10089_tasiyanc_10089.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:
-✉️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10088
-
-<div align="center"><video src="files/post_10088_tasiyanc_10088.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10088_tasiyanc_10088.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌غیرت مثل رییس دانشگاه سمنان!
-
-رئیس دانشگاه سمنان: از همه دانشجوهای عراقی معذرت میخوام، قول میدیم براشون جبران کنیم!
-
-دانشجوهای عراقی فرزندان ما هستن و نمیذاریم کوچیک‌ترین آسیبی بهشون برسه.
-اگه خدایی نکرده یوقت اذیت شدن معذرت میخوایم و بهترشو براشون جبران میکنم.
-تمام افرادیم که برای دانشجوهای عراقی مزاحمت ایجاد کردن، بازداشت شدن و انداختیم‌شون زندان.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10086
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️ چندین مورد عجیب درباره فیلترشکن JumpJump که قبلاً هم بهش پرداخته بودم متاسفانه ایرانیا اکثرا نصبش دارن فیلترشکن JumpJumpVPN تاکنون بیش از ۵۰ میلیون بار از گوگل‌پلی دانلود شده است. بررسی‌های پس‌کوچه نشان می‌دهد که پشت این ویترین جذاب و آمار دانلود…
-</div>
-
-## tasiyanc — post 10085
-
-<div align="center"><img src="files/post_10085_tasiyanc_10085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همینطوری که چند ماه پیش راجب JumpJump VPN براتون اخطار داده بودیم و یه سری بیسواد حمله کردن به من، الان میبینیم که دیتا بیس کاربران این فیلتر شکن در دارک وب منتشر شده از جمله شماره کارت ها، و برخی اسناد خصوصی« فقط میتونم بگم سریعا پاک کنید» و از کانفیگ های متن باز که با امنیت هستن و تو چنل میزارم استفاده کنید ، هیچ اپلیکشن فیلترشکنی امن نیست به جز چند تا مثل ویندسکرایب و یکی دوتا دیگه.
-
-« اطلاع رسانی کنید »
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10084
-
-<div align="center"><img src="files/post_10084_tasiyanc_10084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 سرور پر سرعت نامحدود OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ‌ها ➡️
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دلار 232 هزار تومن
-🟠 سکه 240 میلیون تومن
-🟠 طلا 24میلیون تومن
-🟠 نفت 100 دلار
-
-وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10082
-
-<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
-
-خراب شه سقفی که زن خونه‌اش امثال توء …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
 </div>
 
