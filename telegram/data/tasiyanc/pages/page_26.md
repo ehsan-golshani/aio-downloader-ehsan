@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/22 22:37
+📅 آخرین بروزرسانی: 1405/06/23 03:09
 
 ---
+
+## tasiyanc — post 9594
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9593
+
+<div align="center"><img src="files/post_9593_tasiyanc_9593.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨آیفون ۱۷ پرومکس ۲ ترابایت:
+۱.۰۰۰.۰۰۰.۰۰۰ تومان ناقابل!
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9592
+
+<div align="center"><img src="files/post_9592_tasiyanc_9592.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨عمق فاجعه برا یه کشور : این کاغذ ۱۱۷ میلیون تومان !
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9591
 
@@ -273,42 +316,5 @@ sa2
 جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت🔐
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-آموزش اتصال ⛓
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9563
-
-<div align="center"><video src="files/post_9563_tasiyanc_9563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9563_tasiyanc_9563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه دنبال فیلم سینمایی عاشقانه اید می‌تونه پیشنهاد خوبی باشه 👍
-
-🎥 فیلم The Idea of You (2024)
-
-+ مشاهده بدون سانسور 👉
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/22 22:37
+📅 آخرین بروزرسانی: 1405/06/23 03:09
 
 ---
+
+## tasiyanc — post 10145
+
+<div align="center"><img src="files/post_10145_tasiyanc_10145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑
+
+
+اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰
+
+Prompt 🤖🤖
+
+Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress me as an elegant Iranian aristocratic woman in a luxurious vintage evening gown with refined jewelry. Place me inside a grand Tehran palace with Persian carpets, crystal chandeliers and warm golden lighting. Sophisticated, feminine, wealthy, cinematic 35mm film photography, realistic vintage aesthetic. No modern objects .
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10144
+
+<div align="center"><img src="files/post_10144_tasiyanc_10144.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠جدیدا خیلی از کافه‌ها شبا در کافه رو به روی مشتریای عادی میبندن و کافه ها تبدیل به کلاب میشن و پارتی برگزار میشه. فقط هم با بلیط میشه وارد شد. بلیط ورود برای پسرا ۱ میلیون و ۲۰۰ هزار تومنه؛ درحالی که برای دخترا فقط ۳۰۰هزار تومنه.
+
+پروکسی | پروکسی  | پروکسی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
+</div>
 
 ## tasiyanc — post 10142
 
@@ -309,42 +346,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌🌐 Link 🔜 MelBet1.net
 🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 240.000 هزار تومان
-طلا 24.600.000 هزار تومان
-ریدین تو مملکت و آینده ما مبارکتون باشه
-
-پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10112
-
-<div align="center"><img src="files/post_10112_tasiyanc_10112.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 10 September، روز جهانی آرایش کردنه💄
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10110
-
-<div align="center"><video src="files/post_10110_tasiyanc_10110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10110_tasiyanc_10110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فیلم وایرال شده عروسی اسرائیلی‌ها با آهنگ ایرانی در کمتر از یک روز ۵ میلیون ویو خورد !
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/22 22:37
+📅 آخرین بروزرسانی: 1405/06/23 03:09
 
 ---
+
+## tasiyanc — post 9758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖🤖 Gemini - ChatGpt
+</div>
+
+## tasiyanc — post 9757
+
+<div align="center"><video src="files/post_9757_tasiyanc_9757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9757_tasiyanc_9757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴در یک لحظهٔ عادی اما م،رگبار، دانیل ریدِ ۳۲ ساله زنی به نام جسیکا را دید که غرق در گوشی موبایلش، قدم به خیابان می‌گذارد؛ بی‌آنکه متوجه ماشینِ درحال نزدیک شدن باشد. تنها چند ثانیه تا فاجعه وقت باقی بود. دانیل بدون فکر زن را از مرگ نجان داد
++ چند روز بعد جسیکا از دانیل شکایت کرد که او به حریم خصوصی وی تجاوز کرده و نباید نجاتش میداد 😭
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9756
+
+<div align="center"><video src="files/post_9756_tasiyanc_9756.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9756_tasiyanc_9756.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هِلِن زن ۹۱ ساله به جرم تلاش برای دزدیدن دارو برای شوهر بیمار ۸۸ ساله اش دستگیر شد !
+
++ هلن با اینکه خودش بیمار بود و لباس بیمارستان به تن داشت در دفاعیه از خود فقط گفت چاره دیگری نداشتم اون حالش بد بود و کار دیگری نمیتوانستم بکنم ، قاضی پرونده را مختومه و این عمل را مجرمانه نخواند
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9755
 
@@ -211,32 +244,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 تیتر اول رویترز: جنگ آغاز شده است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش غیر رسمی از آغاز حملات موشکی سپاه همین الان
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9734
-
-<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 توییت جدید دونالد ترامپ
 
 🩸 @Tasiyanc
 </div>

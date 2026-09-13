@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/22 22:37
+📅 آخرین بروزرسانی: 1405/06/23 03:09
 
 ---
+
+## tasiyanc — post 10171
+
+<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
+
+یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10170
+
+<div align="center"><img src="files/post_10170_tasiyanc_10170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت پرتره ادیتوریال سینمایی و سیاه-سفید
+
+Prompt 🤖🤖
+
+« Man 😊 »
+
+A cinematic black-and-white editorial portrait of a young man sitting indoors against a textured wall, wearing an oversized dark wool coat and dark tailored trousers. He has short dark hair styled with natural texture and soft strands framing his face. He is sitting in a relaxed, confident pose with one knee raised, his right hand gently resting near his lips and chin, showing subtle hands structure. Calm, resolute, slightly melancholic facial expression, strong jawline, defined eyebrows, sharp facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and his face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
+
+« Woman 😊 »
+
+A cinematic black-and-white editorial portrait of a young woman sitting indoors against a textured wall, wearing an oversized dark wool coat and dark pants. She has long dark hair styled in a loose, slightly messy low bun with soft strands framing her face. She is sitting in a relaxed, elegant pose with one knee raised, her right hand gently resting near her lips and chin. Calm, confident, slightly melancholic facial expression, defined eyebrows, soft full lips, subtle natural makeup, delicate facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and her face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
+
+آموزش استفاده از پرامپت و ساخت تصویر➡️
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون بریزه ؛ روستایی در چین که همه فارسی صحبت میکنند و نامش پارسیان هست
+
+
+روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10168
 
@@ -243,42 +289,5 @@ Final result: A believable rediscovered real color photograph from Tehran around
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑 اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰ Prompt 🤖🤖 Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress…
-</div>
-
-## tasiyanc — post 10145
-
-<div align="center"><img src="files/post_10145_tasiyanc_10145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑
-
-
-اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰
-
-Prompt 🤖🤖
-
-Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress me as an elegant Iranian aristocratic woman in a luxurious vintage evening gown with refined jewelry. Place me inside a grand Tehran palace with Persian carpets, crystal chandeliers and warm golden lighting. Sophisticated, feminine, wealthy, cinematic 35mm film photography, realistic vintage aesthetic. No modern objects .
-
-آموزش استفاده ➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10144
-
-<div align="center"><img src="files/post_10144_tasiyanc_10144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠جدیدا خیلی از کافه‌ها شبا در کافه رو به روی مشتریای عادی میبندن و کافه ها تبدیل به کلاب میشن و پارتی برگزار میشه. فقط هم با بلیط میشه وارد شد. بلیط ورود برای پسرا ۱ میلیون و ۲۰۰ هزار تومنه؛ درحالی که برای دخترا فقط ۳۰۰هزار تومنه.
-
-پروکسی | پروکسی  | پروکسی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
 </div>
 
