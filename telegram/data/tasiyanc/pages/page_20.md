@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/22 15:44
+📅 آخرین بروزرسانی: 1405/06/22 20:04
 
 ---
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی
+
+🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
+
++ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9751
+
+<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9750
 
@@ -187,37 +231,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 فوری پرواز های مهرآباد لغو شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقام آمریکایی:
-
-نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
 
 🩸 @Tasiyanc
 </div>

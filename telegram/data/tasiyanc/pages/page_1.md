@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/22 15:44
+📅 آخرین بروزرسانی: 1405/06/22 20:04
 
 ---
+
+## tasiyanc — post 10257
+
+<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 خبرگزاری فارس :
+احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
+
+## tasiyanc — post 10255
+
+<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال
+
+📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
+
+🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
+
+👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
+
+## tasiyanc — post 10250
+
+<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_10250_🇪🇸 Fast.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇪🇸 Fast.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون 
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10249
 
@@ -99,8 +166,6 @@
 
 <div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
-<div align="center"><a href="files/post_10241_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥 جدیدترین آپدیت اپلیکیشن Wepari 
 📱
@@ -185,8 +250,6 @@
 <div align="center"><video src="files/post_10239_tasiyanc_10239.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_10239_tasiyanc_10239.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_10239_🇩🇪.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 🇩🇪.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  فول سرعتی OpenVpn 
@@ -298,51 +361,5 @@
 موندم کیلیان امباپه چجوری میخواد فیلم دوست دخترشو نگاه کنه « مشاهده فیلم 🔞»
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10229
-
-<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10227
-
-<div align="center"><video src="files/post_10227_tasiyanc_10227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10227_tasiyanc_10227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو کیش یه کنسرت ده هزار نفری برگزار شد که دخترا و پسرای ایران‌زمین کنار هم رقصیدن بدون اینکه کسی تحریک شه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10226
-
-<div align="center"><img src="files/post_10226_tasiyanc_10226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
-
-شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Mix_Safe @miix_viip
-هر هفته قرعه کشی داریم 😏👆👆
-
-فرم های شرطبندی با آنالیز های حرفه ای📊
-#VIP #رایگان 🛡️
 </div>
 

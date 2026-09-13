@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/22 15:44
+📅 آخرین بروزرسانی: 1405/06/22 20:04
 
 ---
+
+## tasiyanc — post 10229
+
+<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10227
+
+<div align="center"><video src="files/post_10227_tasiyanc_10227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10227_tasiyanc_10227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیشب تو کیش یه کنسرت ده هزار نفری برگزار شد که دخترا و پسرای ایران‌زمین کنار هم رقصیدن بدون اینکه کسی تحریک شه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10226
+
+<div align="center"><img src="files/post_10226_tasiyanc_10226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
+
+شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Mix_Safe @miix_viip
+هر هفته قرعه کشی داریم 😏👆👆
+
+فرم های شرطبندی با آنالیز های حرفه ای📊
+#VIP #رایگان 🛡️
+</div>
 
 ## tasiyanc — post 10224
 
@@ -183,54 +229,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 🔴 دعوایی ترین استان های ایران:
 
 + نکته جالب ۳ استان اولی ترکا هستن آخری‌ام بلوچا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10194
-
-<div align="center"><video src="files/post_10194_tasiyanc_10194.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10194_tasiyanc_10194.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مردشور این طرز سوپرایز کردنتو ببرن بچه مردم مرد زنده شد تو همین چند دقیقه کاش یکم از عقلتون استفاده کنین
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10193
-
-<div align="center"><video src="files/post_10193_tasiyanc_10193.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10193_tasiyanc_10193.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
 
 💋 @Tasiyanc
 </div>
