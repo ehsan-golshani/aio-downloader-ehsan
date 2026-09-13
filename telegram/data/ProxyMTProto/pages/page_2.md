@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/22 01:06
+📅 آخرین بروزرسانی: 1405/06/22 09:54
 
 ---
+
+## ProxyMTProto — post 51078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kostyanchekloh.lol
+Port: 443
+Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: megaconnect.click
+Port: 443
+Secret: ee283d3bf19b80aa8a9ca06a2244c01c8a617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51075
 
@@ -154,33 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 Server: 1b2aca9d-6852-45a7-bd7b-771a70fde2b7.fast-cdn.cc
 Port: 443
 Secret: ee5a9252c2c44ec88a5ad64b048d4585f7666173742d63646e2e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51058
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bonus.growthtrade.eu
-Port: 443
-Secret: 7g__EarnMoneyWithUs__gJ5YS5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 
