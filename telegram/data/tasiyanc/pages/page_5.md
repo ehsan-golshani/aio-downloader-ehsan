@@ -1,8 +1,234 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/22 01:08
+📅 آخرین بروزرسانی: 1405/06/22 15:44
 
 ---
+
+## tasiyanc — post 10137
+
+<div align="center"><img src="files/post_10137_tasiyanc_10137.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧩 ‏ تعدادی DNS پیشنهادی برای گیم‌های مختلف آنلاین مخصوص کاهش پینگ و لگ که هیچ جا نمیتونید پیدا کنید
+
+🔴 اگر در اجرای بازی‌ها مشکل پینگ و اتصال دارید میتوانید با این DNS ها بازی خودتون بهبود ببخشید
+
+📎 برای لیست DNS ها کلیک کنید
+
+نکته : در PS4 و PS5 بخش تنظیمات شبکه
+در PC بخش DNS
+
+دانلود Dns Changer 🕹
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10136
+
+<div align="center"><img src="files/post_10136_tasiyanc_10136.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه مرده تو تهران زنشو ۴ قلو حامله کرده و حالا ۶ تا بچه داره برگشته گفته با اینکه تو یه خونه چهل متری زندگی می‌کنیم اما شادترین پدر دنیا هستم
+
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10131
+
+<div align="center"><img src="files/post_10131_tasiyanc_10131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عجیب‌ترین مسابقه مُد و فشن (ISIS FASHION AWARDS AMSTERDAM 2026) تو هلند🇳🇱 برگزار شد؛
+
+قانون اصلی این فشن‌شو اینه که فقط و فقط اکسسوری‌ها باید دیده بشن، یعنی چیزایی مثل کیف، کفش، عینک، جواهرات، کلاه و کمربند.
+
+مدل‌ها نباید هیچ لباسی بپوشن و فقط همون اکسسوری‌های طراح رو روی بدنشون دارن تا تمرکز کامل روی طراحی‌ها باشه.
+
+‌
+مشاهده ویدیو مسابقات بدون سانسور 🖤
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10129
+
+<div align="center"><video src="files/post_10129_tasiyanc_10129.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10129_tasiyanc_10129.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استایل وایرال شده ریما رامین‌فر و لاله مرزبان در جشنواره فرش قرمز ونیز ایتالیا‌
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10128
+
+<div align="center"><video src="files/post_10128_tasiyanc_10128.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10128_tasiyanc_10128.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 اپلیشیکن بدون فیلتر1xbet 
+3️⃣
+2️⃣
+1️⃣
+
+🤝 اسپانسر لالیگا🇪🇸
+
+🤝 اسپانسر سری آ
+🇮🇹
+
+🤝اسپانسر باشگاه یوونتوس🇮🇹
+🤩 آموزش ثبت نام در 1 دقیقه
+
+💀 https://t.me/+mneyQS4mfqNjNjBk
+</div>
+
+## tasiyanc — post 10127
+
+<div align="center"><video src="files/post_10127_tasiyanc_10127.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10127_tasiyanc_10127.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+▪️ سایت بین المللی و معتبر 1xbet
+
+⚽️
+⚽️
+⚽️
+
+🔠دارای مجوز بین المللی CURACAO
+تسویه حساب کمتر از 2دقیقه
+
+🤑شارژ حساب از طریق یو ووچر و پی اس ووچر ،تمام ارزها
+┅━━━━━━━━━━━
+
+🎁 واریز اول و هر شنبه دو برابر شارژ شوید(بونوس ۱۰۰٪)
+
+💡کد هدیه ثبت نام: S5670
+👽ثبت نام کنید.     
+👇
+
+📲 نصب اپلیکیشن اندرید کلیک کنید
+👉
+
+
+🌐آدرس سایت 
+▫️
+
+
+‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید
+🇨🇦  
+🇮🇳
+🇹🇷
+
+            🚨 امنیت مالی در 1xbet🚨
+</div>
+
+## tasiyanc — post 10120
+
+<div align="center"><video src="files/post_10120_tasiyanc_10120.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10120_tasiyanc_10120.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+درصورت ارور چند بار بزنید 
+⭕️
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10118
+
+<div align="center"><video src="files/post_10118_tasiyanc_10118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10118_tasiyanc_10118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده دهه 50 
+👑
+
+Name: Tehran 1350
+
+Prompt 
+🤖
+🤖
+
+Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and recognizable appearance. Set the scene in Tehran, Iran during the 1350s (1970s). She is standing on a Tehran street near Azadi Square, facing the camera in a sophisticated three-quarter pose while her face remains clearly visible. She is dressed as a fashionable Iranian woman from the 1350s
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10117
+
+<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
+فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10115
 
@@ -142,122 +368,5 @@ sa18
 🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای انفجار سیریک ، میناب
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10103
-
-<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
-بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10101
-
-<div align="center"><video src="files/post_10101_tasiyanc_10101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10101_tasiyanc_10101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیوهای وایرال‌شده از بانو تیلور سوئیفت ( کراش خیلیا ) در کنسرت جدیدش
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10100
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺ترامپ: ایرانی‌ها تمام تلاششان را می‌کنند تا روی نتیجه انتخابات ما اثر بگذارند، به این امید که یک گروه ضعیف روی کار بیاید تا کاری به کار آن‌ها نداشته باشد و بگذارد به سلاح هسته‌ای برسند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10098
-
-<div align="center"><video src="files/post_10098_tasiyanc_10098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10098_tasiyanc_10098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پارت جدید؛ برنامه عشق ابدی آمریکاییا چخبره 😐😐
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🔩 ترامپ:
-
-مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 🔩 فوری٬ ترامپ :
-
-حملات بیشتری علیه ایران انجام خواهیم داد. جنگ ایران بلافاصله پس از انتخابات میان‌دوره‌ای پایان خواهد یافت!
-
-پی‌نوشت : انتخابات میان‌دوره‌ای ۱۲ آبان هست
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10095
-
-<div align="center"><video src="files/post_10095_tasiyanc_10095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10095_tasiyanc_10095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10094
-
-<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
-
-ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
-تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
-
-🩸 @Tasiyanc
 </div>
 

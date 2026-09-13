@@ -1,8 +1,165 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/22 01:08
+📅 آخرین بروزرسانی: 1405/06/22 15:44
 
 ---
+
+## tasiyanc — post 10082
+
+<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
+
+خراب شه سقفی که زن خونه‌اش امثال توء …
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
+
+💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
+فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
+
+🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
+🌐 www.MelBet1.com
+
+🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
+
+نکته: فقط این هفته فعاله، پس از دستش نده 🙂
+
+🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 10079
+
+<div align="center"><video src="files/post_10079_tasiyanc_10079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10079_tasiyanc_10079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸فیلم خارق‌العاده کمتر دیده شده از پرواز موشک‌ که میره از جو خارج میشه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10078
+
+<div align="center"><img src="files/post_10078_tasiyanc_10078.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده این روزا در اینستاگرام 🤖🤖
+
+💜 Name 1980
+Prompt
+What would i have looked like in the 80’s
+
+آموزش استفاده ➡️
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
+💖اسپانسر لالیگا و سری آ ایتالیا💖
+
+👑شارژ اول و هر شنبه دوبل شارژ می شوید
+✔️بدون نیاز به فیلترشکن
+sa17
+ادرس عضویت کانال:👇
+▪️https://t.me/+sjy90Yl3Bg41MzEy
+</div>
+
+## tasiyanc — post 10076
+
+<div align="center"><img src="files/post_10076_tasiyanc_10076.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
+🔹
+✅وان ایکس رتبه یک دنیاس ✔️
+
+⏬چرا انتخاب همه 1xbet هست:
+⬅️واریز اول دو برابر شارژ میشی
+⬅️هفتگی کلی هدیه میده
+⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
+⬅️پر اپشن ترین سایت دنیاس
+⬅️اسپانسر تیم های مختلف اروپاس
+⬅️حرفه ای ترین اپلیکیشن داره
+⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
+پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
+
+😴ادرس سایت:
+https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
+🎁کد هدیه ثبت نام:1xuu
+
+💖برای دانلود اپلیکیشن کلیک کنید➡️
+کانال اطلاع رسانی سایت:
+✉️https://t.me/+sjy90Yl3Bg41MzEy
+</div>
+
+## tasiyanc — post 10064
+
+<div align="center"><video src="files/post_10064_tasiyanc_10064.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10064_tasiyanc_10064.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری / در حملات امشب از موشک‌های بارشی استفاده شده
+
+•موشک‌های بارشی (یا دارای کلاهک بارانی و خوشه‌ای)
+موشک‌هایی هستند که به جای داشتن یک سرجنگی یکپارچه و بزرگ
+، از تعداد زیادی ریزبمب یا بمب‌های کوچک تشکیل شده‌اند
+﻿
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10055
 
@@ -128,159 +285,5 @@ sg17
 ✌️
 
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10045
-
-<div align="center"><video src="files/post_10045_tasiyanc_10045.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10045_tasiyanc_10045.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10043
-
-<div align="center"><img src="files/post_10043_tasiyanc_10043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10042
-
-<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10041
-
-<div align="center"><video src="files/post_10041_tasiyanc_10041.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10041_tasiyanc_10041.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانو نیکول کیدمن ستاره هالیوود « کراش دهه شصت و هفتادیا» گفته جدایی بعد از بیست سال زندگی و در محدوده سنی شصت سال خیلی راحت نیست!:)
-+ زیبایی بانو ›››››
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10040
-
-<div align="center"><video src="files/post_10040_tasiyanc_10040.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10040_tasiyanc_10040.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد میگن چرا پسرا دیگه حال ازدواج ندارن
-فک کن این همه هزینه کنی که این جیندرلا برا یکی دیگه دابسمش بگیره💆🏻
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10039
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز ۱۷ شهریور تولد 57 سالگی سیدمجتبی خامنه‌ای سومین رهبر جمهوری اسلامی است
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10038
-
-<div align="center"><video src="files/post_10038_tasiyanc_10038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10038_tasiyanc_10038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صبح امروز جسد مهین اعتصام، ۳۳ ساله اهل هشتگرد البرز بعد از ۱۶ روز بی خبری و تلاش خانوادش پیدا شد
-
-مهین کلی تلاش کرد به جای پرایدش ماشین جدید بخره
-یکی از دوستای نزدیک خانوادگیشون گفت پراید و طلاها و پولایی که داریو بیار واست ماشین خوب بخرم
-ولی بین راه مهینو با روسری خودش خفه میکنه و به قتل میرسونه و جسدشو تو بیابونای نظراباد رها میکنه.
-+ قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
-پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
-
-💋 @Tasiyanc
 </div>
 

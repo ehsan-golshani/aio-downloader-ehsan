@@ -1,8 +1,125 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/22 01:08
+📅 آخرین بروزرسانی: 1405/06/22 15:44
 
 ---
+
+## tasiyanc — post 10104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای انفجار سیریک ، میناب
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10103
+
+<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
+بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10101
+
+<div align="center"><video src="files/post_10101_tasiyanc_10101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10101_tasiyanc_10101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیوهای وایرال‌شده از بانو تیلور سوئیفت ( کراش خیلیا ) در کنسرت جدیدش
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ترامپ: ایرانی‌ها تمام تلاششان را می‌کنند تا روی نتیجه انتخابات ما اثر بگذارند، به این امید که یک گروه ضعیف روی کار بیاید تا کاری به کار آن‌ها نداشته باشد و بگذارد به سلاح هسته‌ای برسند
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10098
+
+<div align="center"><video src="files/post_10098_tasiyanc_10098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10098_tasiyanc_10098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پارت جدید؛ برنامه عشق ابدی آمریکاییا چخبره 😐😐
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🔩 ترامپ:
+
+مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 🔩 فوری٬ ترامپ :
+
+حملات بیشتری علیه ایران انجام خواهیم داد. جنگ ایران بلافاصله پس از انتخابات میان‌دوره‌ای پایان خواهد یافت!
+
+پی‌نوشت : انتخابات میان‌دوره‌ای ۱۲ آبان هست
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10095
+
+<div align="center"><video src="files/post_10095_tasiyanc_10095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10095_tasiyanc_10095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10094
+
+<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
+
+ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
+تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10093
+
+<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاوی صحنه شاید دلخراش
+
+🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10092
 
@@ -142,163 +259,6 @@ Tasiyan | تاسیان pinned a photo
 🟠 نفت 100 دلار
 
 وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10082
-
-<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
-
-خراب شه سقفی که زن خونه‌اش امثال توء …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 10079
-
-<div align="center"><video src="files/post_10079_tasiyanc_10079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10079_tasiyanc_10079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸فیلم خارق‌العاده کمتر دیده شده از پرواز موشک‌ که میره از جو خارج میشه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10078
-
-<div align="center"><img src="files/post_10078_tasiyanc_10078.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده این روزا در اینستاگرام 🤖🤖
-
-💜 Name 1980
-Prompt
-What would i have looked like in the 80’s
-
-آموزش استفاده ➡️
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-sa17
-ادرس عضویت کانال:👇
-▪️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10076
-
-<div align="center"><img src="files/post_10076_tasiyanc_10076.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:
-✉️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10064
-
-<div align="center"><video src="files/post_10064_tasiyanc_10064.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10064_tasiyanc_10064.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری / در حملات امشب از موشک‌های بارشی استفاده شده
-
-•موشک‌های بارشی (یا دارای کلاهک بارانی و خوشه‌ای)
-موشک‌هایی هستند که به جای داشتن یک سرجنگی یکپارچه و بزرگ
-، از تعداد زیادی ریزبمب یا بمب‌های کوچک تشکیل شده‌اند
-﻿
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
-
 
 💋 @Tasiyanc
 </div>
