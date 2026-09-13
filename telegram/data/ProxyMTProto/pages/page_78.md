@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/06/22 20:02
+📅 آخرین بروزرسانی: 1405/06/22 22:35
 
 ---
+
+## ProxyMTProto — post 49577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cloud.neoqua.pro
+Port: 443
+Secret: ee3fa2666ad08eb559375e0772a379be32636c6f75642e6e656f7175612e70726f
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49576
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 25565
+Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49575
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: app.librava.click
+Port: 443
+Secret: eea1eceac9a9088b02d582d0ca99d9365e6170702e6c6962726176612e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49574
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server.nl-arvancloud.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49573
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mtp1.hlebushek.com
+Port: 443
+Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49572
 
@@ -129,51 +174,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: ardesvpn1.ru
 Port: 8443
 Secret: ee05cf8e164f926f4a664b2404d276a1d6617264657376706e312e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 135.181.74.178
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49556
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: azamatx.ru
-Port: 443
-Secret: ee1f2a9e2f72b01e9f39aae711ed6ea7c063646e2e79616e6465782e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49555
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49554
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

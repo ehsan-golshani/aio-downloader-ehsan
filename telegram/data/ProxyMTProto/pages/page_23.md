@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/22 20:02
+📅 آخرین بروزرسانی: 1405/06/22 22:35
 
 ---
+
+## ProxyMTProto — post 50684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn2.kvakzon.top
+Port: 2443
+Secret: eea3046b756505c4772f1041996e592d2663646e322e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 543
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: summer.vechnostnet.study
+Port: 443
+Secret: dddec0a247046e4dab47376d96117a8a7c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50679
 
@@ -136,51 +181,6 @@ Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
 Server: relaywise.co.uk.
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: shin.startnetwork.shop
-Port: 443
-Secret: ddf91f0b9ebf2d72aa67c93402c5c1554f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jadid.zhigool.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50660
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: run.helloworld.surf
-Port: 443
-Secret: dde80c91fa5050b02631672334ecb38b6a
 @ProxyMTProto
 </div>
 

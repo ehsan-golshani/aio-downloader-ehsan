@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 10003
+
+<div align="center"><video src="files/post_10003_tasiyanc_10003.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10003_tasiyanc_10003.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10002
 
@@ -306,20 +321,6 @@ sg15
 🇪🇸
 🇫🇮
 🇮🇪
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9983
-
-<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
-
 
 
 💋 @Tasiyanc

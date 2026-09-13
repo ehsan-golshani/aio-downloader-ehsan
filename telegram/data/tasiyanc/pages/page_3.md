@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 10201
+
+<div align="center"><img src="files/post_10201_tasiyanc_10201.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دعوایی ترین استان های ایران:
+
++ نکته جالب ۳ استان اولی ترکا هستن آخری‌ام بلوچا
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10195
 
@@ -348,16 +360,5 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔔 اپلیشیکن بدون فیلتر1xbet 3️⃣2️⃣1️⃣
-🤝 اسپانسر لالیگا🇪🇸
-🤝 اسپانسر سری آ🇮🇹
-🤝اسپانسر باشگاه یوونتوس🇮🇹 sg20
-🤩 آموزش ثبت نام در 1 دقیقه
-💀 https://t.me/+mneyQS4mfqNjNjBk
 </div>
 

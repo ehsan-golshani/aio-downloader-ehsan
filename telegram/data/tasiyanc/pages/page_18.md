@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 9818
+
+<div align="center"><img src="files/post_9818_tasiyanc_9818.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچ جای نگرانی نیست، حجابش کامله!
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9817
 
@@ -301,15 +312,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9789
-
-<div align="center"><img src="files/post_9789_tasiyanc_9789.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نذر متفاوت پسر سبزواری برای رسیدن به دختر مورد علاقه اش :|
-
-🩸 @Tasiyanc
 </div>
 

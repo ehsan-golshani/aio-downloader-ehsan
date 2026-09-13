@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 10087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
 
 ## tasiyanc — post 10086
 
@@ -257,11 +263,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 کدوم رنگش خوشگله؟
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران. جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست. فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن 💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 9733
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری پرواز های مهرآباد لغو شد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9732
 
@@ -275,16 +283,5 @@ til.ac/0L4vyJf
 فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9699
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
 </div>
 

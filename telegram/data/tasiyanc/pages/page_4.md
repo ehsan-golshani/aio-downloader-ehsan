@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 10168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 اپلیشیکن بدون فیلتر1xbet 3️⃣2️⃣1️⃣
+🤝 اسپانسر لالیگا🇪🇸
+🤝 اسپانسر سری آ🇮🇹
+🤝اسپانسر باشگاه یوونتوس🇮🇹 sg20
+🤩 آموزش ثبت نام در 1 دقیقه
+💀 https://t.me/+mneyQS4mfqNjNjBk
+</div>
 
 ## tasiyanc — post 10167
 
@@ -269,13 +280,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
-</div>
-
-## tasiyanc — post 10142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌بی نتانیاهو: نیروهای ما عملیات خود را در تپه علی الطاهر در جنوب لبنان آغاز کرده‌اند
-
-💋 @Tasiyanc
 </div>
 

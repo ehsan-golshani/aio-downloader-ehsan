@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 9789
+
+<div align="center"><img src="files/post_9789_tasiyanc_9789.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نذر متفاوت پسر سبزواری برای رسیدن به دختر مورد علاقه اش :|
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9788
 
@@ -270,20 +280,6 @@ https://Winamit.com/fa
 🔴هِلِن زن ۹۱ ساله به جرم تلاش برای دزدیدن دارو برای شوهر بیمار ۸۸ ساله اش دستگیر شد !
 
 + هلن با اینکه خودش بیمار بود و لباس بیمارستان به تن داشت در دفاعیه از خود فقط گفت چاره دیگری نداشتم اون حالش بد بود و کار دیگری نمیتوانستم بکنم ، قاضی پرونده را مختومه و این عمل را مجرمانه نخواند
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9755
-
-<div align="center"><video src="files/post_9755_tasiyanc_9755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9755_tasiyanc_9755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
-
-او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
 
 🩸 @Tasiyanc
 </div>

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 9755
+
+<div align="center"><video src="files/post_9755_tasiyanc_9755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9755_tasiyanc_9755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
+
+او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9754
 
@@ -223,14 +237,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠 توییت جدید دونالد ترامپ
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری پرواز های مهرآباد لغو شد
 
 🩸 @Tasiyanc
 </div>

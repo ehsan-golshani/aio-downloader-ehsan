@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/22 20:04
+📅 آخرین بروزرسانی: 1405/06/22 22:37
 
 ---
+
+## tasiyanc — post 9618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنگوی نیروهای مسلح:
+
+ایران اینترنشنال و کارمندانش رو باید در بانک اهداف نظامی قرار بدیم.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9617
 
@@ -316,21 +326,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨عمق فاجعه برا یه کشور : این کاغذ ۱۱۷ میلیون تومان !
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9591
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💋 🔐 🔐
-
-trojan://humanity@104.18.152.113:443?path=%2Fassignment&security=tls&insecure=0&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7
-trojan://humanity@104.18.152.225:443?path=%2Fassignment&security=tls&insecure=0&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%2002
-trojan://humanity@104.18.23.63:443?path=%2Fassignment&security=tls&insecure=0&host=www.ignitelimit.com&type=ws&allowInsecure=0&sni=www.ignitelimit.com#%40Tasiyanc%20%F0%9F%87%AB%F0%9F%87%B7%2003
-vless://b2bef9e4-0e52-43d7-9613-f6e73c2eb970@109.169.76.34:443?security=reality&encryption=none&pbk=JZ6o_q7-OSJ87w9kTrcn9I4UiMVZdPUnjXoRs4TbLzE&headerType=none&fp=firefox&type=tcp&flow=xtls-rprx-vision&sni=slashdot.org&sid=61811b12a62fb2a4#%F0%9F%87%AC%F0%9F%87%A7%20%40Tasiyanc
-vless://e5cc16a6-ea42-46b2-82ae-ad2157e1641b@104.18.28.234:443?path=%2Fsg-melbi&security=tls&encryption=none&insecure=0&host=hhlfy.twiladaphne.ndjp.net&type=ws&allowInsecure=0&sni=hhlfy.twiladaphne.ndjp.net#%40Tasiyanc%20%F0%9F%87%BA%F0%9F%87%B8
-vmess://eyJhZGQiOiI4Mi4xOTguMjQ2LjM3IiwiYWlkIjoiMCIsImFscG4iOiIiLCJmcCI6IiIsImhvc3QiOiIiLCJpZCI6ImQxM2ZjMmY1LTNlMDUtNDc5NS04MWViLTQ0MTQzYTA5ZTU1MiIsImluc2VjdXJlIjoiMCIsIm5ldCI6InRjcCIsInBhdGgiOiIvIiwicGNzIjoiIiwicG9ydCI6IjE4MCIsInBzIjoiQFRhc2l5YW5jIiwic2N5IjoiYXV0byIsInNuaSI6IiIsInRscyI6IiIsInR5cGUiOiJub25lIiwidiI6IjIiLCJ2Y24iOiIifQ==
 
 🩸 @Tasiyanc
 </div>
