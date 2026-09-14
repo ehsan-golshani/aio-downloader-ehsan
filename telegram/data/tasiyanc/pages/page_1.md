@@ -1,8 +1,128 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/23 17:51
+📅 آخرین بروزرسانی: 1405/06/23 23:07
 
 ---
+
+## tasiyanc — post 10297
+
+<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی !
+توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
+
+یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
+
+عکس مربوط به کلاب M4 Dundas هست
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10296
+
+<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
+تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
+
+مراقب باجناق هاتون باشید🐸
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10291
+
+<div align="center"><a href="files/post_10291_𝐖𝐚𝐬𝐡𝐢𝐧𝐠𝐭𝐨𝐧 🇺🇸.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐖𝐚𝐬𝐡𝐢𝐧𝐠𝐭𝐨𝐧 🇺🇸.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10289
+
+<div align="center"><img src="files/post_10289_tasiyanc_10289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاشقانه‌ترین عکسی که میتونی با پارتنرت بسازی 💕
+
+Prompt 🤖🤖
+
+Keep faces 100% similar to reference photos A detailed medium close-up, candid portrait photograph of a young, attractive couple in a tender, romantic embrace on a beach. The man, with dark hair and a beard, is on the left, wearing a vintage-style brown t-shirt with beige gothic-style text and graphic prints on the back. He holds the woman close, his arms around her waist. The woman, with long blonde hair emerging from under a black baseball cap worn backwards, is on the right, wearing a dark olive-green coverall. She has bold red lipstick and her eyes are closed as she reaches up with both hands, gently cupping the man’s face, their faces very close for a soft, imminent kiss (a nose-to-nose or soft cheek kiss). The background is a soft-focus, overcast beach scene with gray-blue sea waves and a hazy, indistinct horizon. Natural, diffuse, and gentle lighting. The image is clean and completely devoid of any text, status bars, or watermarks. Canvas: 9:16
+
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10288
+
+<div align="center"><a href="files/post_10288_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: giftcodeir
+
+🤝 اسپانسر رسمی جام جهانی
+🔵 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 آموزش ثبت نام و واریز
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10287
+
+<div align="center"><img src="files/post_10287_tasiyanc_10287.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاب امروز فوتبال جهان رو با آپشن های تخصصی در MelBet پیشبینی کنید! ⚽️🔥
+
+✅ تمام بازی ها در سایت Melbet ارائه شده و بالای 3000 آپشن دارند. از برد و باخت بگیر تا کرنر و شوت و آفساید و خطا و… حتی روی VAR و کادر درمان بازی هم شرط میتونید ببندید!
+
+┅━━━━━━━━━━━━┅
+
+
+💵 امکان شارژ حساب با انواع ارز دیجیتال
+🔢 با واریز اول در ملبت 2 برابر شارژ بشید
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+↗️حرفه ای، مطمئن و در کلاس جهانی پیش بینی کنید!
+
+🔔 آموزش ثبت نام و واریز
+
+💛 لینک جدید و بدون فیلتر ملبت (فیلترشکن خاموش)⬇️
+🌐 www.Melbet.com
+🌐 www.Melbet.com
+</div>
 
 ## tasiyanc — post 10286
 
@@ -65,8 +185,6 @@ Barcelona 🇪🇸.ovpn
 <div align="center"><video src="files/post_10283_tasiyanc_10283.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_10283_tasiyanc_10283.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div align="center"><a href="files/post_10283_Barcelona 🇪🇸.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Barcelona 🇪🇸.ovpn</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  فول سرعتی نامحدود OpenVpn 
@@ -143,8 +261,6 @@ Location
 
 ## tasiyanc — post 10268
 
-<div align="center"><a href="files/post_10268_Melbet1.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 Melbet1.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن MelBet 
 🥇
@@ -218,111 +334,5 @@ Join Join Join
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میکس عالی برد شد❤️☑️
 ✔️@Tipster_Mafiaa
-</div>
-
-## tasiyanc — post 10260
-
-<div align="center"><video src="files/post_10260_tasiyanc_10260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10260_tasiyanc_10260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10257
-
-<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 خبرگزاری فارس :
-احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10250
-
-<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی نامحدود OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون 
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10249
-
-<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10247
-
-<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
-
-اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
-
-« اطلاع رسانی کنین به آشناهاتون »
-
-💋 @Tasiyanc
 </div>
 
