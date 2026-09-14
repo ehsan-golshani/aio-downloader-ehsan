@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/06/23 23:05
+📅 آخرین بروزرسانی: 1405/06/24 02:22
 
 ---
+
+## ProxyMTProto — post 49938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.205.29
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lwsite.top
+Port: 443
+Secret: dafa8248f6c6d8f69241d8bfb1278793
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 80
+Secret: 7hbZ3hNtxAbJ6L5BQipx2_std3d3LnlhaG9vLmNvbQ==
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 49935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee73e7d7fe41b49d9091f78c8c92c22de4766b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 49934
 
@@ -143,42 +179,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: zilch.chunkycorp.shop
-Port: 443
-Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: naro.guguli.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eec699329f2f8c2d33cd1e1a9f10e5d32d6164312e617269786f2e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran-download.goaphrodite.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 49915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: phloe.slarkfat.icu
 Port: 443
 Secret: ee6a0333c1db3f8eaba5c76731a44203b6617669746f2e7275
 @ProxyMTProto

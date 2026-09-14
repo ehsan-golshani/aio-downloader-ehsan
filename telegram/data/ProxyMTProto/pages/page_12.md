@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/23 23:05
+📅 آخرین بروزرسانی: 1405/06/24 02:22
 
 ---
+
+## ProxyMTProto — post 50942
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: topproxt.asia
+Port: 443
+Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.37
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50938
 
@@ -145,42 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: t.meow-network.com
 Port: 443
 Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 88.198.197.199
-Port: 4466
-Secret: dd114562821249bd7ac519130220c25d08
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.easyproxy.cfd
-Port: 443
-Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/23 23:07
+📅 آخرین بروزرسانی: 1405/06/24 02:24
 
 ---
+
+## tasiyanc — post 9738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
+
++با یه باک پر کجا رو داری بری هموطن؟
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9737
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اول رویترز: جنگ آغاز شده است
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش غیر رسمی از آغاز حملات موشکی سپاه همین الان
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9734
+
+<div align="center"><img src="files/post_9734_tasiyanc_9734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 توییت جدید دونالد ترامپ
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9733
 
@@ -198,89 +242,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گاهی زخم از دشمن نیست ؛ از همان چیزیست که روزی مایه‌ی غرورمان بود
 + آهو میپرید ، بی خبر از اینکه شاخ‌هایش ، پیش از هر شکارچی خودش را خواهد آزرد .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9703
-
-<div align="center"><img src="files/post_9703_tasiyanc_9703.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 210.000 تومان 😐
-</div>
-
-## tasiyanc — post 9701
-
-<div align="center"><img src="files/post_9701_tasiyanc_9701.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با این سایت به پرامپت‌های پولی دسترسی رایگان پیدا میکنید
-
-به هزاران پرامپت حرفه‌ای دسترسی پیدا کن، ایده بگیر و تصاویر جذاب‌تری با ابزارهای هوش مصنوعی بساز 🤖
-
-🔺 مجموعه‌ای از پرامپت‌های آماده 
-🔺 ایده‌های خلاقانه برای ساخت تصویر
-🔺 دسترسی به پرامپت های پوستر های تبلیغاتی
-🔺 مناسب برای مبتدی‌ها و حرفه‌ای‌ها 
-🔺 استفاده رایگان از امکانات و پرامپت‌ها 
-اگه دنبال ایده‌های جدید برای خلق تصاویر خاص هستی، این سایت رو از دست نده
-🌐 PromptHero.com
-
-
-💋 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9700
-
-<div align="center"><video src="files/post_9700_tasiyanc_9700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9700_tasiyanc_9700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فکر کنم تا ابد حسرت اینکه همه چیز میتونست یه جور دیگه پیش بره به دلم بمونه …
 
 💋 @Tasiyanc
 </div>

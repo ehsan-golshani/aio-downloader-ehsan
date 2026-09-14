@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/06/23 23:07
+📅 آخرین بروزرسانی: 1405/06/24 02:24
 
 ---
+
+## tasiyanc — post 9167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+a19
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9165
+
+<div align="center"><img src="files/post_9165_tasiyanc_9165.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷 a19
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9164
+
+<div align="center"><video src="files/post_9164_tasiyanc_9164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9164_tasiyanc_9164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏬اینارو کسی به شما نمیگه !!!
+
+اگر مشکل خروجی در ChatGpt دارید و عکسی که میدید شبیه شما نیست تنها راهکار و روششو تاسیان بهتون میگه
+
+ویدیو رو نگاه کنید قدم به قدم برید جلو و پرامپت زیر رو کپی کنید جایی ک نشون دادم قرار بدید تا مشکلتون کامل حل شه !
+
+پرامپت زیر رو در قسمت Custom Instructions بزنید سیو کنید تمام
+
+For every image generation, treat uploaded reference images as the permanent identity anchor. Maintain extremely high facial consistency and preserve the subject’s exact facial structure, proportions, skin tone, eye shape, nose, lips, jawline, and all distinctive features with maximum accuracy. Ensure the person remains instantly recognizable across all generations. Allow changes only to pose, facial expression, clothing, hairstyle (when explicitly requested), lighting, camera angle, and background. Never alter age, ethnicity, face shape, or defining facial characteristics unless explicitly instructed. Prioritize identity preservation above artistic style, creative interpretation, or visual enhancements.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9163
+
+<div align="center"><img src="files/post_9163_tasiyanc_9163.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت جدید اختصاصی کاپلی 🆕
+
+"Girl with White Bow"
+
+Prompt 🤖🤖
+
+> Ultra-realistic close-up portrait of a beautiful young woman indoors during golden hour. She is facing the camera with a slight head tilt and a soft, natural expression. Warm sunlight enters through a nearby window, casting dramatic diagonal shadows across one side of her face while illuminating the other with rich golden light. She has long dark brown hair styled half-up in a high ponytail, secured with a large sheer white organza bow. A few loose wispy strands fall naturally across her forehead. Thick, well-defined dark eyebrows, hazel-brown eyes with shimmering champagne eyeshadow, long curled eyelashes, glowing skin with subtle blush and natural highlights, soft matte pink lips, and minimal elegant makeup. She wears large silver hoop earrings and a loose chocolate-brown button-up linen shirt with the collar slightly open. Neutral light gray background, cinematic golden-hour lighting, shallow depth of field, ultra-detailed skin texture, realistic hair strands, soft shadows, editorial fashion photography, DSLR, 85mm lens, f/1.8, natural color grading, photorealistic, ultra high resolution, 8K.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9162
 
@@ -229,59 +323,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 •اتصال امن برای همه 🇮🇷
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9144
-
-<div align="center"><img src="files/post_9144_tasiyanc_9144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 پرامپت اختصاصی 🤖🤖
-
-Prompt Woman
-
-A high-contrast, moody black and white portrait photograph. A young woman with dark, wavy hair, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. She is leaning forward in a contemplative pose, looking downward at her hands, which are holding a coiled leather leash. Directly behind her stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-Prompt Man
-
-A high-contrast, moody black and white portrait photograph. A handsome young man with short, styled dark wavy hair, a neat beard, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. He is leaning forward in a contemplative pose, looking downward at his hands, which are holding a coiled leather leash. Directly behind him stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9143
-
-<div align="center"><img src="files/post_9143_tasiyanc_9143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ در‌تروث : 51 سال رفتار نامناسب ایران!
-حالا چرا ۵۱ سال ، ۴ سال زمان محمدرضا شاه رو هم میگه؟😐
-</div>
-
-## tasiyanc — post 9142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش وضعیت اینترنت همراه و ایرانسل
-</div>
-
-## tasiyanc — post 9141
-
-<div align="center"><video src="files/post_9141_tasiyanc_9141.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9141_tasiyanc_9141.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شعله های آتش نفتکش در سواحل عمان که مورد اصابت موشک قرار گرفته
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9140
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 یه نفت کش تو تنگه هرمز میخواست راهشو کج کنه از مسیر آمریکا (عمان) رد شه که با ۴ موشک مورد اصابت قرار گرفت
 </div>
 

@@ -1,8 +1,92 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/23 23:07
+📅 آخرین بروزرسانی: 1405/06/24 02:24
 
 ---
+
+## tasiyanc — post 10303
+
+<div align="center"><img src="files/post_10303_tasiyanc_10303.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی‌سایت
+🚨 چندین هوش مصنوعی قدرتمند، فقط در یک سایت!
+
+با Arena AI می‌تونی به مدل‌های مختلف هوش مصنوعی دسترسی داشته باشی و حتی مدل‌هایی مثل GPT، Gemini، Grok و... رو با هم مقایسه کنی!
+
+🚨 تولید و ویرایش عکس با مدل‌های مختلف
+
+🚨 ساخت ویدیو با AI
+
+🚨 چت و حل مسائل با مدل‌های قدرتمند
+
+
+مقایسه مدل‌ها و رأی دادن به بهترین پاسخ
+و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
+🌐 https://arena.ai
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10302
+
+<div align="center"><a href="files/post_10302_1xbet_ir.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1xbet_ir.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اپلیکیشن رسمی 1XBET▪️
+🟢مخصوص کاربران ایرانی
+❕ورود به اپلیکیشن بدون نیاز به فیلتر شکن📱
+اسپانسر رسمی لالیگا و سری آ😀😀
+😀شارژ اکانت با یو ووچر، پی اس ووچر، ترون، و ارزهای دیجیتال 💵💳💲
+
+🎈وقتی اپلیکیشن رو دانلود کردید موقع ثبت‌نام، کد هدیه FA80 رو وارد کن و تا سقف0️⃣2️⃣ میلیون هدیه بگیر 🎁
+
+🎁 بونوس 100% اولین واریز
+🎁 بونوس 100% روز های شنبه
+</div>
+
+## tasiyanc — post 10301
+
+<div align="center"><img src="files/post_10301_tasiyanc_10301.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+1️⃣سایت بین المللی 1xbet1️⃣
+
+🎁اولین واریز توی وان ایکس 2 برابر شارژ میشین💖
+🔔چرا همه وان ایکس را انتخاب میکنند⚠️
+💖شارژ امن از طریق، انواع ووچر ، ارز دیجیتال
+💖 هر شنبه 2 برابر شارژ میشین
+💖تسویه حساب سریع و بدون احراز
+💖بازگشت بخشی از باخت به صورت هفتگی
+💖اسپانسر باشگاه بارسلونا و پاریسن ژرمن
+
+🔔راهنمای کامل سایت وان ایکس بت🔔
+
+🌐آدرس سایت👇
+📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
+
+‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
+</div>
+
+## tasiyanc — post 10299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
+اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
+خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10298
+
+<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
+
++ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10297
 
@@ -44,8 +128,6 @@
 
 ## tasiyanc — post 10291
 
-<div align="center"><a href="files/post_10291_𝐖𝐚𝐬𝐡𝐢𝐧𝐠𝐭𝐨𝐧 🇺🇸.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 𝐖𝐚𝐬𝐡𝐢𝐧𝐠𝐭𝐨𝐧 🇺🇸.ovpn</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ  اختلال شکن OpenVpn 📶
 
@@ -79,8 +161,6 @@ Keep faces 100% similar to reference photos A detailed medium close-up, candid p
 </div>
 
 ## tasiyanc — post 10288
-
-<div align="center"><a href="files/post_10288_melbet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 melbet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
@@ -257,82 +337,5 @@ Location
 ﻿
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 
-🥇
-
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10267
-
-<div align="center"><video src="files/post_10267_tasiyanc_10267.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10267_tasiyanc_10267.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوق حسااااس استقلال و السد رو با آپشن های تخصصی در MelBet پیشبینی کنید! 
-🔥
-
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-
-🌐 دانلود مستقیم اپلیکیشن اندروید
-
-🤝 اسپانسر رسمی لالیگا
-
-🇮🇷 پشتیبانی از زبان فارسی
-
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌
-✅ Link 🔜 MelBet1.net
-
-✅‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10265
-
-<div align="center"><img src="files/post_10265_tasiyanc_10265.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شات های جدید عشقتون بانو سیدنی سویینی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-Join Join Join
-Join Join Join
-</div>
-
-## tasiyanc — post 10263
-
-<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میکس عالی برد شد❤️☑️
-✔️@Tipster_Mafiaa
 </div>
 
