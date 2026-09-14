@@ -1,8 +1,32 @@
 # آرشیو کانال MehdiBudam - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/22 22:35
+📅 آخرین بروزرسانی: 1405/06/23 17:49
 
 ---
+
+## MehdiBudam — post 8111
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor3
+
+
+slipnet-enc://AZCV5Hkcq+Jm48xNzu4mAD0er0Ic56DV6pRNLFuSoNZ8We+HMKiPRZq74s3N7ai0EDGrWZTklNfHagxXfgK87Ab/PCtf3R7UCEqviAzUlgEcCSOjhQM51YhlnBZ1Lp5iXetB9SJ8Eyt31RIiFkBdknwhkX+8xgVNM4a2E/VuVqO5PdbUSfY8wHLxfQlV5GWAQBlRQ2EPLthf1Y2ioyJS4lFmWY3mzx7qv+sOK4w3JOQcSIVGjTwUtE4Ks2zg3wGL8FNnaSwbydZ4tpLGElHCTEQIqDCP9P5j/j32uV3J0qQL71sOtGj3EBj54AtZjvGo07aZT1kfQkXn7ihxHtWqAvhVLnOzPuimqkrBJ3NSMNnXgn96AToN3jUx2HXzQMI0jnsSz8HO9tjUTIpqs7fYCGBH5Xq7gw7f9iXon/cb8w9VwvzdlRYukXkr5MjfmHOKX8zLCZZakLo6X5cakWIHt064pbTp/sjj7RNaWm2Wc6Hq1sQbSiGbAcDl5m+aV+VxaVZmDJWiltsjWmqCiI7+0C7b53HgxZF9JfBs5OrBdB/XNrizCKPa58Agf7I2rrpIK+q4MHZdFn7mhjilYmHGaeiZe28+ee9CH6O+rdxk3oFeq81A2KPQMopv2q2OMra01kFE9jpH9G39tU5VQXPOfPrk63c/C4HIr2mdf1l02jrTG4fJNSoN+a4cOrJYuol5fX3yyR0uo2X+zglegamTPiIiMcd2PbAGkQ==
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor2
+
+
+slipnet-enc://Ae2EEQLf+LxSQ2MlvnWNA82xsmSEx4iPv+oSxDkNzqegYMSMpojO4WzTpcHOYO0k5X5jqUoDzwzUgHe7/k6lUDPFB2oWgw2P75hMiHwzs+jvA8SCcdtynmzXTNC42cAc7ADeSW8RiTm/W9GFN7anpOLb+OQ8CNq7usgF/x+ZjVceWGuMVObY81VnSqQuydigaFHSsV4s7SR8HY4aHXxAO/xH+AZPxeEnDyFmaX72jCDo4Y8sGOP1yu86DY/nt9E0cLdEiDxUwXCmNKEy5X9E31+rVLFu5f9LapUNjYRFp4XPGvMguC0Z09N9dfVpe2FNdF3g2i1DHvO6M9RPxS/iOZLyt3aLhc+mkBotDQ2EzxlH7HtuWf6rBp4HDJV7vqM/W0vFzqPnGNtkQEuIJv8CHiF6CLHrkyM3ZXKmI3oXFFq/LaPzrmw391PzY3bHolyQfgtytwv0SkgEbTUTd5Blrmuq0edXy7vFDORZ33bNUZojD0UMmR7ARU4LZzV+faebbxGebPXJG95EiPT4c1EaB1Tv9WQunu2hY6YpXtLJXSN1l1K9+rwlZTqdLy7QhKB86cnPCh5EOudNbUjEt6Cp/qivOg67auVat4UGuFYL/tu31AvLUSSTk6BEY86veZJ0od/m3NTGfurHCBShFEMX+kTGpG5p6Q8Zpb4qYETavQ/6xYIsoJxrf+QcIafk60J6BoePNwcAZ16alJyViKC8Fg0lqXwdr3TEcgluRtc=
+
+﻿
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8109
 
@@ -119,18 +143,6 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 </div>
 
 ## MehdiBudam — post 8090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…
-</div>
-
-## MehdiBudam — post 8089
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکثر سرورا وصلن اگه لازم داشتید.
-</div>
-
-## MehdiBudam — post 8088
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 درود و تشکر از همراهان همیشگی SlipNet که در دوره قطع و اختلال اینترنت همراهی کردند با توجه به وضعیت فعلی شبکه، می‌تونید از روش‌های زیر برای برقراری اتصال پایدار استفاده کنید: 🟢 ۱. اتصال از طریق Tor (نسخه Full - رایگان) (ویژه کاربران دارای دسترسی به اینترنت)…

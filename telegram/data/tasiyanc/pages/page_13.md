@@ -1,8 +1,148 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/23 03:09
+📅 آخرین بروزرسانی: 1405/06/23 17:51
 
 ---
+
+## tasiyanc — post 9950
+
+<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه هنوز به آینده امید داری این پیام رو لایک کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9948
+
+<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
+
+مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9947
+
+<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  
+📶
+
+لوکیشن 
+🇲🇦 Morocco
+
+مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
+
+
+⬅️ دریافت کانفیگ ها 
+🟠
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9946
+
+<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9944
+
+<div align="center"><video src="files/post_9944_tasiyanc_9944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9944_tasiyanc_9944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌حسین پاک، خبرنگار صداوسیما حوزه لبنان:
+منتظر بیانیه حزب‌الله هستیم ولی چیزی که معلومه اینه که علی الطاهر سقوط کرده و به دست اسرائیل افتاده!
+رزمنده‌ها تو علی الطاهر محاصره شدن و امکان ارسال غذا و اسلحه بهشون نیست.
+شرایط اونجا کاملا عاشورایی شده.
+میشه اسرائیل رو فرستاد عقب، حمله نظامی تاثیر داره.
+5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠دلار رسید 227000
+
+عر عر بعضیا فقط واسه حجاب دختر مردمه؟
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9942
+
+<div align="center"><video src="files/post_9942_tasiyanc_9942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9942_tasiyanc_9942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠مهر تاییدی بر این موضوع که هر سگ و گربه‌ای رو نباید عقد و عروسیتون دعوت کنید:
+
++ طفلی عروس چه فشاری میخوره
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر دستگیری این مادر جنده بیاد به ۱۰ نفر اوپن VPN اختصاصی نامحدود میدم ( فقد اعضای گروه)
+
+https://t.me/+PTaxqSvYQ_A0MTc8
+
+
+🔴تا ساعت ۱۴ زیر پست کامنت بزارید قرعه کشی میشه ( به گزارش تابناک قاتل کردن تو گونی و موقع فرار از مرز دستگیر شده )
+</div>
 
 ## tasiyanc — post 9938
 
@@ -184,110 +324,6 @@ til.ac/0L4vyJf
 
 
 گذشته ی همدیگه‌رو جدی بگیرید:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-2 کانفیگ  پرمیوم OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ ها 👉
-
-💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9923
-
-<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9922
-
-<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه نصیحت
-اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
-چون اگه منصرف بشی پلیس میکشتت 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
-
-+ خوشبختانه حالش خوبه❤️
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 حمله موشکی از سیریک به تنگه هرمز
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9916
-
-<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9915
-
-<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
-
 
 💋 @Tasiyanc
 </div>
