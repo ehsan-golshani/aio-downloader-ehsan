@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/24 09:48
+📅 آخرین بروزرسانی: 1405/06/24 15:36
 
 ---
+
+## tasiyanc — post 10284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Barcelona 🇪🇸.ovpn
+</div>
+
+## tasiyanc — post 10283
+
+<div align="center"><video src="files/post_10283_tasiyanc_10283.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10283_tasiyanc_10283.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+
+دانلود برای اندروید
+
+دانلود برای آیفون
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+Location 
+🇪🇸 
+🇪🇸 Catalunya
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
+</div>
 
 ## tasiyanc — post 10272
 
@@ -254,72 +296,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت‌های سال 97 رو ببینید انگار اصحاب کهف شدیم رسما !
-
-•دلار 5000 تومن
-•طلا گرمی 160هزار
-•سکه 1 میلیون 700هزار
-•مسکن متری 5 میلیون و 600هزار
-•پژو 206 , 35 میلیون
-•پراید 22 میلیون
-•سراتو 105 میلیون
-•برنج 14 هزار
-•گوشت 39700
-•حداقل حقوق 1.200.000 تومان
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10242
-
-<div align="center"><video src="files/post_10242_tasiyanc_10242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10242_tasiyanc_10242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«لاله مرزبان» جایزه بهترین بازیگر زن بخش های افق ونیز رو برنده شد
-در این فستیوال چهره‌هایی مثل « بانو جورجینا & کندال جنر & سیدنی سویینی & دوالیپا » دیده میشوند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10241
-
-<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 
-📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-
-💖بونوس 100% واریز اول
-
-💖بونوس 100% واریز دوم
-
-💖بونوس 75% | 50% واریز سوم و چهارم
-
-💖بونوس 200% ویژه کازینو
-
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-
-🔥 کانال تلگرام وی پاری:
-
-✅ @wepari_irann
 </div>
 

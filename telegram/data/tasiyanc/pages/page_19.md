@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/24 09:48
+📅 آخرین بروزرسانی: 1405/06/24 15:36
 
 ---
+
+## tasiyanc — post 9830
+
+<div align="center"><video src="files/post_9830_tasiyanc_9830.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9830_tasiyanc_9830.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 خبرگزاری تسنیم:
+
+نیروهای مسلح ایران یکی از بزرگترین عملیات موشکی خود را علیه پایگاه‌ها و منافع آمریکایی در منطقه انجام دادند.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9829
+
+<div align="center"><video src="files/post_9829_tasiyanc_9829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9829_tasiyanc_9829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گزارش از اصابت موشک به پایگاه آمریکا در اردن
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9828
+
+<div align="center"><video src="files/post_9828_tasiyanc_9828.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9828_tasiyanc_9828.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨« تایید نشده» یک خودروی ناشناس در شهرک گلستان شیراز، زنانی در خیابان تجمعات شبانه کرده بودند، زیر گرفت!
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9827
 
@@ -192,95 +233,6 @@ Homosexual
 کسی که به همجنسش حس داره.
 Demsexual
 کسی که تا یه رابطه عمیق احساسی با کسی نداشته باشه حس نداره.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9801
-
-<div align="center"><video src="files/post_9801_tasiyanc_9801.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9801_tasiyanc_9801.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet
-💥
-
-
-🎁بونوس ورزشی هر چهارشنبه
-🔥
-
-💸واریز و برداشت متنوع
-💵
-
-⭕️بدون نیاز به فیلتر شکن
-⭕️
-
-
-🎁کد هدیه ثبت نام Melbet90 
-✌️
-
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9800
-
-<div align="center"><video src="files/post_9800_tasiyanc_9800.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9800_tasiyanc_9800.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 
-👍
-😁
-😊
-🙂
-
-🥇واریز و برداشت ارزی و ریالی
-‼️
-
-🔥بونوس 100% اولین واریز
-‼️
-
-⚽️بونوس ورزشی هرچهارشنبه
-‼️
-
-🆗کازینو و انفجار با ضرایب جهانی
-‼️
-
-
-🎁کد هدیه ثبت نام :Melbet90
-
-
-🇩🇪دانلود اپلیکیشن MELBET
-👉
-
-
-🔗لینک وبسایت
-👉
-
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
-🇨🇦 
-🇹🇷
-sg10
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9798
-
-<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
-همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
 
 
 🩸 @Tasiyanc
