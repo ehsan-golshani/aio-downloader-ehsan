@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/24 20:31
+📅 آخرین بروزرسانی: 1405/06/24 23:50
 
 ---
+
+## tasiyanc — post 10332
+
+<div align="center"><img src="files/post_10332_tasiyanc_10332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاقبت تحریم کاربران ایرانی
+
+🚨 صرافی چینی کوینکس (CoinEx) که عمده مشتری‌هاش ایرانی بودند ورشکسته شد!
+صرافی کوینکس اعلام‌کرد‌ تعطیل شده است و پول‌هایتان را خارج کنید.
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 10331
+
+<div align="center"><img src="files/post_10331_tasiyanc_10331.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10329
+
+<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10327
+
+<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
+
+نیرویی خواستید مشتاق همکاری هستیم 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10326
 
@@ -72,8 +131,6 @@
 </div>
 
 ## tasiyanc — post 10320
-
-<div align="center"><a href="files/post_10320_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
@@ -232,78 +289,6 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
 🌐 https://arena.ai
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن رسمی 1XBET▪️
-🟢مخصوص کاربران ایرانی
-❕ورود به اپلیکیشن بدون نیاز به فیلتر شکن📱
-اسپانسر رسمی لالیگا و سری آ😀😀
-😀شارژ اکانت با یو ووچر، پی اس ووچر، ترون، و ارزهای دیجیتال 💵💳💲
-
-🎈وقتی اپلیکیشن رو دانلود کردید موقع ثبت‌نام، کد هدیه FA80 رو وارد کن و تا سقف0️⃣2️⃣ میلیون هدیه بگیر 🎁
-
-🎁 بونوس 100% اولین واریز
-🎁 بونوس 100% روز های شنبه
-</div>
-
-## tasiyanc — post 10301
-
-<div align="center"><img src="files/post_10301_tasiyanc_10301.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-1️⃣سایت بین المللی 1xbet1️⃣
-
-🎁اولین واریز توی وان ایکس 2 برابر شارژ میشین💖
-🔔چرا همه وان ایکس را انتخاب میکنند⚠️
-💖شارژ امن از طریق، انواع ووچر ، ارز دیجیتال
-💖 هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر باشگاه بارسلونا و پاریسن ژرمن
-
-🔔راهنمای کامل سایت وان ایکس بت🔔
-
-🌐آدرس سایت👇
-📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
-
-‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
-</div>
-
-## tasiyanc — post 10299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
-اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
-خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10298
-
-<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
-
-+ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10297
-
-<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی !
-توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
-
-یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
-
-عکس مربوط به کلاب M4 Dundas هست
 💋 @Tasiyanc
 </div>
 

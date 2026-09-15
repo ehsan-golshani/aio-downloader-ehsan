@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/24 20:31
+📅 آخرین بروزرسانی: 1405/06/24 23:50
 
 ---
+
+## tasiyanc — post 9678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📹 مرجع سایت‌های دانلود فیلم و سریال خارجی بدون سانسور
+
++ مجموعه‌ای از سایت‌های محبوب از نظر کاربران
+
+
+📎 1. 30نما 30nama.com
+
+
+📎 2. نووی‌گراد ( پیشنهاد خودم ) novigrad.top
+
+
+📎 3. دیجی‌موویز digimoviez.com
+
+
+📎 4. فیلم‌کیو filmkio.com
+
+
+📎 5. زرفیلم zarfilm.com
+
+
+📎 6. فیلم۲مدیا film2media.com
+
+
+📎 7. الماس‌مووی almasmovie.com
+
+
+📎 8. امپایر بست تی‌وی empirebesttv.com
+
+
+📎 9. دارک‌مووی darkmovie.pro
+
+
+📎 10. موبو موویز mobomovies.pro
+
+
+📎 11. آی‌موویز imovies.org
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال بت ویژن شو👇
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
+
+## tasiyanc — post 9676
+
+<div align="center"><video src="files/post_9676_tasiyanc_9676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9676_tasiyanc_9676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶
+🚨
+🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده
+🔥
+
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
+
+## tasiyanc — post 9675
+
+<div align="center"><video src="files/post_9675_tasiyanc_9675.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9675_tasiyanc_9675.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨با اعلام پزشکیان نرخ سوم بنزین ۱۰ هزار تومان شد و به زودی این تغییر قیمت اعمال می‌شود.
+پس از نرخ سوم ۱۰ هزار تومانی نیز نرخ آزاد اعمال خواهد شد که مابین ۴۰ تا ۸۷ هزار تومان خواهد بود
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9674
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 چند هوش مصنوعی بدون محدودیت در یک جا با حفظ حریم خصوصی!
+
+
+🔗 https://duck.ai
+
+​بدون نیاز به ساخت اکانت‌های مختلف، به قوی‌ترین مدل‌های هوش مصنوعی دسترسی داشته باش و پاسخ‌هاشون رو با هم مقایسه کن!
+
+​
+🟠 ویژگی‌های مهم:
+
+⚡️ حفظ کامل حریم خصوصی: حذف IP و عدم ذخیره چت‌ها روی سرور
+• امنیت بالا: چت‌ها فقط روی دستگاه خودت ذخیره میشن و صرف آموزش مدل‌ها نمیشن
+
+⚡️ دسترسی سریع و یک‌جا: بدون دردسر ثبت‌نام در چند سایت مختلف
+
+​
+🤖 مدل‌های رایگان در دسترس:
+• GPT-5.4 (nano & mini)
+• Claude 4.5 Haiku
+• Mistral Small 4
+• GPT-oss 120B | Gemma 4 31B
+
+🔺 کاربرد: ترجمه، تولید متن و عکس ، خلاصه‌سازی و کارهای روزمره
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9671
 
@@ -310,116 +425,5 @@ https://t.me/+J_q7c-COftQzOGM0
 🔗 آدرس عضویت کانال vip:
 https://t.me/+J_q7c-COftQzOGM0
 https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9649
-
-<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق گفته کارشناسان اقتصادی؛
-
-مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
-
-+ برای دانشگاه ها هم همین ماجرا محتمله.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9648
-
-<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: اولین تریلر GTA 6 منتشر شد.
-
-مشاهده 27 دقیقه تریلر کامل GTA 6
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9647
-
-<div align="center"><video src="files/post_9647_tasiyanc_9647.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9647_tasiyanc_9647.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این بادکنک ماهی کوچولو برای خواستگاری از عشقش ، آثار هنری خلق می‌کنه :)
-
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9646
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9645
-
-<div align="center"><video src="files/post_9645_tasiyanc_9645.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9645_tasiyanc_9645.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
 </div>
 

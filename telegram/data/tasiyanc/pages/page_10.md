@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/24 20:31
+📅 آخرین بروزرسانی: 1405/06/24 23:50
 
 ---
+
+## tasiyanc — post 10054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
+آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله آمریکا به نفتکش ایرانی در ۴ مایلی خارک ( تسنیم)
+
+آمریکا امشب دستور تخلیه فوری داده به نفتکش‌های ایرانی و میخواد بفرستتشون قعر دریا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هادی چوپون:
+
+دوست داشتم تو المپیا امسال مدال طلا میگرفتم و اونو به رهبرمون تقدیم میکردم
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10051
+
+<div align="center"><img src="files/post_10051_tasiyanc_10051.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 فردا اپل رسما از سری 18 رونمایی میکنه:
+
+کدوم رنگش خوشگله؟
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران. جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست. فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10049
 
@@ -239,120 +287,5 @@ Tasiyan | تاسیان pinned a photo
 دریافت کانفیگ ها 👉
 
 @Tasiyanc 💋
-</div>
-
-## tasiyanc — post 10034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10033
-
-<div align="center"><img src="files/post_10033_tasiyanc_10033.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10032
-
-<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10030
-
-<div align="center"><video src="files/post_10030_tasiyanc_10030.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10030_tasiyanc_10030.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
