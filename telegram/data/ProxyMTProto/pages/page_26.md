@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/24 23:48
+📅 آخرین بروزرسانی: 1405/06/25 02:38
 
 ---
+
+## ProxyMTProto — post 50695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 3a.startnetwork.shop
+Port: 443
+Secret: dd69273bcdcdf7e34b2b6d0f9e8386c127
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50694
 
@@ -172,15 +181,6 @@ Secret: ee3f72634c46d320aaa30d8bb2682e9b49617669746f2e7275
 Server: ssh.meow0.co.uk
 Port: 22
 Secret: dd79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 @ProxyMTProto
 </div>
 

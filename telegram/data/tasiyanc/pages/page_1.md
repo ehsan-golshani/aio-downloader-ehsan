@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/24 23:50
+📅 آخرین بروزرسانی: 1405/06/25 02:40
 
 ---
+
+## tasiyanc — post 10337
+
+<div align="center"><img src="files/post_10337_tasiyanc_10337.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه فوت‌فتیش میخواد دزدی کنه 😂 :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چقد کارگری کنم واسه ۱۵۰ میلیونی که میتونم توی یه شب از این کانال دربیارم . 💲
+
+شاید دیگه این فرصت گیرت نیاد حتما جوین شو 💎
+
+به پول یه خونه و ماشین می‌رسی راحت 💲
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
+
+## tasiyanc — post 10335
+
+<div align="center"><img src="files/post_10335_tasiyanc_10335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
+
+## tasiyanc — post 10334
+
+<div align="center"><a href="files/post_10334_@Tasiyanc 🔥 Vip.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🔥 Vip.npvs</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید 
+حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از بهترین ربات‌های دانلودر که بکارتون میاد
+
+مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
+
+👉 @wsavebot
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10332
 
@@ -203,91 +269,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کنسرت خیابونی گروه «لیان» در کیش حسابی تندروهارو فشاری کرده و معتقدن اینا همش تقصیر مسعوده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود
-
-🇦🇪
-🇩🇪
-🇳🇱
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10306
-
-<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10304
-
-<div align="center"><img src="files/post_10304_tasiyanc_10304.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-
-🔥کانال اطلاع رسانی ایران:👇🅰r2‌4
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10303
-
-<div align="center"><img src="files/post_10303_tasiyanc_10303.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-🚨 چندین هوش مصنوعی قدرتمند، فقط در یک سایت!
-
-با Arena AI می‌تونی به مدل‌های مختلف هوش مصنوعی دسترسی داشته باشی و حتی مدل‌هایی مثل GPT، Gemini، Grok و... رو با هم مقایسه کنی!
-
-🚨 تولید و ویرایش عکس با مدل‌های مختلف
-
-🚨 ساخت ویدیو با AI
-
-🚨 چت و حل مسائل با مدل‌های قدرتمند
-
-
-مقایسه مدل‌ها و رأی دادن به بهترین پاسخ
-و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
-🌐 https://arena.ai
 
 💋 @Tasiyanc
 </div>

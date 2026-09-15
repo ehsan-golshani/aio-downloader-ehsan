@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/24 23:48
+📅 آخرین بروزرسانی: 1405/06/25 02:38
 
 ---
+
+## ProxyMTProto — post 50895
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: stream.lovely.lat
+Port: 443
+Secret: eeaadd88aa9facd454936d0c42dc128e7773747265616d2e6c6f76656c792e6c6174
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50894
 
@@ -172,15 +181,6 @@ Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: adproxy.mtproto.baby
-Port: 443
-Secret: ddb57ee5caf6ee163bd0a0d08f491a84db
 @ProxyMTProto
 </div>
 

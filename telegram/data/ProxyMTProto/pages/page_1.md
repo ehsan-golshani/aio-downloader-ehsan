@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/24 23:48
+📅 آخرین بروزرسانی: 1405/06/25 02:38
 
 ---
+
+## ProxyMTProto — post 51195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 30f9e0.mtpfast.com
+Port: 443
+Secret: ee3452747634e3675ff895e7ff2f1307323330663965302e6d7470666173742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51194
 
@@ -171,15 +180,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: 91.107.160.196
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn8.cdnwave.org
-Port: 443
-Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
 @ProxyMTProto
 </div>
 
