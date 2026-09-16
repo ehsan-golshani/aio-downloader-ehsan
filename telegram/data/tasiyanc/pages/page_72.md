@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
 
 ## tasiyanc — post 8448
 
@@ -132,17 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
 </div>
 

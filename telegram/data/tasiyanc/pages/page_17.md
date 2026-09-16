@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 9921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
+
++ خوشبختانه حالش خوبه❤️
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله موشکی از سیریک به تنگه هرمز
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9919
 
@@ -272,31 +289,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9901
-
-<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9900
-
-<div align="center"><video src="files/post_9900_tasiyanc_9900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9900_tasiyanc_9900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئوی دوربین مداربسته از حمله دو نفر سارق به یک زن میانسال در خیابان و سرقت وحشیانه طلاهای او
-
-در مکانهای خلوت، احتیاط بیشتری کنید و وسایل و اشیای ارزشمند خود را در معرض دید قرار ندید
-
-
-💋 @Tasiyanc
 </div>
 

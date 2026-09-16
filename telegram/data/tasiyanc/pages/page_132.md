@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 132
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 6374
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۸۰۰ گیگ ـ کانفیگ همراه با ساب در چنل پروکسی درج شد
+T.me/TasiyanProxy
+</div>
+
+## tasiyanc — post 6373
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+4سرور   سرعتی پرمیوم 🚀
+
+حجم نامحدود - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ T.me/Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6372
 
@@ -201,21 +228,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 دانلود  Wg tunnel 🕹
 دانلود iOS 🍏
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6351
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-FAST @Tasiyanc servers.txt
 </div>
 

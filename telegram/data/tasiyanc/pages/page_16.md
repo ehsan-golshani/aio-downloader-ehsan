@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 9947
+
+<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  
+📶
+
+لوکیشن 
+🇲🇦 Morocco
+
+مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
+
+
+⬅️ دریافت کانفیگ ها 
+🟠
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9946
+
+<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9945
 
@@ -278,23 +314,6 @@ til.ac/0L4vyJf
 یه نصیحت
 اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
 چون اگه منصرف بشی پلیس میکشتت 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9921
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
-
-+ خوشبختانه حالش خوبه❤️
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 حمله موشکی از سیریک به تنگه هرمز
 
 💋 @Tasiyanc
 </div>

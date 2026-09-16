@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 9434
 
@@ -220,17 +242,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
 </div>
 

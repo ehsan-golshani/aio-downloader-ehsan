@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 10018
+
+<div align="center"><img src="files/post_10018_tasiyanc_10018.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10017
+
+<div align="center"><video src="files/post_10017_tasiyanc_10017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10017_tasiyanc_10017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ادب کردن عراقی‌ها که در سمنان به یه دختر ایرانی قصد تعرض داشتند
+
+توی سمنان چند نفر عراقی برای یک بانوی ایرانی ایجاد مزاحمت کرده بودن اینطوری ادب شدن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10015
 
@@ -332,31 +372,6 @@ til.ac/0L4vyJf
 4. فرزاد ریازی — اهل سنه (سنندج)، بازنشسته اداره راه
 5. یدالله سلیمی — اهل سنه (سنندج)
 6. مهدی زندی پوریان
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9993
-
-<div align="center"><img src="files/post_9993_tasiyanc_9993.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عادی‌ترین پست ترامپ 😂
-
-اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
-+اشاره به شباهت نقشه برعکس ایران با کله خودش
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنگوی دولت رسما اعلام کرد:
-
-نرخ کارت جایگاه سوخت از بامداد ۱۷ شهریور به ۱۰ هزار تومان افزایش خواهد یافت.
-
-+ سهمیه اول و دوم ثابت ، نرخ سوم ۱۰ هزار تومان شد
 
 💋 @Tasiyanc
 </div>

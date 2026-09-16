@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 9853
+
+<div align="center"><video src="files/post_9853_tasiyanc_9853.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9853_tasiyanc_9853.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+sg11
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9849
+
+<div align="center"><video src="files/post_9849_tasiyanc_9849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9849_tasiyanc_9849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9848
 
@@ -262,32 +324,6 @@ til.ac/0L4vyJf
 🚨 خبرگزاری تسنیم:
 
 نیروهای مسلح ایران یکی از بزرگترین عملیات موشکی خود را علیه پایگاه‌ها و منافع آمریکایی در منطقه انجام دادند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9829
-
-<div align="center"><video src="files/post_9829_tasiyanc_9829.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9829_tasiyanc_9829.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 گزارش از اصابت موشک به پایگاه آمریکا در اردن
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9828
-
-<div align="center"><video src="files/post_9828_tasiyanc_9828.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9828_tasiyanc_9828.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨« تایید نشده» یک خودروی ناشناس در شهرک گلستان شیراز، زنانی در خیابان تجمعات شبانه کرده بودند، زیر گرفت!
 
 
 🩸 @Tasiyanc

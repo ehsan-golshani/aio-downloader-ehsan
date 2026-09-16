@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/25 20:47
+📅 آخرین بروزرسانی: 1405/06/25 23:55
 
 ---
+
+## tasiyanc — post 9769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9768
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ترامپ:
+
+تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9767
 
@@ -263,28 +281,5 @@ til.ac/0L4vyJf
 پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9743
-
-<div align="center"><img src="files/post_9743_tasiyanc_9743.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
 </div>
 
