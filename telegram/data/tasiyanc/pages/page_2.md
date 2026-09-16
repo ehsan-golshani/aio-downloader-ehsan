@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/25 15:52
+📅 آخرین بروزرسانی: 1405/06/25 20:47
 
 ---
+
+## tasiyanc — post 10336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چقد کارگری کنم واسه ۱۵۰ میلیونی که میتونم توی یه شب از این کانال دربیارم . 💲
+
+شاید دیگه این فرصت گیرت نیاد حتما جوین شو 💎
+
+به پول یه خونه و ماشین می‌رسی راحت 💲
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
+
+## tasiyanc — post 10335
+
+<div align="center"><img src="files/post_10335_tasiyanc_10335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
+
+## tasiyanc — post 10334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید 
+حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از بهترین ربات‌های دانلودر که بکارتون میاد
+
+مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
+
+👉 @wsavebot
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10332
+
+<div align="center"><img src="files/post_10332_tasiyanc_10332.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاقبت تحریم کاربران ایرانی
+
+🚨 صرافی چینی کوینکس (CoinEx) که عمده مشتری‌هاش ایرانی بودند ورشکسته شد!
+صرافی کوینکس اعلام‌کرد‌ تعطیل شده است و پول‌هایتان را خارج کنید.
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 10331
+
+<div align="center"><img src="files/post_10331_tasiyanc_10331.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10329
+
+<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10327
 
@@ -173,136 +271,5 @@
 🇳🇱
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10306
-
-<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10304
-
-<div align="center"><img src="files/post_10304_tasiyanc_10304.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
-
-🔥کمپانی بین المللی We pari همون انتخاب🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-
-🔥کانال اطلاع رسانی ایران:👇🅰r2‌4
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10303
-
-<div align="center"><img src="files/post_10303_tasiyanc_10303.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-🚨 چندین هوش مصنوعی قدرتمند، فقط در یک سایت!
-
-با Arena AI می‌تونی به مدل‌های مختلف هوش مصنوعی دسترسی داشته باشی و حتی مدل‌هایی مثل GPT، Gemini، Grok و... رو با هم مقایسه کنی!
-
-🚨 تولید و ویرایش عکس با مدل‌های مختلف
-
-🚨 ساخت ویدیو با AI
-
-🚨 چت و حل مسائل با مدل‌های قدرتمند
-
-
-مقایسه مدل‌ها و رأی دادن به بهترین پاسخ
-و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
-🌐 https://arena.ai
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اپلیکیشن رسمی 1XBET▪️
-🟢مخصوص کاربران ایرانی
-❕ورود به اپلیکیشن بدون نیاز به فیلتر شکن📱
-اسپانسر رسمی لالیگا و سری آ😀😀
-😀شارژ اکانت با یو ووچر، پی اس ووچر، ترون، و ارزهای دیجیتال 💵💳💲
-
-🎈وقتی اپلیکیشن رو دانلود کردید موقع ثبت‌نام، کد هدیه FA80 رو وارد کن و تا سقف0️⃣2️⃣ میلیون هدیه بگیر 🎁
-
-🎁 بونوس 100% اولین واریز
-🎁 بونوس 100% روز های شنبه
-</div>
-
-## tasiyanc — post 10301
-
-<div align="center"><img src="files/post_10301_tasiyanc_10301.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-1️⃣سایت بین المللی 1xbet1️⃣
-
-🎁اولین واریز توی وان ایکس 2 برابر شارژ میشین💖
-🔔چرا همه وان ایکس را انتخاب میکنند⚠️
-💖شارژ امن از طریق، انواع ووچر ، ارز دیجیتال
-💖 هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر باشگاه بارسلونا و پاریسن ژرمن
-
-🔔راهنمای کامل سایت وان ایکس بت🔔
-
-🌐آدرس سایت👇
-📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
-
-‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
-</div>
-
-## tasiyanc — post 10299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
-اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
-خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10298
-
-<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
-
-+ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,126 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/25 15:52
+📅 آخرین بروزرسانی: 1405/06/25 20:47
 
 ---
+
+## tasiyanc — post 10038
+
+<div align="center"><video src="files/post_10038_tasiyanc_10038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10038_tasiyanc_10038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صبح امروز جسد مهین اعتصام، ۳۳ ساله اهل هشتگرد البرز بعد از ۱۶ روز بی خبری و تلاش خانوادش پیدا شد
+
+مهین کلی تلاش کرد به جای پرایدش ماشین جدید بخره
+یکی از دوستای نزدیک خانوادگیشون گفت پراید و طلاها و پولایی که داریو بیار واست ماشین خوب بخرم
+ولی بین راه مهینو با روسری خودش خفه میکنه و به قتل میرسونه و جسدشو تو بیابونای نظراباد رها میکنه.
++ قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
+پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
+
+## tasiyanc — post 10036
+
+<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10035
+
+<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
+
+مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
+
+
+دریافت کانفیگ ها 👉
+
+@Tasiyanc 💋
+</div>
+
+## tasiyanc — post 10034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10033
+
+<div align="center"><img src="files/post_10033_tasiyanc_10033.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 10032
+
+<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10030
 
@@ -192,168 +310,6 @@ sg16
 🔴ادب کردن عراقی‌ها که در سمنان به یه دختر ایرانی قصد تعرض داشتند
 
 توی سمنان چند نفر عراقی برای یک بانوی ایرانی ایجاد مزاحمت کرده بودن اینطوری ادب شدن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10015
-
-<div align="center"><video src="files/post_10015_tasiyanc_10015.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10015_tasiyanc_10015.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10014
-
-<div align="center"><img src="files/post_10014_tasiyanc_10014.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه میخواید میزان تورم ایران دستتون بیاد کافیه بدونید که سال 1391 با 14 میلیون تومن میتونستی یه پراید بخری؛ امروز با ۱۴ میلیون تومن میتونی یه بسته کـاندوم بخری تا یه آدم دیگه به دنیا نیاد مثل ما بدبخت بشه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10013
-
-<div align="center"><video src="files/post_10013_tasiyanc_10013.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10013_tasiyanc_10013.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک هشدار داده 10 سال دیگه وقت داریم که با کار کردن فیزیکی پول دربیاریم. بعد از اون، ربات‌ها ، هوش مصنوعی بیشتر کارها رو بدست میگیرن و دلیل نداره تو به‌جای اونا کار کنی
-
-+ فرمول‌های قدیمی که هفتگی یا ماهانه حقوق می‌گرفتید دورانشون تموم میشه .
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10012
-
-<div align="center"><video src="files/post_10012_tasiyanc_10012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10012_tasiyanc_10012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این روزا خیلی مواظب گوشیتون باشید؛
-دختره داشت برای پیجش تولید محتوا میکرد که یهو حمله کردن گوشیشو بزنن.
-سعی کنید تا حد امکان گوشیتون رو توی خیابون در نیارید اگه آیفونه‌.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10010
-
-<div align="center"><video src="files/post_10010_tasiyanc_10010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10010_tasiyanc_10010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10005
-
-<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ سرعتی وایرگارد 
-🔓
-
-حجم و کاربر نامحدود 
-⚡️
-
-
-دانلود 
-📱Android
-🕹  iOS
-
-
-آموزش اتصال با WgTunnel 
-🔗
-
-آموزش اتصال با windscribe
-🔗
-
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10004
-
-<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
-امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
 
 
 💋 @Tasiyanc
