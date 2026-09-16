@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/25 23:55
+📅 آخرین بروزرسانی: 1405/06/26 02:43
 
 ---
+
+## tasiyanc — post 10342
+
+<div align="center"><video src="files/post_10342_tasiyanc_10342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10342_tasiyanc_10342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
+⁉️
+
+
+🔥کمپانی بین المللی We pari همون انتخاب
+🔥
+
+            
+👑سایتی برای حرفه ای ها
+👑
+
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی
+💖
+
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند
+⚠️
+
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+
+💖تسویه حساب سریع و بدون احراز
+
+💖دارای مجوز رسمی Anjuan و curacao
+
+😃
+😃
+😃
+😃
+
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+
+👑دانلود اپلیکیشن اندروید
+➡️
+
+
+🔥کانال اطلاع رسانی ایران:
+👇🅰r2‌5
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10341
+
+<div align="center"><video src="files/post_10341_tasiyanc_10341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10341_tasiyanc_10341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینستاگرام فارسی روز به روز داره جالب‌تر میشه ،بسیاری از سایتهای بد ویوشون ته کشیده 
+🗡
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10339
+
+<div align="center"><img src="files/post_10339_tasiyanc_10339.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 زیبایی حیرت‌انگیز بانو آنا آرماس در مراسم اکران جهانی فیلم (No Time To Die)
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10338
 
@@ -230,55 +308,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 ✅کانال تلگرام:👇
 💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10319
-
-<div align="center"><img src="files/post_10319_tasiyanc_10319.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g24🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10317
-
-<div align="center"><video src="files/post_10317_tasiyanc_10317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10317_tasiyanc_10317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
-
-سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10316
-
-<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
-
-که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
-
-💋 @Tasiyanc
 </div>
 

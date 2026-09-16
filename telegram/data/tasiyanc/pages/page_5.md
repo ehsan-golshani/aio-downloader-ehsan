@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/25 23:55
+📅 آخرین بروزرسانی: 1405/06/26 02:43
 
 ---
+
+## tasiyanc — post 10246
+
+<div align="center"><video src="files/post_10246_tasiyanc_10246.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10246_tasiyanc_10246.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10245
+
+<div align="center"><video src="files/post_10245_tasiyanc_10245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10245_tasiyanc_10245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استقبال گرم مردم ایرلند از پرزیدنت ترامپ :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10244
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت‌های سال 97 رو ببینید انگار اصحاب کهف شدیم رسما !
+
+•دلار 5000 تومن
+•طلا گرمی 160هزار
+•سکه 1 میلیون 700هزار
+•مسکن متری 5 میلیون و 600هزار
+•پژو 206 , 35 میلیون
+•پراید 22 میلیون
+•سراتو 105 میلیون
+•برنج 14 هزار
+•گوشت 39700
+•حداقل حقوق 1.200.000 تومان
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10242
 
@@ -282,33 +328,5 @@
 این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
 و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10220
-
-<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رویت شده در تجمعات شبانه 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10218
-
-<div align="center"><img src="files/post_10218_tasiyanc_10218.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رزی عضور گروه بلک پینک بعد از معرفی سری ۱۸ اپل پستی با ایفون ۱۸ پرومکس چری در اینستاگرام منتشر کرد که به نظر میاد فتوشاپ شده باشه و حالا کامنت های زیر این پست مورد توجه رسانه قرار گرفته.
-کامنت اکانت سامسونگ :اگه یه گوشی واقعی می‌خواستی می‌تونستی بهمون بگی.
-کامنت اکانت پیکس ارت :دفعه بعد از پیکس‌ارت استفاده کن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظرم خود مدیر همراه اول و کارکناش از اینترنت اپراتورای دیگه استفاده میکنن ،مگه میشه داده اپراتور به این بزرگی انقد کیری ضعیف باشه یا همیشه اختلال داشته باشه ، هزینه بسته‌ میگیرن چند صد هزارتومان اینم خدماتی که به مردم میدن از روز وصلی اینترنت این اپراتور فقط ۲ بامداد تا ۹ صبح خوبه که همه خوابن نمیبینن
 </div>
 

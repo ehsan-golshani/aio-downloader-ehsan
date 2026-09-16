@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/25 23:53
+📅 آخرین بروزرسانی: 1405/06/26 02:41
 
 ---
+
+## ProxyMTProto — post 51227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.meow-network.com
+Port: 443
+Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51226
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: cdn8.cdnwave.org
 Port: 443
 Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 208.87.242.223
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

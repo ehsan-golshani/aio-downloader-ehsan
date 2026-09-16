@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/25 23:55
+📅 آخرین بروزرسانی: 1405/06/26 02:43
 
 ---
+
+## tasiyanc — post 10319
+
+<div align="center"><img src="files/post_10319_tasiyanc_10319.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید🔥
+
+🥇سایت شماره یک اروپا حالا در ایران🥇
+😀😃😄😁
+
+🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز سوم💖75% بونوس هدیه
+🎁واریز چهارم💖50% بونوس هدیه
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+🤔http://til.ac/z5jcpGT
+
+💎کانال اطلاع رسانی ایران:g24🅰
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10317
+
+<div align="center"><video src="files/post_10317_tasiyanc_10317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10317_tasiyanc_10317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
+
+سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10316
+
+<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
+
+که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10314
 
@@ -273,61 +323,5 @@ Keep faces 100% similar to reference photos A detailed medium close-up, candid p
 💛 لینک جدید و بدون فیلتر ملبت (فیلترشکن خاموش)⬇️
 🌐 www.Melbet.com
 🌐 www.Melbet.com
-</div>
-
-## tasiyanc — post 10286
-
-<div align="center"><video src="files/post_10286_tasiyanc_10286.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10286_tasiyanc_10286.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت گنگ براتون آوردیم 
-😎
-
-Prompt 
-🤖
-🤖
-
-«BatMan»
-
-CREATE A BLACK-AND-WHITE CINEMATIC, MEDIUM CLOSE-UP. IN THE FOREGROUND, DOMINATING THE LEFT SIDE OF THE FRAME, IS THE BACK OF A RIGID, MATTE BLACK HIGH-TECH SUIT FEATURING BROAD SHOULDER PLATES AND A SLEEK, ANGULAR SCULPTED COWL WITH SHARP POINTED EARS. OVER THE SHOULDER OF THE SUIT, POSITIONED IN THE RIGHT MIDGROUND, IS A HANDSOME YOUNG MAN LOOKING AT THE SUIT. HE IS WEARING A DARK PINSTRIPE SUIT JACKET OVER A FINELY STRIPED DRESS SHIRT AND DARK TIE. HIS EXPRESSION IS SERIOUS, CONTEMPLATIVE, AND STOIC. THE SETTING IS A MINIMALIST, MODERN ROOM FEATURING A BRIGHT, LUMINOUS GRID CEILING AND DARK, OUT-OF-FOCUS BACKGROUND WALLS WITH A SUBTLE VERTICAL METALLIC ELEMENT. SOFT, DIFFUSED OVERHEAD LIGHTING FROM THE CEILING PANELS CREATES SCULPTED SHADOWS ON THE MAN'S SHARPLY FOCUSED FACE AND STRIKING EDGE HIGHLIGHTS ALONG THE CONTOURS OF THE DARK SUIT. HIGH CONTRAST GRAYSCALE, FINE FACIAL FEATURES AND CRISP TEXTURES, INTENSE INTROSPECTIVE MOOD. ASPECT RATIO 3:4
-
-«Sport Man »
-
-RAW 35MM FLASH PHOTOGRAPHY, POINT-AND-SHOOT SNAPSHOT AESTHETIC. [SUBJECT: A PERSON MATCHING MY UPLOADED REFERENCE PHOTO] STANDING CONFIDENTLY IN A NOCTURNAL STONE COURTYARD. THE SUBJECT IS WEARING A FITTED BLACK LEATHER JACKET, DARK T-SHIRT, AND DARK DENIM, LEANING CASUALLY AGAINST THE DRIVER'S SIDE OF A SLEEK BLACK PORSCHE 911 GT3 RS WITH A VISIBLE CARBON FIBER HOOD AND MASSIVE REAR WING. THE SUBJECT IS HOLDING THE LEATHER LEAD ROPE OF A MASSIVE, IMPOSING BLACK FRIESIAN HORSE STANDING IMMEDIATELY BEHIND THEM ON THE RIGHT. DIRECT, HARSH ON-CAMERA FLASH ILLUMINATES THE SCENE, CREATING INTENSE SPECULAR HIGHLIGHTS ON THE GLOSSY CAR PAINT AND THE HORSE'S DARK COAT. SHARP, HARD SHADOWS FALL DIRECTLY BEHIND THE SUBJECTS ONTO PALE BEIGE STUCCO WALLS AND STONE ARCHWAYS WITH DARK WOOD DOORS. IRREGULAR COBBLESTONE GROUND. PITCH BLACK, LIGHTLESS NIGHT SKY ABOVE THE WALLS. HIGH CONTRAST, DESATURATED COLORS, DEEP CRUSHED BLACKS IN THE BACKGROUND, HEAVY FILM GRAIN, SLIGHT VIGNETTE, RAW, GRITTY LUXURY LIFESTYLE EDITORIAL, ULTRA-DETAILED. ASPECT RATIO 3:4.
-
-«Smoke Man »
-
-CREATE A SURREAL BLACK-AND-WHITE EDITORIAL POSTER SHOT FROM AN EXTREME LOW ANGLE WITH HEAVY ANALOG GRAIN, HARSH CONTRAST, AND REALISTIC PHOTOGRAPHIC TEXTURE. A YOUNG ATHLETIC MAN STANDS CENTER-RIGHT, AGAINST THE BELLY, WEARING A DISTRESSED DARK TANK TOP, TROUSERS, AND A METAL WATCH. HE CALMLY SMOKES A CIGARETTE WITH BOTH HANDS, THE SMOKE SLOWLY DRIFTING PAST HIS FACE.
-ABOVE HIM, HANG AN UPSIDE-DOWN PALE SUBURBAN HOUSE AGAINST A BLURRED SKY, SURROUNDED BY INVERTED DARK FOLIAGE. ADD A LARGE DIAGONAL BLACK ARCHITECTURAL SILHOUETTE IN THE BOTTOM-RIGHT OF THE BACKGROUND, LEAVING STRONG NEGATIVE SPACE ON THE LEFT.
-IN THE SKY, PLACE A DISTRESSED CRIMSON-MAROON HEADLINE: "ONE LAST SMOKE". RED SHOULD BE THE ONLY COLOR. ADD A FAINT "AI.AKAASH" LOGO/WATERMARK IN A CLEAN MINIMALIST STYLE, PREFERABLY SMALL NEAR THE BOTTOM.
-USE DEEP BLACKS, SILVERY MID-TONES, CINEMATIC DUST TEXTURE, HALFTONE EFFECT, AND IMPERFECT BLUR. MONOCHROME, SURREAL, GRITTY POSTER STYLE. NO REALISM OF HUMAN APPEARANCE.
-IMAGE FORMAT: 3:
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10285
-
-<div align="center"><video src="files/post_10285_tasiyanc_10285.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10285_tasiyanc_10285.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 قوه قضاییه برای رستوران بی‌بی که وایرال شده بود پرونده قضایی تشکیل داد ، پیج اینستاگرام رستوران بسته شد و رستوران پلمپ شد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Barcelona 🇪🇸.ovpn
 </div>
 

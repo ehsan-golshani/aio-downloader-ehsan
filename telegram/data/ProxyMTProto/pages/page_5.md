@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/25 23:53
+📅 آخرین بروزرسانی: 1405/06/26 02:41
 
 ---
+
+## ProxyMTProto — post 51147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51146
 
@@ -174,15 +183,5 @@ Server: nyakawai.shop
 Port: 443
 Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ Wanna connect to a fast MTProxy?
-Нужен быстрый MTProxy?
-دنبال یه پروکسی سریع می‌گردی؟
-
-👉 @TProxyRU
 </div>
 

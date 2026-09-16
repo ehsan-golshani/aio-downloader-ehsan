@@ -1,8 +1,18 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/25 23:53
+📅 آخرین بروزرسانی: 1405/06/26 02:41
 
 ---
+
+## ProxyMTProto — post 51127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Wanna connect to a fast MTProxy?
+Нужен быстрый MTProxy?
+دنبال یه پروکسی سریع می‌گردی؟
+
+👉 @TProxyRU
+</div>
 
 ## ProxyMTProto — post 51126
 
@@ -172,15 +182,6 @@ Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
 Server: ir.flipme.info
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: freeinternet.skin
-Port: 443
-Secret: ee78437f70effbb0fd37b573d600676558617669746f2e7275
 @ProxyMTProto
 </div>
 
