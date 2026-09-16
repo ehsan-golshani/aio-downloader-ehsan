@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/25 02:40
+📅 آخرین بروزرسانی: 1405/06/25 10:21
 
 ---
+
+## tasiyanc — post 9685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار 206 هزار تومان .
+</div>
+
+## tasiyanc — post 9684
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+دانلود اندروید نسخه جدید  (پیشنهادی)
+
+دانلود آیفون نسخه جدید 
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+
+🩸 @TASIYANC
+</div>
 
 ## tasiyanc — post 9683
 
@@ -369,17 +396,5 @@ til.ac/0L4vyJf
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9659
-
-## tasiyanc — post 9658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

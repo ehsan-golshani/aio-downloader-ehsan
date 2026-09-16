@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/25 02:40
+📅 آخرین بروزرسانی: 1405/06/25 10:21
 
 ---
+
+## tasiyanc — post 9659
+
+## tasiyanc — post 9658
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9657
 
@@ -403,47 +415,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9631
-
-<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آپدیت جدید برنامه نپستر را دانلود کنید
-
-کانفیگ حجم نامحدود نپسترنت
-سرور سرعتی مولتی لوکیشن
-
-تست شده روی همه نت ها ⚡️
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9630
-
-<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
-
-این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
-
-
-🩸 @Tasiyanc
 </div>
 

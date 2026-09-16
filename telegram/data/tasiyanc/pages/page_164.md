@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 164
 
-📅 آخرین بروزرسانی: 1405/06/25 02:40
+📅 آخرین بروزرسانی: 1405/06/25 10:21
 
 ---
+
+## tasiyanc — post 5506
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش نداریم فعلا پول نزنید باز شه اطلاع میدم
+</div>
+
+## tasiyanc — post 5503
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+gül bana dünyalar benim olsun
+</div>
 
 ## tasiyanc — post 5502
 

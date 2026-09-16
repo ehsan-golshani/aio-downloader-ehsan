@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/25 02:40
+📅 آخرین بروزرسانی: 1405/06/25 10:21
 
 ---
+
+## tasiyanc — post 9388
+
+<div align="center"><video src="files/post_9388_tasiyanc_9388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9388_tasiyanc_9388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9384
 
@@ -216,30 +234,6 @@ Cinematic studio portrait of a young man with messy textured hair, wearing a bla
 
 آموزش استفاده 👉
 
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9362
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9361
-
-<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم تاسیان 🆕
-
-اسم : " Golden Hour Storyboard 🌅″
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
 
 @TASIYANC ⭐️
 </div>

@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/25 02:40
+📅 آخرین بروزرسانی: 1405/06/25 10:21
 
 ---
+
+## tasiyanc — post 9530
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 حکم اعدام مجید آدینه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اجرا شد.
+
+قوه قضاییه اتهام او را «اقدام عملیاتی به نفع اسرائیل و آمریکا و همکاری با گروه‌های متخاصم علیه امنیت و منافع ملی» اعلام کرده.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9529
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9528
 
@@ -326,27 +349,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
 sr31
 📚 آموزش کامل سایت👉
-</div>
-
-## tasiyanc — post 9507
-
-<div align="center"><img src="files/post_9507_tasiyanc_9507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ده تا از بهترین ابزارهای رایگان هوش مصنوعی در تمام زمینه ها ...
-
-
-⚡️میتونید در تولید محتوا ( ساخت ویدیو - عکس - تبلیغات ،بازاریابی) ازشون ایده بگیرید و رایگان بسازید !
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9506
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
 </div>
 
