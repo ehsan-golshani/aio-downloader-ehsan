@@ -1,8 +1,196 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/25 10:21
+📅 آخرین بروزرسانی: 1405/06/25 15:52
 
 ---
+
+## tasiyanc — post 10349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10348
+
+<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
+
+22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
+روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
+
+مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10347
+
+<div align="center"><video src="files/post_10347_tasiyanc_10347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10347_tasiyanc_10347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تبلیغ عجیب شرکت سونی در سال ۲۰۰۵ صحنه های زیبایی در خیابانهای آمریکا خلق کرد اما ؛
+
+جولای ۲۰۰۵ سونی ۲۵۰هزار توپ رنگارنگ را در خیابان‌های سن‌فرانسیسکو انداخت تا تلویزیون LCD براویا را تبلیغ کند.
+علیرغم پاکسازی گسترده با تورهای غول‌پیکر، تیم‌های پاکسازی، جاروبرقی‌های صنعتی، و جایزه نقدی به کودکان هزاران عدد از آنها به گوشه و کنار محله گریختند و سال‌ها پیدا می‌شدند
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10346
+
+<div align="center"><video src="files/post_10346_tasiyanc_10346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10346_tasiyanc_10346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div align="center"><a href="files/post_10346_@𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_⚡_𝐔𝐧𝐥𝐢𝐦𝐢𝐭𝐞𝐝.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_⚡_𝐔𝐧𝐥𝐢𝐦𝐢𝐭𝐞𝐝.npvs</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت مولتی لوک
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید نسخه جدید 
+
+نسخه جدید حتما دانلود کنید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده
+⭕️
+
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمنای 
+🤖
+
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10345
+
+<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
+
+سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
+ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10344
+
+<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
+
+Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
+Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10343
+
+<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
+✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
+⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10342
+
+<div align="center"><video src="files/post_10342_tasiyanc_10342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10342_tasiyanc_10342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
+⁉️
+
+
+🔥کمپانی بین المللی We pari همون انتخاب
+🔥
+
+            
+👑سایتی برای حرفه ای ها
+👑
+
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی
+💖
+
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند
+⚠️
+
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+
+💖تسویه حساب سریع و بدون احراز
+
+💖دارای مجوز رسمی Anjuan و curacao
+
+😃
+😃
+😃
+😃
+
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+
+👑دانلود اپلیکیشن اندروید
+➡️
+
+
+🔥کانال اطلاع رسانی ایران:
+👇🅰r2‌5
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10341
+
+<div align="center"><video src="files/post_10341_tasiyanc_10341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10341_tasiyanc_10341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت اینستاگرام فارسی روز به روز داره جالب‌تر میشه ،بسیاری از سایتهای بد ویوشون ته کشیده 
+🗡
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10339
 
@@ -143,140 +331,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10327
-
-<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
-
-نیرویی خواستید مشتاق همکاری هستیم 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10326
-
-<div align="center"><img src="files/post_10326_tasiyanc_10326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلترشکن جامپ‌جامپ حواشی های اخیر که میگفتن اطلاعات کاربران به سرقت رفته رو گردن نگرفت و تکذیب کرد
-
-من بودمم تکذیب میکردم 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10325
-
-<div align="center"><img src="files/post_10325_tasiyanc_10325.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جمعی از ستارگان هالیوود در مراسم امی ۲۰۲۶ که دیشب برگزار شد :
-
-پ‌ن کراشاتون لایک نداره؟
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10324
-
-<div align="center"><video src="files/post_10324_tasiyanc_10324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10324_tasiyanc_10324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این کسخل دیشب تو پونک تهران ، از بالای آپارتمان ۳ تا کوکتل مولوتوف سمت مردم پرت کرده و فرار کرده بود
-
-که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10323
-
-<div align="center"><video src="files/post_10323_tasiyanc_10323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10323_tasiyanc_10323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز هواپیمای مشهد به کرمانشاه نقص فنی پیدا می‌کنه تو آسمون و نزدیک بود سقوط کنه .
-
-یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10321
-
-<div align="center"><video src="files/post_10321_tasiyanc_10321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10321_tasiyanc_10321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده مسابقات جهانی اسپنک زنی زنان که حسابی این مسابقات طرفدار پیدا کرده :
-
-از دیدگاه افراد جقی این مسابقات جذابیت بیشتری نسبت به فوتبال دارد.
-
-💧 مشاهده ویدیو کامل مسابقات
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10319
-
-<div align="center"><img src="files/post_10319_tasiyanc_10319.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g24🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10317
-
-<div align="center"><video src="files/post_10317_tasiyanc_10317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10317_tasiyanc_10317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
-
-سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
-
-💋 @Tasiyanc
 </div>
 
