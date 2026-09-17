@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 10343
+
+<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
+✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
+⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10342
+
+<div align="center"><video src="files/post_10342_tasiyanc_10342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10342_tasiyanc_10342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
+⁉️
+
+
+🔥کمپانی بین المللی We pari همون انتخاب
+🔥
+
+            
+👑سایتی برای حرفه ای ها
+👑
+
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی
+💖
+
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند
+⚠️
+
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+
+💖تسویه حساب سریع و بدون احراز
+
+💖دارای مجوز رسمی Anjuan و curacao
+
+😃
+😃
+😃
+😃
+
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+
+👑دانلود اپلیکیشن اندروید
+➡️
+
+
+🔥کانال اطلاع رسانی ایران:
+👇🅰r2‌5
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10341
 
@@ -239,44 +307,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 💧 مشاهده ویدیو کامل مسابقات
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10319
-
-<div align="center"><img src="files/post_10319_tasiyanc_10319.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g24🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

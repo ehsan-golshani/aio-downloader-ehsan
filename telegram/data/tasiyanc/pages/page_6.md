@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 10247
+
+<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
+
+اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
+
+« اطلاع رسانی کنین به آشناهاتون »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10246
+
+<div align="center"><video src="files/post_10246_tasiyanc_10246.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10246_tasiyanc_10246.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10245
 
@@ -301,29 +330,4 @@
 </div>
 
 ## tasiyanc — post 10224
-
-## tasiyanc — post 10223
-
-<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
-
-آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
-این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
-و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10220
-
-<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رویت شده در تجمعات شبانه 🤣
-
-💋 @Tasiyanc
-</div>
 

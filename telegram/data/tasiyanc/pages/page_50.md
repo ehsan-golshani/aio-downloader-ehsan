@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9110
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی پرسرعت نپسترنت📱
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9109
+
+<div align="center"><img src="files/post_9109_tasiyanc_9109.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده : 🔴 حمیدرضا رجب زاده از مداحان (بسیجی) توسط عوامل ناشناس مسلح ربوده میشه و در حالی که زنده بوده قلبش رو از بدنش در میارن و همونطور رهاش میکنن ! @Tasiyanc⭐️
+</div>
 
 ## tasiyanc — post 9106
 
@@ -235,23 +252,5 @@ Prompt
 
 86 رأی موافق ، 11 رأی مخالف.
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9085
-
-<div align="center"><video src="files/post_9085_tasiyanc_9085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9085_tasiyanc_9085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نورا وینسنت ، زنی که تصور میکرد زندگی برای مردان بسیار راحت تر است ، ظاهر خود را به مرد تغییر داد ، اما ۱۸ ماه بعد ، بدلیل تحمل نکردن فشار های زندگی به عنوان یک مرد ، به زندگی خود پایان داد
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 9084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گزارش از وضعیت اینترنت خطوط همراه ، ایرانسل بدید عشقا
 </div>
 

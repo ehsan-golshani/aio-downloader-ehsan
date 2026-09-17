@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 10081
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
+
+💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
+فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
+
+🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
+🌐 www.MelBet1.com
+
+🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
+
+نکته: فقط این هفته فعاله، پس از دستش نده 🙂
+
+🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
 
 ## tasiyanc — post 10079
 
@@ -284,23 +321,5 @@ sg17
 
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10043
-
-<div align="center"><img src="files/post_10043_tasiyanc_10043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته :
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶 🇳🇱
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9234
 
@@ -189,21 +221,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9211
-
-<div align="center"><img src="files/post_9211_tasiyanc_9211.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فورررری روابط عمومی استان کرمان : از امشب قیمت هر لیتر بنزین آزاد توی استان کرمان، ۸۷ هزار تومنه😐
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حالتون چطوره ، شما ک حالمو نمیپرسید باید من بپرسم
 </div>
 

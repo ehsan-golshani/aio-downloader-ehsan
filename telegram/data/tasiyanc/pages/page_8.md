@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 10189
+
+<div align="center"><video src="files/post_10189_tasiyanc_10189.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10189_tasiyanc_10189.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 جدیدترین آپدیت اپلیکیشن Wepari 📱
+
+
+✅ امکان شارژ درگاه ریالی کاربران ایران
+💖بونوس 100% واریز اول
+💖بونوس 100% واریز دوم
+💖بونوس 75% | 50% واریز سوم و چهارم
+💖بونوس 200% ویژه کازینو
+
+🔥کد هدیه برای بونوس ها: wepari200
+
+🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
+
+🔥 کانال تلگرام وی پاری:
+✅ @wepari_irann
+</div>
+
+## tasiyanc — post 10188
+
+<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+              
+😃
+😃
+😃
+😃                
+
+
+🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
+🤝
+
+
+🔥 سایت شماره 1 حال حاضر اروپا
+
+🔥 بازگشت 25% باخت به صورت هفتگی
+
+🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
+
+
+✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: wepari200
+
+💳  آموزش شارژ با کارت بانکی
+
+📱 نصب اپلیکیشن اندروید سایت
+🍏 آموزش برای کاربران iOS
+
+🌐 لینک ورود به سایت👇
+
+🔥 til.ac/PJHVQSm
+🔥 til.ac/PJHVQSm
+
+🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
+</div>
 
 ## tasiyanc — post 10184
 
@@ -312,35 +383,6 @@ Final result: A believable rediscovered real color photograph from Tehran around
 
 آموزش استفاده و ساخت تصویر➡️
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10160
-
-<div align="center"><video src="files/post_10160_tasiyanc_10160.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10160_tasiyanc_10160.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز ۱۱ سپتامبر ، 25 سال پیش در چنین روزی تلخ‌ترین حادثه تروریستی برای آمریکا رقم خورد
-صبحی که با برخورد دو هواپیما به برج‌های دوقلوی تجارت جهانی نیویورک، جهان شوکه شد.
-۲۹۷۷ نفر کشته شدند؛ دو برج فرو ریختند و تاریخ سیاست آمریکا برای همیشه تغییر کرد.
-این حملات توسط ۱۹ هواپیماربا انجام شد که اعضای شبکه تروریستی القاعده (Al-Qaeda) بودند و عملیات تحت رهبری اسامه بن لادن برنامه‌ریزی شده بود.
-چهار هواپیما ربوده شدند:
-دو هواپیما به برج‌های دوقلوی نیویورک برخورد کردند.
-یکی به پنتاگون اصابت کرد.
-چهارمی در پنسیلوانیا سقوط کرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10159
-
-<div align="center"><img src="files/post_10159_tasiyanc_10159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✝️حکم دستگیری دختر و پسر تو ماشین
-احتمالا به دردتون بخوره بدونید
 
 💋 @Tasiyanc
 </div>

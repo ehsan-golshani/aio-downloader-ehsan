@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9534
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+╭━━━ 👾 GAME DNS VIP TASIYAN ⚡️ ━━━╮
+
+DNS1 😎
+235.58.241.130
+49.129.66.60
+
+DNS2 😎
+36.108.70.10
+136.224.75.103
+
+DNS3 😎
+62.114.222.110
+223.42.10.179
+
+IPv4 Location 🇩🇪
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون دلار 198000
+هم اکنون طلا 21.900.000
+
+کجا داریم میریم ؟
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9531
 
@@ -316,31 +350,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9510
-
-<div align="center"><video src="files/post_9510_tasiyanc_9510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9510_tasiyanc_9510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👨‍💼 ترامپ برای بار هزارم:
-من نمی‌دانم اصلاً با چه کسی در ایران باید مذاکره کنم. این در واقع یکی از بزرگترین مشکلات من است.
-هیچ کس نمی‌خواهد رئیس‌جمهور ایران باشد. آن‌ها می‌گویند: «چه کسی می‌خواهد رئیس‌جمهور باشد؟» «نه، نه، من نمی‌خواهم رئیس‌جمهور باشم.»
-💋 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

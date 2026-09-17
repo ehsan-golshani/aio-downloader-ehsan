@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9857
+
+<div align="center"><video src="files/post_9857_tasiyanc_9857.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9857_tasiyanc_9857.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - Gemini & ChatGpt- اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+درصورت ارور چند بار بزنید 
+⭕️
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9856
+
+<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
+
+ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9855
 
@@ -295,52 +340,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9833
-
-<div align="center"><img src="files/post_9833_tasiyanc_9833.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9832
-
-<div align="center"><video src="files/post_9832_tasiyanc_9832.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9832_tasiyanc_9832.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظه ی برخورد موشک به پایگاه آمریکا در اردن
-
-
-🩸@Tasiyanc
 </div>
 

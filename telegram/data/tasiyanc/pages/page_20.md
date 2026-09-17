@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9881
+
+<div align="center"><img src="files/post_9881_tasiyanc_9881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+sg12
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠طبق گزارش ها؛
+روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
++ دلیلشم انجام برخی کارهای +۱۸ بوده
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9878
 
@@ -247,50 +282,5 @@ sa11
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9857
-
-<div align="center"><video src="files/post_9857_tasiyanc_9857.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9857_tasiyanc_9857.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - Gemini & ChatGpt- اینستاگرام 
-📸 یوتوب 
-🎥
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-درصورت ارور چند بار بزنید 
-⭕️
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9856
-
-<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
-
-ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
-
-
-💋@Tasiyanc
 </div>
 

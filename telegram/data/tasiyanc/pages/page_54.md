@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 معرفی سایت های کاریابی و استخدامی (فریلنسری) ایران 
+⚡️
+
+
+🟠جابینجا
+https://jobinja.ir
+
+
+🟠پونیشا
+https://ponisha.ir
+
+
+🟠ایران تلنت
+https://www.irantalent.com
+
+
+🟠جاب ویژن
+https://jobvision.ir
+
+
+🟠کارلنسر
+https://www.karlancer.com
+
+
+🟠برای استخدام
+https://www.e-estekhdam.com
+
+
+🟠برای معلم زبان
+https://oteacher.org
+
+بفرستید برای کسایی که دنبال کار هستن خیلی خوبن سایتهای که گفتم .
+
+
+⚡️@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 9004
+
+<div align="center"><img src="files/post_9004_tasiyanc_9004.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کروکودیل ( تمساح) ها بعد از خوردن طعمه ، به دلیل محبوس شدن هوا در سینوس هایشان اشک می‌ریزند ، نه پشیمانی
+بخاطر همین اصطلاح « اشک تمساح » برای کسایی بکار میرود که فقط تظاهر به ناراحتی میکنند
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 9003
 
@@ -314,43 +367,5 @@ Based on our chats, generate a clean 3x3 picture showing how you see me as a col
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast - HCustum 🇮🇹B.hc
-</div>
-
-## tasiyanc — post 8984
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر بد
-متاسفانه پورت های مهم من جمله 22 که برای پروتکل های SSHبکار میره مسدود شده کار نمیکنه ، امیدوارم اوکی شه چون این نشانه از چیزیه ک دوس ندارم عنوان کنم.
-</div>
-
-## tasiyanc — post 8982
-
-<div align="center"><video src="files/post_8982_tasiyanc_8982.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_8982_tasiyanc_8982.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم
-🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 
-📱
-
-سرور سرعتی مناسب تمام نت‌ها 
-⚡️
-
-آموزش اتصال 
-✅
-
-دانلود 
-📱 android
-🕹 iOS
-
-اتصال امن برای همه 
-🏠
-
-
-💙@TASIYANC 
-✅
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین ساعت ۲ پاک میشه
+دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
+</div>
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
 
 ## tasiyanc — post 9415
 
@@ -204,28 +217,5 @@ g26
 ✅https://mafbet.com/fa/?btag=260368
 ✔️ کانال تلگرام سایت:
 👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 17، روز دوست داشتن پاهاست.
-
-+ این روز رو به رفیقای فوت فتیشت تبریک بگو
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
 </div>
 

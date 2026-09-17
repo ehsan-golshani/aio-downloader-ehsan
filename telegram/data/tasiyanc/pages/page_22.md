@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/27 00:06
+📅 آخرین بروزرسانی: 1405/06/27 02:44
 
 ---
+
+## tasiyanc — post 9833
+
+<div align="center"><img src="files/post_9833_tasiyanc_9833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9832
+
+<div align="center"><video src="files/post_9832_tasiyanc_9832.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9832_tasiyanc_9832.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨لحظه ی برخورد موشک به پایگاه آمریکا در اردن
+
+
+🩸@Tasiyanc
+</div>
 
 ## tasiyanc — post 9831
 
@@ -203,26 +250,6 @@
 🚨 فوررری
 
 حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9804
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Low Ping Game & download
-IR server
-</div>
-
-## tasiyanc — post 9803
-
-<div align="center"><video src="files/post_9803_tasiyanc_9803.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9803_tasiyanc_9803.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پسره ماشینو داد دوست دخترش؛ که بهش ماشین روندن یاد بده ، ببینید چطوری داره ماشینو تو چند ثانیه به فنا میده دختره ...
-
 
 🩸 @Tasiyanc
 </div>
