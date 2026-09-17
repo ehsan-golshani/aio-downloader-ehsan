@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/26 20:53
+📅 آخرین بروزرسانی: 1405/06/27 00:06
 
 ---
+
+## tasiyanc — post 10285
+
+<div align="center"><video src="files/post_10285_tasiyanc_10285.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10285_tasiyanc_10285.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 قوه قضاییه برای رستوران بی‌بی که وایرال شده بود پرونده قضایی تشکیل داد ، پیج اینستاگرام رستوران بسته شد و رستوران پلمپ شد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Barcelona 🇪🇸.ovpn
+</div>
+
+## tasiyanc — post 10283
+
+<div align="center"><video src="files/post_10283_tasiyanc_10283.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10283_tasiyanc_10283.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+
+دانلود برای اندروید
+
+دانلود برای آیفون
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+Location 
+🇪🇸 
+🇪🇸 Catalunya
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10280
 
@@ -244,53 +293,6 @@ Join Join Join
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10245
-
-<div align="center"><video src="files/post_10245_tasiyanc_10245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10245_tasiyanc_10245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استقبال گرم مردم ایرلند از پرزیدنت ترامپ :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت‌های سال 97 رو ببینید انگار اصحاب کهف شدیم رسما !
-
-•دلار 5000 تومن
-•طلا گرمی 160هزار
-•سکه 1 میلیون 700هزار
-•مسکن متری 5 میلیون و 600هزار
-•پژو 206 , 35 میلیون
-•پراید 22 میلیون
-•سراتو 105 میلیون
-•برنج 14 هزار
-•گوشت 39700
-•حداقل حقوق 1.200.000 تومان
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10242
-
-<div align="center"><video src="files/post_10242_tasiyanc_10242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10242_tasiyanc_10242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«لاله مرزبان» جایزه بهترین بازیگر زن بخش های افق ونیز رو برنده شد
-در این فستیوال چهره‌هایی مثل « بانو جورجینا & کندال جنر & سیدنی سویینی & دوالیپا » دیده میشوند
 
 
 💋 @Tasiyanc
