@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/26 02:43
+📅 آخرین بروزرسانی: 1405/06/26 10:19
 
 ---
+
+## tasiyanc — post 10045
+
+<div align="center"><video src="files/post_10045_tasiyanc_10045.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10045_tasiyanc_10045.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10043
 
@@ -282,21 +339,5 @@ til.ac/0L4vyJf
 🔴پدر جاویدنام ایلیا اجاقلو در اعتراض به تخریب تصویر مزار فرزندش تصاویر برادرانش را که در جنگ هشت ساله عراق شهید شده بودند را پایین کشید .
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اعتصاب رانندگان اسنپ
-
-رانندگان اسنپ قراره از ۱۲ شب (۱۷ شهریور) به علت کرایه پایین، کمسیون بالا، گرونی بنزین، گرونی روغن موتور یک روز اعتصاب کنند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۶ کانفیگ پرمیوم سرعتی OpenVpn 📶 مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب 👈 دریافت کانفیگ ها ➡️ لوکیشن : 🇩🇰🇪🇸🇫🇮🇮🇪 💋 @Tasiyanc
 </div>
 

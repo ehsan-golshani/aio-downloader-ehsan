@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/26 02:43
+📅 آخرین بروزرسانی: 1405/06/26 10:19
 
 ---
+
+## tasiyanc — post 10344
+
+<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
+
+Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
+Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10343
+
+<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
+✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
+⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10342
 
@@ -277,36 +310,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10321
-
-<div align="center"><video src="files/post_10321_tasiyanc_10321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10321_tasiyanc_10321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده مسابقات جهانی اسپنک زنی زنان که حسابی این مسابقات طرفدار پیدا کرده :
-
-از دیدگاه افراد جقی این مسابقات جذابیت بیشتری نسبت به فوتبال دارد.
-
-💧 مشاهده ویدیو کامل مسابقات
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

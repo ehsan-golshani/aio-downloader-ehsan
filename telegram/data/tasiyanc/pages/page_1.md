@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/26 02:43
+📅 آخرین بروزرسانی: 1405/06/26 10:19
 
 ---
+
+## tasiyanc — post 10366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
+
++ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10365
+
+<div align="center"><img src="files/post_10365_tasiyanc_10365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 امروز ۲۶ شهریور ماه، تولد کمبوجیه، پسرِ کوروش بزرگ و روزِ پسره.
+
+امروز تنها روز اصیل پسر های ایرانیه بهشون تبریک بگید.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10364
 
@@ -306,38 +330,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10344
-
-<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
-
-Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
-Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10343
-
-<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
-✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
-⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

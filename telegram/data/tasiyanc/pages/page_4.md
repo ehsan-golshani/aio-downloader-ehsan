@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/26 02:43
+📅 آخرین بروزرسانی: 1405/06/26 10:19
 
 ---
+
+## tasiyanc — post 10288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: giftcodeir
+
+🤝 اسپانسر رسمی جام جهانی
+🔵 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 آموزش ثبت نام و واریز
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10287
+
+<div align="center"><img src="files/post_10287_tasiyanc_10287.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاب امروز فوتبال جهان رو با آپشن های تخصصی در MelBet پیشبینی کنید! ⚽️🔥
+
+✅ تمام بازی ها در سایت Melbet ارائه شده و بالای 3000 آپشن دارند. از برد و باخت بگیر تا کرنر و شوت و آفساید و خطا و… حتی روی VAR و کادر درمان بازی هم شرط میتونید ببندید!
+
+┅━━━━━━━━━━━━┅
+
+
+💵 امکان شارژ حساب با انواع ارز دیجیتال
+🔢 با واریز اول در ملبت 2 برابر شارژ بشید
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+↗️حرفه ای، مطمئن و در کلاس جهانی پیش بینی کنید!
+
+🔔 آموزش ثبت نام و واریز
+
+💛 لینک جدید و بدون فیلتر ملبت (فیلترشکن خاموش)⬇️
+🌐 www.Melbet.com
+🌐 www.Melbet.com
+</div>
 
 ## tasiyanc — post 10286
 
@@ -291,34 +335,5 @@ Join Join Join
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10249
-
-<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10247
-
-<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
-
-اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
-
-« اطلاع رسانی کنین به آشناهاتون »
-
-💋 @Tasiyanc
 </div>
 

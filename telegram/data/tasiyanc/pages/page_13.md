@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/26 02:43
+📅 آخرین بروزرسانی: 1405/06/26 10:19
 
 ---
+
+## tasiyanc — post 10024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اعتصاب رانندگان اسنپ
+
+رانندگان اسنپ قراره از ۱۲ شب (۱۷ شهریور) به علت کرایه پایین، کمسیون بالا، گرونی بنزین، گرونی روغن موتور یک روز اعتصاب کنند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۶ کانفیگ پرمیوم سرعتی OpenVpn 📶 مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب 👈 دریافت کانفیگ ها ➡️ لوکیشن : 🇩🇰🇪🇸🇫🇮🇮🇪 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10021
 
@@ -316,49 +332,5 @@ til.ac/0L4vyJf
 👈 دریافت کانفیگ اختصاصی OpenVpn 📱
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9998
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9997
-
-<div align="center"><img src="files/post_9997_tasiyanc_9997.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
