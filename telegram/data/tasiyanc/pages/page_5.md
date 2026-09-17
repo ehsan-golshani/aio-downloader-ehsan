@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/26 15:56
+📅 آخرین بروزرسانی: 1405/06/26 20:53
 
 ---
+
+## tasiyanc — post 10280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
+</div>
+
+## tasiyanc — post 10272
+
+<div align="center"><video src="files/post_10272_tasiyanc_10272.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10272_tasiyanc_10272.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوری میشه انقد حرومزاده باشی؟
+
+🚨 این پسر تیک تاکر حرومزاده به اسم آران‌ به یه دختر بچه ۶ ساله تجاوز کرده طبق چت‌هاش
+
+ماجرا از این قراره که یه دختر بچه ۶ ساله که فامیلشون بود اومد خونشون. بعد این بی همه چیز به دوستاش تو گروه میگه:
+این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10271
+
+<div align="center"><video src="files/post_10271_tasiyanc_10271.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10271_tasiyanc_10271.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا برای اولین بار منتشر کرد لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران : آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن…
+</div>
+
+## tasiyanc — post 10269
+
+<div align="center"><video src="files/post_10269_tasiyanc_10269.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10269_tasiyanc_10269.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا برای اولین بار منتشر کرد
+لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران :
+
+آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن کامل چتر نجات، با سرعت حدود ۱۶۰ کیلومتر بر ساعت به زمین برخورد کرد و در این حادثه کمر، دست و شانه‌اش شکست که گویا الان حالش خوب هست .
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10267
+
+<div align="center"><video src="files/post_10267_tasiyanc_10267.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10267_tasiyanc_10267.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوق حسااااس استقلال و السد رو با آپشن های تخصصی در MelBet پیشبینی کنید! 
+🔥
+
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+
+🇮🇷 پشتیبانی از زبان فارسی
+
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌
+✅ Link 🔜 MelBet1.net
+
+✅‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10265
+
+<div align="center"><img src="files/post_10265_tasiyanc_10265.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شات های جدید عشقتون بانو سیدنی سویینی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10264
 
@@ -187,173 +294,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10241
-
-<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 
-📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-
-💖بونوس 100% واریز اول
-
-💖بونوس 100% واریز دوم
-
-💖بونوس 75% | 50% واریز سوم و چهارم
-
-💖بونوس 200% ویژه کازینو
-
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-
-🔥 کانال تلگرام وی پاری:
-
-✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10240
-
-<div align="center"><video src="files/post_10240_tasiyanc_10240.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10240_tasiyanc_10240.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-
-🍏 آموزش برای کاربران iOS
-
-
-🌐 لینک ورود به سایت
-👇
-
-🔥 til.ac/PJHVQSm
-
-🔥 til.ac/PJHVQSm
-
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
-</div>
-
-## tasiyanc — post 10239
-
-<div align="center"><video src="files/post_10239_tasiyanc_10239.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10239_tasiyanc_10239.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10238
-
-<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
-
-جرمش چی بوده؟
-چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10236
-
-<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
-
-👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
-</div>
-
-## tasiyanc — post 10234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیگه تنهایی و بدون استراتژی فرم نبند!
-دنیای پیش‌بینی فوتبال یعنی «دیتای دقیق» به‌علاوه «همفکری با افراد حرفه‌ای». مجموعه ما هر دو رو برات آماده کرده:
-📢 در کانال ما چه خبره؟
-▫️ فرم‌ها و تیپ‌های روزانه بر اساس آمار (BTTS، Over/Under و لاین‌های ارزشمند)
-▫️ تحلیل ترکیب، مصدومان و انگیزه تیم‌ها قبل از بازی
-▫️ آموزش مدیریت سرمایه برای سوددهی بلندمدت
-💬 در گروه (سوپرگپ) چه خبره؟
-▫️ تحلیل زنده بازی‌ها و لایو تیپ در حین تماشای فوتبال
-▫️ تبادل نظر و اشتراک فرم‌ها بین اعضای باسابقه
-▫️ پاسخ به سوالات و استراتژی‌های پیش‌بینی
-━━━━━━━━━━━━━━━
-📌 همین حالا به خانواده ما اضافه شو:
-📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
-💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
 </div>
 
