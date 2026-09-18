@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/27 10:18
+📅 آخرین بروزرسانی: 1405/06/27 15:30
 
 ---
+
+## tasiyanc — post 10299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
+اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
+خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10298
+
+<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
+
++ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10297
+
+<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی !
+توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
+
+یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
+
+عکس مربوط به کلاب M4 Dundas هست
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10296
+
+<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
+تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
+
+مراقب باجناق هاتون باشید🐸
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10289
 
@@ -256,72 +331,5 @@ Location
 🔴شات های جدید عشقتون بانو سیدنی سویینی
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-Join Join Join
-Join Join Join
-</div>
-
-## tasiyanc — post 10263
-
-<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میکس عالی برد شد❤️☑️
-✔️@Tipster_Mafiaa
-</div>
-
-## tasiyanc — post 10260
-
-<div align="center"><video src="files/post_10260_tasiyanc_10260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10260_tasiyanc_10260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10257
-
-<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 خبرگزاری فارس :
-احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
 </div>
 

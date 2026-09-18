@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/27 10:18
+📅 آخرین بروزرسانی: 1405/06/27 15:30
 
 ---
+
+## tasiyanc — post 10264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+Join Join Join
+Join Join Join
+</div>
+
+## tasiyanc — post 10263
+
+<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میکس عالی برد شد❤️☑️
+✔️@Tipster_Mafiaa
+</div>
+
+## tasiyanc — post 10260
+
+<div align="center"><video src="files/post_10260_tasiyanc_10260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10260_tasiyanc_10260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10257
+
+<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 خبرگزاری فارس :
+احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
+
+## tasiyanc — post 10255
+
+<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال
+
+📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
+
+🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
+
+👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
 
 ## tasiyanc — post 10250
 
@@ -288,76 +355,5 @@
 📌 همین حالا به خانواده ما اضافه شو:
 📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
 💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
-</div>
-
-## tasiyanc — post 10233
-
-<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق تحقیقات جدید، از نظر ثبات مالی و ...
-65 سالگی بهترین سن برای ازدواج آقایونه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10232
-
-<div align="center"><video src="files/post_10232_tasiyanc_10232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10232_tasiyanc_10232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت هول بون این شکلی میشه، لطفا درس عبرت بگیرید؛
-
-مرده تو بانک نوبت خودشو میده به یه خانوم ، طرف برنده جایزه بانک میشه با شماره نوبتی که گرفته بود 🤣
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10231
-
-<div align="center"><img src="files/post_10231_tasiyanc_10231.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موندم کیلیان امباپه چجوری میخواد فیلم دوست دخترشو نگاه کنه « مشاهده فیلم 🔞»
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10229
-
-<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10227
-
-<div align="center"><video src="files/post_10227_tasiyanc_10227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10227_tasiyanc_10227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو کیش یه کنسرت ده هزار نفری برگزار شد که دخترا و پسرای ایران‌زمین کنار هم رقصیدن بدون اینکه کسی تحریک شه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10226
-
-<div align="center"><img src="files/post_10226_tasiyanc_10226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
-
-شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
-💋 @Tasiyanc
 </div>
 

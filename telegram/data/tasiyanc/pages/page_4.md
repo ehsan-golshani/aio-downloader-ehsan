@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/27 10:18
+📅 آخرین بروزرسانی: 1405/06/27 15:30
 
 ---
+
+## tasiyanc — post 10329
+
+<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10327
+
+<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
+
+نیرویی خواستید مشتاق همکاری هستیم 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10326
+
+<div align="center"><img src="files/post_10326_tasiyanc_10326.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلترشکن جامپ‌جامپ حواشی های اخیر که میگفتن اطلاعات کاربران به سرقت رفته رو گردن نگرفت و تکذیب کرد
+
+من بودمم تکذیب میکردم 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10325
+
+<div align="center"><img src="files/post_10325_tasiyanc_10325.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جمعی از ستارگان هالیوود در مراسم امی ۲۰۲۶ که دیشب برگزار شد :
+
+پ‌ن کراشاتون لایک نداره؟
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10324
+
+<div align="center"><video src="files/post_10324_tasiyanc_10324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10324_tasiyanc_10324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این کسخل دیشب تو پونک تهران ، از بالای آپارتمان ۳ تا کوکتل مولوتوف سمت مردم پرت کرده و فرار کرده بود
+
+که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10323
 
@@ -231,80 +303,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
 
 ‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
-</div>
-
-## tasiyanc — post 10299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
-اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
-خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10298
-
-<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
-
-+ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10297
-
-<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی !
-توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
-
-یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
-
-عکس مربوط به کلاب M4 Dundas هست
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10296
-
-<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
-تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
-
-مراقب باجناق هاتون باشید🐸
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10295
-
-<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-درصورت ارور چند بار بزنید ⭕️
-🩸 T.me/Tasiyanc
 </div>
 

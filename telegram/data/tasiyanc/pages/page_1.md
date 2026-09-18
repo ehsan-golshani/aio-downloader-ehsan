@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/27 10:18
+📅 آخرین بروزرسانی: 1405/06/27 15:30
 
 ---
+
+## tasiyanc — post 10399
+
+<div align="center"><img src="files/post_10399_tasiyanc_10399.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز ـ رژه بانوان جانفدا در تهران
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10397
+
+<div align="center"><img src="files/post_10397_tasiyanc_10397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10396
+
+<div align="center"><a href="files/post_10396_T A S I Y A N.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 T A S I Y A N.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+لوکیشن 🇸🇪
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10394
+
+<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
+
+خب لامصب یه بار لخت شو بیا 😐
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10393
+
+## tasiyanc — post 10392
 
 ## tasiyanc — post 10390
 
@@ -194,84 +244,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 جهت دریافت کلیک کنید ☝
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10374
-
-<div align="center"><img src="files/post_10374_tasiyanc_10374.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بهداد اقبالی ( ایرانی الاصل ) که مالک شرکت Clearlake Capital است با خرید سهام تادبولی رسما 100 درصد مالکیت باشگاه چلسی رو در اختیار گرفت
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10372
-
-<div align="center"><video src="files/post_10372_tasiyanc_10372.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10372_tasiyanc_10372.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-⭕️ حتما برنامه Npv Tunnel رو آپدیت کنید
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 
-📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10371
-
-<div align="center"><img src="files/post_10371_tasiyanc_10371.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قتل فجیع ۵ نفر از اعضای خانواده در تهران
-
-ساعتی قبل جسد پنج زن و مرد که گفته می‌شود قربانی یک قتل عام خانوادگی شده بودند، در بلوار سیمون بولیوار تهران کشف شد ، عاملان جنایت دستگیر شدند
-
-دوتا برادر بعد از فوت پدرشون تصمیم میگیرن تمام اموال باباشونو بالا بکشن،
-دو تا خواهر و دو برادر و مادر خودشونو به قتل میرسونن و یه چاه میکنن و جنازه هارو میندازن توش و تمام اموالو بالا میکشن، با یه دختر اوکی میشه یکیشون که دختره می‌فهمه خیلی پولدارن مشکوک میشه ، میفهمه خانوادشونو به قتل رسوندن، سریع به پلیس گزارش می‌کنه و دستگیر میشن
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10370
-
-<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10369
-
-<div align="center"><video src="files/post_10369_tasiyanc_10369.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10369_tasiyanc_10369.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیشب تو تهران دوتا دختر با موتورشون چند ساعت پشت یه ماشین تو ترافیک گیر کرده بودن؛ وقتی که خسته میشن، میان پایین و می‌بینن اصلا ماشینه راننده نداره و طرف پارک
-کرده رفته😂
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 165
 
-📅 آخرین بروزرسانی: 1405/06/27 10:18
+📅 آخرین بروزرسانی: 1405/06/27 15:30
 
 ---
+
+## tasiyanc — post 5558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️⭕️
+</div>
+
+## tasiyanc — post 5555
+
+<div align="center"><img src="files/post_5555_tasiyanc_5555.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هم اکنون پرواز هواپیمای سوخت رسان ایالت متحده KC46 Pegasus بر فراز خلیج عمان
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5554
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨به گزارش استانداری بندرعباس منشأ صدا های انفجار در دست بررسی است
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
+</div>
+
+## tasiyanc — post 5552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس :
+صداهای مشابهی در جزایر سیریک و جاسک شنیده شده
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨گزارش‌های تایید نشده حاکی از درگیری بین نیروی دریایی سپاه و نیروی دریایی آمریکا در خلیج عمان و تنگه هرمز است.
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5544
 
@@ -411,60 +455,5 @@ Join @Tasiyanc ✅
 سرعتش عاالیه و اکثرا متصله ( تست کردیم )
 
 ورود به ربات و دریافت لیست
-</div>
-
-## tasiyanc — post 5525
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5524
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5518
-
-<div align="center"><img src="files/post_5518_tasiyanc_5518.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-WİFİ 🚀speed.npvt
-</div>
-
-## tasiyanc — post 5517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5516
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TASIYAN INFO ✅
-t.me/TasiyanOwner
-</div>
-
-## tasiyanc — post 5514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان تست شده 📶
-
-برای اتصال پایدار زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 
