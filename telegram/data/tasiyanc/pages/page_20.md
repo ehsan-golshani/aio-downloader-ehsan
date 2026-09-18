@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 9902
+
+<div align="center"><video src="files/post_9902_tasiyanc_9902.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9902_tasiyanc_9902.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9901
+
+<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9900
 
@@ -250,30 +316,6 @@ sg12
 به اعضای فرقه نوشیدنی انگور حاوی سیانور داده شد. یه عده خودشون نوشیدن و یه عده هم که مقاومت کردن با زور و اجبار مجبور به نوشیدن شدن. تعدادی هم که خواستن فرار کنن، با شلیک نیروهای امنیتی وابسته به جونز کشته شدن.
 
 اون روز مجموعا ۹۱۸ نفر تو جونزتاون کشته شدن که ۲۷۰ نفرشون بچه بودن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9877
-
-<div align="center"><video src="files/post_9877_tasiyanc_9877.dat" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9877_tasiyanc_9877.dat" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9876
-
-<div align="center"><video src="files/post_9876_tasiyanc_9876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9876_tasiyanc_9876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠خدمه‌ی نام هواپیمابر آبراهام لینکلن که چندین ماه در خلیج فارس و جنگ با جمهوری اسلامی حضور داشتن ، به تایلند رسیدن و رفتن چند روزی عشق حال کنن
 
 💋 @Tasiyanc
 </div>

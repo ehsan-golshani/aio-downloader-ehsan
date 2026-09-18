@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 9745
+
+<div align="center"><img src="files/post_9745_tasiyanc_9745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧠معرفی هوش مصنوعی های ساخت ویدیو با دسترسی رایگان
+
+⚡️ برای ساخت ویدیو با هوش مصنوعی میتونید از سرویس های زیر استفاده کنید که هرکدومشون تعداد محدودی کردیت رایگان برای ساخت میدن!
+
+•Gemini Omni : https://flow.google
+
+•Veo 3.1 : https://flow.google
+
+•Wan 2.7 : https://wan.video
+
+•Grok : https://grok.com/imagine
+
+•LTX 2.3 : https://ltx.io/studio
+
+•Kling 3.0 : https://kling.ai/
+
+•Seedance 2.0 : https://dola.com
+﻿
+
+پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9744
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال هانتر بت شو👇
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9743
 
@@ -188,49 +228,5 @@
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9714
-
-<div align="center"><img src="files/post_9714_tasiyanc_9714.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

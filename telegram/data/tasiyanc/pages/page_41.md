@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 9362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9361
+
+<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم تاسیان 🆕
+
+اسم : " Golden Hour Storyboard 🌅″
+
+آموزش استفاده 👉
+
+دریافت پرامپت👉
+
+@TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 9360
 
@@ -220,37 +244,5 @@ g25
 •سرور سرعتی تست شده تمام اپراتور ها ⚡️
 
 ✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
-</div>
-
-## tasiyanc — post 9340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برای همراه اول و بقیه اوپراتور ها
-
-ساب نامحدود - ارسالی از GTXll
-
-https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
-
-آموزش ویدیویی اضافه کردن ساب 💘
-
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

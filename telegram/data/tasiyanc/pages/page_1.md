@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 10408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
+
+دریافت کانفیگ‌ها 👉
+
+به هیچ عنوان از دست ندید گادن 💥
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10407
+
+<div align="center"><video src="files/post_10407_tasiyanc_10407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10407_tasiyanc_10407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترفندای خفن ChatGPT که دیگه لازم نیست برای هر ادیت یا ایده، پرامپت کیلویی بنویسی!
+
+بعضی وقتا کافیه به جای توضیح طولانی، یه دستور کوتاه و دقیق بزنی
+
+/retouch → روتوش چهره و تمیز کردن تصویر
+/outfit → عوض کردن لباس با رفرنس
+/rimlight → اضافه کردن نور حاشیه‌ای
+/upscale → افزایش کیفیت و جزئیات
+/frontangle → تبدیل زاویه به نمای روبه‌رو
+/threequarterangle → نمای سه‌رخ حرفه‌ای
+/profileangle → ساخت نمای نیم‌رخ
+/removebg → حذف کامل پس‌زمینه
+/recolor → تغییر رنگ لباس یا فضا
+/cinematic → تبدیل عکس به حال‌وهوای سینمایی
+/poster → ساخت پوستر خفن از روی عکس
+/avatar → تبدیل عکس به آواتار حرفه‌ای
+/productshot → تبدیل عکس ساده به شات تبلیغاتی
+/expand → باز کردن کادر و ساخت فضای بیشتر
+/cleanup → حذف آیتم‌های اضافه از تصویر
+
+اینا فقط چندتا از دستورای خفنشه؛
+بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10406
 
@@ -222,32 +269,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 نتیجه اش می شود تبلیغی اینچنین که فقر مردم را به سُخره می گیرد.
 
 تقصیر خودمونه برخی از بلاگرای دوزاریو با دکمه فالو شاخ کردیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10384
-
-<div align="center"><video src="files/post_10384_tasiyanc_10384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10384_tasiyanc_10384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده چند تا دختر توی تهران میرن کافه ، بهشون میگن اماکن گیر میده لطفاً حجابتونو رعایت کنین که این صحنه رو خلق میکنن 😂:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10383
-
-<div align="center"><video src="files/post_10383_tasiyanc_10383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10383_tasiyanc_10383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه کافه تو رشت میخواست افتتاح شه که همه چیش صورتی بود ، از وسایلای داخل کافه تا نما و پوشش کارکنانش
-این وسط بعضی از کصمغزا کیر دادن که اینا منظورشون به چیز دیگه‌س از اینکار.
-و اینطوری بخاطر رنگ کافه جلوی افتتاحشو گرفتن و اعلام کردم فلا افتتاح نمیشن
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 10019
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sg16
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10018
+
+<div align="center"><img src="files/post_10018_tasiyanc_10018.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 10017
 
@@ -328,38 +366,6 @@ til.ac/0L4vyJf
 
 
 مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9994
-
-<div align="center"><video src="files/post_9994_tasiyanc_9994.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9994_tasiyanc_9994.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لحظه تصادف وحشتناکی که دیروز تو سنندج رخ داد؛
-انقدر شدت و قدرت انفجار بالا بود که فعلا فقط هویت 6 نفر از 11 کشته این تصادف معلوم شده!
-1. صاحب منصوری — اهل روستای صلوات‌آباد
-2. ارشاد منصوری — اهل روستای صلوات‌آباد
-3. مازیار شکری — اهل سنه (سنندج)
-4. فرزاد ریازی — اهل سنه (سنندج)، بازنشسته اداره راه
-5. یدالله سلیمی — اهل سنه (سنندج)
-6. مهدی زندی پوریان
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9993
-
-<div align="center"><img src="files/post_9993_tasiyanc_9993.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عادی‌ترین پست ترامپ 😂
-
-اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
-+اشاره به شباهت نقشه برعکس ایران با کله خودش
 
 💋 @Tasiyanc
 </div>

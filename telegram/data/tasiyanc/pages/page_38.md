@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 9437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ :
+
+دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
+
+محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9435
 
@@ -225,17 +248,5 @@ https://telegram.me/+dukgrB6-zGsyNGM8
 اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
 همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
 پستها پاک میشه
-</div>
-
-## tasiyanc — post 9414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
 </div>
 

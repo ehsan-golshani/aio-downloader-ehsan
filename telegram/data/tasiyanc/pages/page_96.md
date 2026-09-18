@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 7691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارلو آنجلوتی رید برزیل و حذف کرد
+</div>
+
+## tasiyanc — post 7689
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گللللللللللل برا نروژ 🔥 هالللللند
+</div>
 
 ## tasiyanc — post 7688
 
@@ -173,17 +185,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
-</div>
-
-## tasiyanc — post 7653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فستیوال این مادرقهبه ها تموم نشد؟
-</div>
-
-## tasiyanc — post 7652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-☕⚡Mocha Fast.npvt
 </div>
 

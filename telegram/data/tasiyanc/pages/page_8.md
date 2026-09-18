@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 10217
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم خود مدیر همراه اول و کارکناش از اینترنت اپراتورای دیگه استفاده میکنن ،مگه میشه داده اپراتور به این بزرگی انقد کیری ضعیف باشه یا همیشه اختلال داشته باشه ، هزینه بسته‌ میگیرن چند صد هزارتومان اینم خدماتی که به مردم میدن از روز وصلی اینترنت این اپراتور فقط ۲ بامداد تا ۹ صبح خوبه که همه خوابن نمیبینن
+</div>
+
+## tasiyanc — post 10214
+
+<div align="center"><video src="files/post_10214_tasiyanc_10214.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10214_tasiyanc_10214.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10213
 
@@ -268,49 +303,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10180
-
-<div align="center"><img src="files/post_10180_tasiyanc_10180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

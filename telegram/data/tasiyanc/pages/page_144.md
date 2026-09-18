@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 144
 
-📅 آخرین بروزرسانی: 1405/06/27 22:18
+📅 آخرین بروزرسانی: 1405/06/28 01:03
 
 ---
+
+## tasiyanc — post 6127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡Premium Fast 🗿.npvt
+</div>
+
+## tasiyanc — post 6126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هردفم باید بگیم دیگه ری اکشنو😭
+</div>
 
 ## tasiyanc — post 6124
 
@@ -170,23 +182,5 @@ https://play.google.com/store/apps/details?id=com.zaneschepke.wireguardautotunne
 🚨خبرگزاری تسنیم:
 استعفای پزشکیان کذب است
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6102
-
-<div align="center"><img src="files/post_6102_tasiyanc_6102.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی پزشکیان استعفاء داد تایید شده نیست
-</div>
-
-## tasiyanc — post 6101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-غیر رسمی
-
-پزشکیان استعفاء داد
-
-تایید شده نیست
 </div>
 
