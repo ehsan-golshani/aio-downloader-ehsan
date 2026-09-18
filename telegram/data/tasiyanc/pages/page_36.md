@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/06/27 19:02
+📅 آخرین بروزرسانی: 1405/06/27 22:18
 
 ---
+
+## tasiyanc — post 9481
+
+<div align="center"><video src="files/post_9481_tasiyanc_9481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9481_tasiyanc_9481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی استان زنجان اطراف ترمینال شهرستان ابهر دو تا دختر ۱۷ ساله به این شکل رفتن تو تریلی و الان حالشون وخیم و در کما هستن
+
++ تصادف با موتورسیکلت کمترین بهاش اینه که دست پای ادم می‌شکنه به خانواده هاتون رحم کنید لاقل کلاه ایمنی بزارید
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوررری
+🚨سنتکام:
+گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9479
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماه تولدت با کدوم رهبر ایرانی یکی بوده؟!
+
+فروردین = علی خامنه‌ای
+اردیبهشت = داریوش بزرگ
+خرداد = خشایارشاه
+تیر = ناصرالدین شاه قاجار
+مرداد = انوشیروان دادگر
+شهریور = کوروش بزرگ
+مهر = نادرشاه افشار
+آبان = محمدرضا شاه
+آذر = شاه عباس
+دی = کریم‌خان زند
+بهمن = بهرام گور
+اسفند = رضا شاه
+
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9478
 
@@ -363,34 +409,5 @@ https://t.me/+J_q7c-COftQzOGM0
 🔗 آدرس عضویت کانال vip:
 https://t.me/+J_q7c-COftQzOGM0
 https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه اتکر شروع بکار کرد کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن عضو بشید به پیام پین شده توجه کنید میگم چیکار میکنیم https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه اتکر شروع بکار کرد
-
-کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن
-عضو بشید به پیام پین شده توجه کنید
-میگم چیکار میکنیم
-
-https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9455
-
-<div align="center"><img src="files/post_9455_tasiyanc_9455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینترنشنال : آمریکا برای پنج هکر جمهوری اسلامی ۱۰ میلیون دلار جایزه گذاشت
-برنامه «پاداش برای عدالت» وزارت خارجه آمریکا اعلام کرد برای ارائه اطلاعات درباره پنج مرد متهم به هک و سرقت دادههای مرتبط با آمریکا و متحدانش از سوی جمهوری اسلامی، تا سقف ۱۰ میلیون دلار جایزه تعیین کرده است.
-
-@Tasiyanc ⭐️
 </div>
 

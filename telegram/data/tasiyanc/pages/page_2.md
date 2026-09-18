@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/27 19:02
+📅 آخرین بروزرسانی: 1405/06/27 22:18
 
 ---
+
+## tasiyanc — post 10382
+
+<div align="center"><img src="files/post_10382_tasiyanc_10382.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10381
+
+<div align="center"><img src="files/post_10381_tasiyanc_10381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 علی ضیا (مجری حکومتی) همراه با همسرش در ایتالیا ...
+
++ امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
+عکسها با کیفیت شدن✅
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10380
+
+<div align="center"><img src="files/post_10380_tasiyanc_10380.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تو کشور روسیه تعداد زنان 10 میلیون بیشتر از مرد هاست و بسیاری از اونا به‌دنبال شریك زندگی برای ازدواج هستن که پیدا نمیشه .
+بخاطر جنگ با اوکراین حتی مهاجر هم کم شده و امکان ازدواج ندارن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10379
 
@@ -253,45 +286,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 🔴 شاید باورش براتون سخت باشه ولی ایشون دختر نیست و ی فمبوی(پسر) ایرانیه که بخاطر زیباییش حسابی وایرال شده :
 
 +پسرا خیلی روش کراش زدن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10358
-
-<div align="center"><img src="files/post_10358_tasiyanc_10358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق تحقیقات دانشمندان «نهنگ آبی»
-دارای بزرگ‌ترین آلت تناسلی در کل قلمرو حیوانات از نظر اندازه است. آلت تناسلی این پستاندار عظیم‌الجثه به ۳ متر می‌رسد با قطر ۳۰ سانتی‌متری.
-نکته جالب توجه «حلزون لیسک موزی» طول آلتش برابر با اندازه کل بدنش (حدود ۱۵ تا ۲۰ سانتی‌متر) هستش
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10357
-
-<div align="center"><video src="files/post_10357_tasiyanc_10357.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10357_tasiyanc_10357.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بازیگر ایرانی معروف ( فیلمای پو*رن) : ایرانی با پرچم اسرائیل بیناموسه!
-ـ بنظرم اینم میخواد بیاد ایران و بره صداسیما بگه توبه کردیم مشتی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10356
-
-<div align="center"><video src="files/post_10356_tasiyanc_10356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10356_tasiyanc_10356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مدرسه پسرونه وقتی یه دختر میاد تو حیاط :
 
 
 💋 @Tasiyanc

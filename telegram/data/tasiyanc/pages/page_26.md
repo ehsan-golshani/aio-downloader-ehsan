@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/27 19:02
+📅 آخرین بروزرسانی: 1405/06/27 22:18
 
 ---
+
+## tasiyanc — post 9743
+
+<div align="center"><img src="files/post_9743_tasiyanc_9743.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
+
+## tasiyanc — post 9741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9739
 
@@ -204,38 +232,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9708
-
-<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9707
-
-<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مردی که میبینید اسمش جیسون کوئیج هستش
-
-جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تیم ملی والیبال زنان ایران چهارم آسیا شد
-
-🏐 تیم ملی والیبال زنان ایران در دیدار رده‌بندی رقابت‌های قهرمانی آسیا ۲۰۲۶ با نتیجه ۳ بر صفر مغلوب ژاپن شد و به رتبه چهارم آسیا دست یافت
-
-+ درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
-
-💋@Tasiyanc
 </div>
 

@@ -1,8 +1,64 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/27 19:02
+📅 آخرین بروزرسانی: 1405/06/27 22:18
 
 ---
+
+## tasiyanc — post 9875
+
+<div align="center"><video src="files/post_9875_tasiyanc_9875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9875_tasiyanc_9875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با انجام دادن این حرکات ورزشی، قوز کمرتان را اصلاح کرده و درد شانه‌ را برطرف کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9873
+
+<div align="center"><img src="files/post_9873_tasiyanc_9873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9870
 
@@ -284,41 +340,5 @@ sa11
 sg11
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9849
-
-<div align="center"><video src="files/post_9849_tasiyanc_9849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9849_tasiyanc_9849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9848
-
-<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9846
-
-<div align="center"><video src="files/post_9846_tasiyanc_9846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9846_tasiyanc_9846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیروز توی تبریز برای اولین بار ایونت مد و فشن برگزار شد:
-
-💋 @Tasiyanc
 </div>
 

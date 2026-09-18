@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/06/27 19:02
+📅 آخرین بروزرسانی: 1405/06/27 22:18
 
 ---
+
+## tasiyanc — post 9708
+
+<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9707
+
+<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مردی که میبینید اسمش جیسون کوئیج هستش
+
+جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تیم ملی والیبال زنان ایران چهارم آسیا شد
+
+🏐 تیم ملی والیبال زنان ایران در دیدار رده‌بندی رقابت‌های قهرمانی آسیا ۲۰۲۶ با نتیجه ۳ بر صفر مغلوب ژاپن شد و به رتبه چهارم آسیا دست یافت
+
++ درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9705
 
@@ -253,61 +286,5 @@ https://Winamit.com/fa
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9683
-
-<div align="center"><img src="files/post_9683_tasiyanc_9683.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۲۰ تا از برترین گیم‌ها برای موبایل از نگاه کاربران ۲۰۲۶
-
-+ بازی efutball از قلم افتاده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9681
-
-<div align="center"><img src="files/post_9681_tasiyanc_9681.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
