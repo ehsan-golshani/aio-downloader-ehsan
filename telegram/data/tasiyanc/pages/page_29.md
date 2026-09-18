@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 9636
+
+<div align="center"><video src="files/post_9636_tasiyanc_9636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9636_tasiyanc_9636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - وبگردی
+
+تست شده تمام نت‌ها
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+⭕️ در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9634
 
@@ -312,31 +347,6 @@ til.ac/0L4vyJf
 اعتراض کردن در ایران بسیار دشوار است، به خصوص زمانی که افرادی حاضرند شما را به قتل برسانند. به همین دلیل است که مردم در ایران اعتراض نمی‌کنند.
 و این احتمال وجود دارد که [رژیم] ایران به شدت تضعیف شود... بسیاری از سربازان آنها حقوق دریافت نمی‌کنند.
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9614
-
-<div align="center"><img src="files/post_9614_tasiyanc_9614.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هکر ها دوس دارن شما این 5 کار رو انجام بدید تا به راحتی به اطلاعاتتون دسترسی پیدا کنند
-
-+ حتما مراقب باشید این روزا ممکنه سر همه بیاد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9613
-
-<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
-
-+ قهرمان ایران مسعود ذات‌پرور هست نه تو
 
 🩸 @Tasiyanc
 </div>

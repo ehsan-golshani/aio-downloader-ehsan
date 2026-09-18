@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Mix_Safe @miix_viip
+هر هفته قرعه کشی داریم 😏👆👆
+
+فرم های شرطبندی با آنالیز های حرفه ای📊
+#VIP #رایگان 🛡️
+</div>
+
+## tasiyanc — post 10224
 
 ## tasiyanc — post 10223
 
@@ -221,36 +233,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10190
-
-<div align="center"><img src="files/post_10190_tasiyanc_10190.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی فیلترشکن رایگان GoFly VPN
-
-یکی از فیلترشکن‌های محبوب و کاملاً رایگان که بیش از ۱ میلیون نصب در گوگل‌پلی داره و با تمام اپراتور های ایران وصله
-
-
-• کاملاً رایگان (بدون اشتراک و خرید درون‌برنامه‌ای)
-• پهنای باند نامحدود
-• اتصال یک‌کلیکی و ساده
-• پشتیبانی از V2ray / Trojan / SOCKS5
-• مناسب برای اینستاگرام، یوتیوب و شبکه‌های اجتماعی و هوش مصنوعی
-دارای دو نسخه اندروید و ویندوز 🪟👽
-
-🔗 https://goflyvpn.com/
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10026
+
+<div align="center"><video src="files/post_10026_tasiyanc_10026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10026_tasiyanc_10026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پدر جاویدنام ایلیا اجاقلو در اعتراض به تخریب تصویر مزار فرزندش تصاویر برادرانش را که در جنگ هشت ساله عراق شهید شده بودند را پایین کشید .
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اعتصاب رانندگان اسنپ
+
+رانندگان اسنپ قراره از ۱۲ شب (۱۷ شهریور) به علت کرایه پایین، کمسیون بالا، گرونی بنزین، گرونی روغن موتور یک روز اعتصاب کنند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10022
 
@@ -304,33 +326,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9999
-
-<div align="center"><video src="files/post_9999_tasiyanc_9999.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9999_tasiyanc_9999.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سالم ترین دیس برا صنعت بدنسازی🤣 :
-
-+ چند نفر بدن سوز داریم تو کانال؟
-
-🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
-
-👈 دریافت کانفیگ اختصاصی OpenVpn 📱
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9998
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

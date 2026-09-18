@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10367
+
+<div align="center"><img src="files/post_10367_tasiyanc_10367.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
+⁉️
+
+
+🔥کمپانی بین المللی We pari همون انتخاب
+🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+
+🔥کانال اطلاع رسانی ایران:👇🅰r2‌6
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
+
++ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10365
 
@@ -303,39 +348,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10345
-
-<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
-
-سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
-ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10344
-
-<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
-
-Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
-Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
 </div>
 

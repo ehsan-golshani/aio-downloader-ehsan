@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 9294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خوبید چخبرا؟
+</div>
+
+## tasiyanc — post 9290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️اختصاصی وایرگارد
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+دانلود 📱Android🕹  iOS
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9289
 
@@ -98,8 +125,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 </div>
 
 ## tasiyanc — post 9267
-
-## tasiyanc — post 9266
-
-## tasiyanc — post 9265
 

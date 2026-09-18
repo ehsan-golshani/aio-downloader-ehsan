@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 9835
+
+<div align="center"><img src="files/post_9835_tasiyanc_9835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قاتل سریالی ای که باید براش سر تعظیم فرود آورد 💀
+
+آقای توی عکس اسمش پدرو رودریگزه، و برزیلیه، یه باند خلافکار دوس دختر باردارشو به قتل میرسونن،اونم میفته دنبال این گروه و تمام اعضای این گروه که ۳۰ نفرو بودنو میکشه بعد از این قتل ها میفته زندان و چندین سال از عمرشو تو زندان میمونه
+تو زندان هم ۴۷ زندانی که اکثرشون پدوفیل و یا متجاوز بودن رو هم به قتل میرسونه، با اینکه یک قاتل سریالیه تو برزیل بشدت براش احترام قائلن.
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9833
 
@@ -232,24 +254,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨تسنیم:
 آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوررری
-
-حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
 
 🩸 @Tasiyanc
 </div>

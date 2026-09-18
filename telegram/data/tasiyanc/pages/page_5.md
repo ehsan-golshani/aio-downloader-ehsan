@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10289
+
+<div align="center"><img src="files/post_10289_tasiyanc_10289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاشقانه‌ترین عکسی که میتونی با پارتنرت بسازی 💕
+
+Prompt 🤖🤖
+
+Keep faces 100% similar to reference photos A detailed medium close-up, candid portrait photograph of a young, attractive couple in a tender, romantic embrace on a beach. The man, with dark hair and a beard, is on the left, wearing a vintage-style brown t-shirt with beige gothic-style text and graphic prints on the back. He holds the woman close, his arms around her waist. The woman, with long blonde hair emerging from under a black baseball cap worn backwards, is on the right, wearing a dark olive-green coverall. She has bold red lipstick and her eyes are closed as she reaches up with both hands, gently cupping the man’s face, their faces very close for a soft, imminent kiss (a nose-to-nose or soft cheek kiss). The background is a soft-focus, overcast beach scene with gray-blue sea waves and a hazy, indistinct horizon. Natural, diffuse, and gentle lighting. The image is clean and completely devoid of any text, status bars, or watermarks. Canvas: 9:16
+
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: giftcodeir
+
+🤝 اسپانسر رسمی جام جهانی
+🔵 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 آموزش ثبت نام و واریز
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10287
 
@@ -290,47 +323,5 @@ Join Join Join
 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
 
 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10250
-
-<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی نامحدود OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون 
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10249
-
-<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
-
-
-💋 @Tasiyanc
 </div>
 

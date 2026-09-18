@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10390
+
+<div align="center"><video src="files/post_10390_tasiyanc_10390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10390_tasiyanc_10390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴استایل بانو سیدنی سویینی دیشب در اکران سریالش :
+
+حالا که به چشم خریدار نگاه میکنم میبینم سیدنی سویینی خیلی بدم نیست و من داشتم کفران نعمت میکردم 🤣
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10389
+
+<div align="center"><video src="files/post_10389_tasiyanc_10389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10389_tasiyanc_10389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این روزا سر مرد ایرانی تو دنیا دعواس!
+
+صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
+مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10388
 
@@ -245,50 +273,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
 وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
 https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10367
-
-<div align="center"><img src="files/post_10367_tasiyanc_10367.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
-⁉️
-
-
-🔥کمپانی بین المللی We pari همون انتخاب
-🔥
-
-            👑سایتی برای حرفه ای ها👑
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-💖تسویه حساب سریع و بدون احراز
-💖دارای مجوز رسمی Anjuan و curacao
-😃😃😃😃
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-👑دانلود اپلیکیشن اندروید➡️
-
-🔥کانال اطلاع رسانی ایران:👇🅰r2‌6
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حمید رسایی:
-
-بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
-
-+ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
-
-💋 @Tasiyanc
 </div>
 

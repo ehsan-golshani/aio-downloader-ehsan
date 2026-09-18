@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 9728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9723
 
@@ -270,38 +296,5 @@ til.ac/0L4vyJf
 جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 9694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-(نسخه جدید دانلود کنید کانفیگای قبلی پاک کنید جدیدارو بزنید)
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9690
-
-<div align="center"><video src="files/post_9690_tasiyanc_9690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9690_tasiyanc_9690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 چند روز پیش توی باشگاه انقلاب تهران مسابقات و ایونت تنیس برگزار شد که حسابی سر و صدا کرده:
-
-💋@Tasiyanc
 </div>
 

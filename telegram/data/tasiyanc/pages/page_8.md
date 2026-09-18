@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10190
+
+<div align="center"><img src="files/post_10190_tasiyanc_10190.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠معرفی فیلترشکن رایگان GoFly VPN
+
+یکی از فیلترشکن‌های محبوب و کاملاً رایگان که بیش از ۱ میلیون نصب در گوگل‌پلی داره و با تمام اپراتور های ایران وصله
+
+
+• کاملاً رایگان (بدون اشتراک و خرید درون‌برنامه‌ای)
+• پهنای باند نامحدود
+• اتصال یک‌کلیکی و ساده
+• پشتیبانی از V2ray / Trojan / SOCKS5
+• مناسب برای اینستاگرام، یوتیوب و شبکه‌های اجتماعی و هوش مصنوعی
+دارای دو نسخه اندروید و ویندوز 🪟👽
+
+🔗 https://goflyvpn.com/
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10189
 
@@ -340,48 +370,6 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
 
 جهت دریافت کانفیگ ها کلیک کنید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛ ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار! تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی . 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10161
-
-<div align="center"><img src="files/post_10161_tasiyanc_10161.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده کاپلی تهران دهه 50 👑
-
-« Prompt »
-
-Create a highly photorealistic authentic 35mm color film photograph of the two people from the uploaded reference photos, as a young couple in Tehran, Iran, circa 1960.
-
-IDENTITY IS THE HIGHEST PRIORITY: Person 1 must remain clearly recognizable from reference 1, and Person 2 from reference 2. Preserve their exact facial identity, proportions, eyes, nose, lips, jawline, skin tone, hair and distinctive features. No face swapping, merging, beautification, generic faces or identity changes.
-
-Composition: Vertical 3:4, eye-level, vintage 50mm lens look, framed from knees/thighs upward. Person 1 on the left, Person 2 on the right. They stand close together, looking naturally at the camera. Person 2 has one arm gently around Person 1's shoulders, heads slightly leaning together. Person 1 holds a small cream vintage handbag with both hands.
-
-Person 1: Late-1950s/early-1960s sage-green and cream gingham dress, fitted waist, modest rounded neckline, ivory gloves, pearl/cream clip-on earrings, elegant period updo with cream headband, subtle vintage makeup and natural skin texture.
-
-Person 2: Dark charcoal-brown tailored vintage suit, broad lapels, white shirt, narrow patterned dark tie, silver tie clip and white pocket square. Classic period hairstyle; preserve facial hair if present in reference.
-
-Background: Authentic Tehran street circa 1960, old cinema entrance directly behind them with a marquee reading “TEHRAN” and subtle period movie lettering. Upper-right: vintage Iranian movie poster with Persian text “زندگی زیباست”. Include period architecture, pedestrians, trees and storefronts. Lower-left: partially visible pale turquoise/mint 1950s American classic car with chrome and round headlights.
-
-Film look: Authentic faded Kodachrome-style colors, warm beige/brown/sage/cream/dusty turquoise palette, soft afternoon light, natural skin, slightly soft vintage lens, fine grain, subtle film noise, faded colors, low-medium contrast, gentle sepia warmth, realistic depth of field.
-
-Add strong physical aging only around the outer edges: worn cream border, chipped/scratched corners, dust, emulsion scratches, faded patches, paper wear, light leaks and distressed antique-print texture. Keep the center—especially both faces—clean, sharp and recognizable.
-
-Avoid: modern buildings/cars/fashion/hairstyles, smartphones, HDR, plastic skin, beauty filters, altered identities, generic faces, anatomy errors, extra fingers, duplicated people, excessive blur, CGI, illustration or painting.
-
-Final result: A believable rediscovered real color photograph from Tehran around 1960, romantic, nostalgic and historically authentic.
-
-آموزش استفاده و ساخت تصویر➡️
 
 
 💋 @Tasiyanc

@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/27 02:44
+📅 آخرین بروزرسانی: 1405/06/27 10:18
 
 ---
+
+## tasiyanc — post 10323
+
+<div align="center"><video src="files/post_10323_tasiyanc_10323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10323_tasiyanc_10323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز هواپیمای مشهد به کرمانشاه نقص فنی پیدا می‌کنه تو آسمون و نزدیک بود سقوط کنه .
+
+یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10321
+
+<div align="center"><video src="files/post_10321_tasiyanc_10321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10321_tasiyanc_10321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو وایرال شده مسابقات جهانی اسپنک زنی زنان که حسابی این مسابقات طرفدار پیدا کرده :
+
+از دیدگاه افراد جقی این مسابقات جذابیت بیشتری نسبت به فوتبال دارد.
+
+💧 مشاهده ویدیو کامل مسابقات
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10320
 
@@ -277,38 +306,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 
 درصورت ارور چند بار بزنید ⭕️
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10289
-
-<div align="center"><img src="files/post_10289_tasiyanc_10289.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاشقانه‌ترین عکسی که میتونی با پارتنرت بسازی 💕
-
-Prompt 🤖🤖
-
-Keep faces 100% similar to reference photos A detailed medium close-up, candid portrait photograph of a young, attractive couple in a tender, romantic embrace on a beach. The man, with dark hair and a beard, is on the left, wearing a vintage-style brown t-shirt with beige gothic-style text and graphic prints on the back. He holds the woman close, his arms around her waist. The woman, with long blonde hair emerging from under a black baseball cap worn backwards, is on the right, wearing a dark olive-green coverall. She has bold red lipstick and her eyes are closed as she reaches up with both hands, gently cupping the man’s face, their faces very close for a soft, imminent kiss (a nose-to-nose or soft cheek kiss). The background is a soft-focus, overcast beach scene with gray-blue sea waves and a hazy, indistinct horizon. Natural, diffuse, and gentle lighting. The image is clean and completely devoid of any text, status bars, or watermarks. Canvas: 9:16
-
-
-آموزش استفاده ➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10288
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: giftcodeir
-
-🤝 اسپانسر رسمی جام جهانی
-🔵 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 آموزش ثبت نام و واریز
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 
