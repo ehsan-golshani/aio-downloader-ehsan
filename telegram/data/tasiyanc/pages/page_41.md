@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/27 15:30
+📅 آخرین بروزرسانی: 1405/06/27 19:02
 
 ---
+
+## tasiyanc — post 9356
+
+<div align="center"><img src="files/post_9356_tasiyanc_9356.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استوری های جدید جول فرشاد: رامین رضائیان من رو به تریسام دعوت کرد!
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺فرمانده کل ارتش : به ازای کشتن هر سرباز آمریکایی ۳۰ هزار دلار جایزه بگیرید
+فرمانده کل ارتش در مراسم روز ‌خبرنگار: با مشارکت مردم، اگر هر نیروی ایرانی بتواند یک نیروی آمریکایی متجاوز‌ را دستگیر یا بکشد، ‏از طرف مردم ایران جایزه ۳۰ هزار‌دلاری‌ دریافت خواهد کرد.
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سردار باقرزاده : سه خلبان ایرانی زنده و در اسارت قطری ها هستند
+
+«جواد صالحی , عبدالمجید دشتیان ، عمران به‌روشیان » از ۶ ماه پیش بعد از اصابت هواپیمایشان ( سوخو۲۴) در اسارت نیروهای قطری هستند همچنین ارتش قطر اجازه مصاحبه ، ملاقات ، تماس هم بهشون نداده است.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9353
+
+<div align="center"><video src="files/post_9353_tasiyanc_9353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9353_tasiyanc_9353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیث لجر ستاره هالیوود ، افسانه ای که در نقش «جوکر» غرق شد و در نهایت در ۲۸ سالگی و چند ماه پس از اکران فیلم از دنیا رفت !
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9352
 
@@ -207,48 +249,5 @@ https://raw.githubusercontent.com/Hajmeti40/V2rayTun0/refs/heads/main/README.md
 🔊اپلیکیشن حرفه ای 📱
 sr25
     🎲🎲🎲🎲🎲  معتبرترین سایت ایران
-</div>
-
-## tasiyanc — post 9336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن multi📍
-
-•آموزش اتصال ⚡️
-
-توجه :  اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9335
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪐 05.conf
-</div>
-
-## tasiyanc — post 9332
-
-<div align="center"><img src="files/post_9332_tasiyanc_9332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸🇰🇵دونالد ترامپ در شبکه اجتماعی Truth Social:
-
-«با وجود چهره ناخوشایند در این تصویر خاص، عکس‌های زیادی وجود دارد که در آنها لبخند می‌زنیم؛ من و کیم جونگ اون رابطه بسیار خوبی داریم!»
-
-
-@Tasiyanc ☑️
-</div>
-
-## tasiyanc — post 9331
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
 </div>
 

@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/06/27 15:30
+📅 آخرین بروزرسانی: 1405/06/27 19:02
 
 ---
+
+## tasiyanc — post 5499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5498
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کدوم بزاریم ؟
+NPV ❤️
+
+Psiphon v2Ray 🔥
+</div>
+
+## tasiyanc — post 5497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5496
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Password @Tasiyanc
+
+📶اختصاصی تاسیان 2 سرور تست شده 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5495
 

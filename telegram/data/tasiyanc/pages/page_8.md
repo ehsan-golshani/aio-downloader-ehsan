@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/27 15:30
+📅 آخرین بروزرسانی: 1405/06/27 19:02
 
 ---
+
+## tasiyanc — post 10208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
+مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
+</div>
+
+## tasiyanc — post 10206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
+</div>
+
+## tasiyanc — post 10205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان
+
+منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان این درگیری‌ها دست‌کم سه دستگاه خودروی نظامی و زرهی نیروهای امنیتی هدف قرار گرفته‌اند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10204
 
@@ -284,68 +315,6 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 
 
 آموزش استفاده از پرامپت➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با اعلام رئیس سازمان سنجش نتایج اولیه کنکور تا پایان شهریور ماه یا هفته اول مهر ماه منتشر میشه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10174
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه مبلغی‌رو اشتباهی واریز کردید میتونید در ساعت اولیه با شماره های زیر (پشتیبانی) تماس بگیرید و بهشون بگید واریز اشتباه انجام دادید تا پولتون سریع برگرده حسابتون
-
-•بانک ملی ایران - 09622
-
-•بانک کشاورزی - 02187611
-
-•بانک دی - 02128930
-
-•بانک صادرات - 09602
-
-•بانک مسکن - 5941
-
-•بانک تجارت - 1554
-
-•بانک سپه - 1557
-
-•بانک ملت - 1556
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10173
-
-<div align="center"><video src="files/post_10173_tasiyanc_10173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10173_tasiyanc_10173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟣 این قسمت پیک موتوری اسنپ‌فود
-
-دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
-فکر کنم دستشم تمیز باشه
-بعد به دست مشتری میرسونه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10171
-
-<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
-
-یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
 
 💋 @Tasiyanc
 </div>

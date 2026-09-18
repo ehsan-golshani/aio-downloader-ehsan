@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/27 15:30
+📅 آخرین بروزرسانی: 1405/06/27 19:02
 
 ---
+
+## tasiyanc — post 9454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معاونت پلیس فتا:
+
+متاسفانه یه پلتفرم فروش آنلاین طلا با ۲۰۰ هزار کاربر، ورشکسته شد و علتش هم خالی فروشی بود.
+
++ مراقب باشید به هیچ وجه تو هیچ برنامه و سایتی طلا و نقره فیزیکی نخرید
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعدادی DNS برای گیمر های عزیز 😎
+
+IPv4
+DNS 1⚡️
+
+84.200.69.80
+
+DNS 2⚡️
+
+84.208.90.42
+
+
+DNS 1⚡️
+
+114.114.114.114
+
+DNS 2⚡️
+
+78.160.38.248
+
+
+IPv6
+DNS 1⚡️
+
+2a00:801::856b:0fb8:c
+
+DNS 2⚡️
+
+2a00:801::856b:5b73:b
+
+
+DNS 1 ⚡️
+
+2a02:ff01:3344::2903:91b0:c
+
+DNS 2 ⚡️
+
+2a02:ff01:3344::2903:de59:b
+
+
+لینک DNS Changer اندروید
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9450
+
+<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 19 August، روز جهانی عکاسیه📸
+یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9448
 
@@ -249,55 +331,5 @@ Decarys 🔥.ovpn
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 9432
-
-<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
-
-پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برید به ChatGpt بگید ...
-
-Roast me , no filter , no mercy
-
-اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
-
-#N
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بلومبرگ میگه با رد ترامپ واسه تمدید دوباره آتش بس دیگه امیدی واسه صلح ایران و آمریکا نیست.
-
-#N
-@Tasiyanc ✅
 </div>
 
