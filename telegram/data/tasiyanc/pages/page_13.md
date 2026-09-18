@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/28 01:03
+📅 آخرین بروزرسانی: 1405/06/28 03:16
 
 ---
+
+## tasiyanc — post 10080
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
+
+💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
+فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
+
+🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
+🌐 www.MelBet1.com
+
+🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
+
+نکته: فقط این هفته فعاله، پس از دستش نده 🙂
+
+🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 10079
+
+<div align="center"><video src="files/post_10079_tasiyanc_10079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10079_tasiyanc_10079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔸فیلم خارق‌العاده کمتر دیده شده از پرواز موشک‌ که میره از جو خارج میشه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10078
 
@@ -277,30 +311,6 @@ sg17
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10043
-
-<div align="center"><img src="files/post_10043_tasiyanc_10043.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شرط‌های پدر عروس () واسه داماد گذاشته :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10042
-
-<div align="center"><video src="files/post_10042_tasiyanc_10042.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10042_tasiyanc_10042.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به گفته پزشکیان رفع فیلتر مرحله ای از فردا قراره شروع شه و تا پایان شهریور ۶۰ درصد سیمکارت‌ها میتونن بدون فیلتر از اینستاگرام استفاده کنن.
-
-
 💋 @Tasiyanc
 </div>
 

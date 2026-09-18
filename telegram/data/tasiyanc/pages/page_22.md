@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/28 01:03
+📅 آخرین بروزرسانی: 1405/06/28 03:16
 
 ---
+
+## tasiyanc — post 9856
+
+<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
+
+ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9855
+
+<div align="center"><video src="files/post_9855_tasiyanc_9855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9855_tasiyanc_9855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید فکر کنید پسرا دنبال زیبایی و هیکل خوبن‌، ولی تنها چیزی که یه مرد میخواد همچین دختریه که تو هر شرایطی کنارش باشه.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9854
 
@@ -315,29 +345,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9832
-
-<div align="center"><video src="files/post_9832_tasiyanc_9832.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9832_tasiyanc_9832.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لحظه ی برخورد موشک به پایگاه آمریکا در اردن
-
-
-🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9831
-
-<div align="center"><video src="files/post_9831_tasiyanc_9831.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9831_tasiyanc_9831.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
-🩸 @Tasiyanc
 </div>
 

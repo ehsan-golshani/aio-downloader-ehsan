@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/28 01:03
+📅 آخرین بروزرسانی: 1405/06/28 03:16
 
 ---
+
+## tasiyanc — post 10220
+
+<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویت شده در تجمعات شبانه 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10218
+
+<div align="center"><img src="files/post_10218_tasiyanc_10218.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رزی عضور گروه بلک پینک بعد از معرفی سری ۱۸ اپل پستی با ایفون ۱۸ پرومکس چری در اینستاگرام منتشر کرد که به نظر میاد فتوشاپ شده باشه و حالا کامنت های زیر این پست مورد توجه رسانه قرار گرفته.
+کامنت اکانت سامسونگ :اگه یه گوشی واقعی می‌خواستی می‌تونستی بهمون بگی.
+کامنت اکانت پیکس ارت :دفعه بعد از پیکس‌ارت استفاده کن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10217
 
@@ -240,68 +262,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 🔥 کانال تلگرام وی پاری:
 ✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10188
-
-<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-🍏 آموزش برای کاربران iOS
-
-🌐 لینک ورود به سایت👇
-
-🔥 til.ac/PJHVQSm
-🔥 til.ac/PJHVQSm
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
-</div>
-
-## tasiyanc — post 10184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 T.me/Tasiyanc
 </div>
 

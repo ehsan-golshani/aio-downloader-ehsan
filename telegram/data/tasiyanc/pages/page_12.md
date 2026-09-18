@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/28 01:03
+📅 آخرین بروزرسانی: 1405/06/28 03:16
 
 ---
+
+## tasiyanc — post 10101
+
+<div align="center"><video src="files/post_10101_tasiyanc_10101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10101_tasiyanc_10101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیوهای وایرال‌شده از بانو تیلور سوئیفت ( کراش خیلیا ) در کنسرت جدیدش
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺ترامپ: ایرانی‌ها تمام تلاششان را می‌کنند تا روی نتیجه انتخابات ما اثر بگذارند، به این امید که یک گروه ضعیف روی کار بیاید تا کاری به کار آن‌ها نداشته باشد و بگذارد به سلاح هسته‌ای برسند
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10098
 
@@ -251,39 +272,5 @@ Tasiyan | تاسیان pinned a photo
 
 🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
 ✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 10079
-
-<div align="center"><video src="files/post_10079_tasiyanc_10079.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10079_tasiyanc_10079.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔸فیلم خارق‌العاده کمتر دیده شده از پرواز موشک‌ که میره از جو خارج میشه
-
-
-💋 @Tasiyanc
 </div>
 
