@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 9970
+
+<div align="center"><video src="files/post_9970_tasiyanc_9970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9970_tasiyanc_9970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه سپاه:
+امروز واسه پاسخ به حمله آمریکا، 3 نفتکش تو مسیر غیرمجاز تنگه هرمز + 3 شناور وابسته به آمریکا رو تو یه منطقه دیگه زدیم!
+فریب آمریکا رو نخورید، از هر راهی غیر از اون مسیر مجاز برید، بهتون شلیک میشه...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9969
 
@@ -247,22 +261,5 @@ sg14
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9944
-
-<div align="center"><video src="files/post_9944_tasiyanc_9944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9944_tasiyanc_9944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌حسین پاک، خبرنگار صداوسیما حوزه لبنان:
-منتظر بیانیه حزب‌الله هستیم ولی چیزی که معلومه اینه که علی الطاهر سقوط کرده و به دست اسرائیل افتاده!
-رزمنده‌ها تو علی الطاهر محاصره شدن و امکان ارسال غذا و اسلحه بهشون نیست.
-شرایط اونجا کاملا عاشورایی شده.
-میشه اسرائیل رو فرستاد عقب، حمله نظامی تاثیر داره.
-5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
-
-💋@Tasiyanc
 </div>
 

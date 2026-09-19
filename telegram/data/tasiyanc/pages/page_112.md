@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 7131
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ذات تاسیان؟
+</div>
 
 ## tasiyanc — post 7130
 
@@ -220,12 +226,5 @@ T.me/Tasiyanc ✅
 آموزش اتصال به سرور دارک ⏩
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ: یادداشت با ایران نهایی نیست. اگر از توافق خوشمان نیاید، دوباره به بمباران بازمی‌گردیم
-@Tasiyanc✅
 </div>
 

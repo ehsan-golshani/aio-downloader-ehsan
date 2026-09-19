@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 10335
+
+<div align="center"><img src="files/post_10335_tasiyanc_10335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
 
 ## tasiyanc — post 10334
 
@@ -259,13 +271,5 @@
 کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

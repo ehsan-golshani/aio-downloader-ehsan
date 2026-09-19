@@ -1,8 +1,101 @@
 # آرشیو کانال VahidOOnLine - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/06/28 21:39
+📅 آخرین بروزرسانی: 1405/06/29 00:07
 
 ---
+
+## VahidOOnLine — post 259095
+
+<div align="center"><img src="files/post_259095_VahidOOnLine_259095.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همزمان با آغاز حملات ارتش آمریکا به نفتکش‌های ایرانی در نزدیکی جزیره خارگ و همچنین جاسک و شنیده شدن صداهای انفجار، سه‌شنبه‌شب، استاندار هرمزگان با اعلام اینکه «اتفاقی در سطح شهرستان رخ نداده است» گفت: «منشا این صداها مربوط به اتفاقاتی در دریا است.» پیش از این صداوسیما از هدف قرار گرفتن دومین نفتکش ایرانی در نزدیکی جاسک خبر داد. در پی حمله موشکی ایالات متحده به یک نفتکش ایرانی در نزدیکی جزیره خارگ، سپاه پاسداران هشدار داد که نفتکش‌های مستقر در لنگرگاه‌ها و اسکله‌های بحرین و کویت را هدف قرار خواهد داد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259094
+
+<div align="center"><img src="files/post_259094_VahidOOnLine_259094.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[پست از کانال منبع حذف شد.]
+</div>
+
+## VahidOOnLine — post 259093
+
+<div align="center"><video src="files/post_259093_VahidOOnLine_259093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_259093_VahidOOnLine_259093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با فرستادن ویدیویی به ایران اینترنشنال نشان داد سه‌شنبه ۱۷ شهریور، پوسترهای یادبود مهسا امینی در خیابان‌ها و اطراف آرامستان سقز نصب و توزیع شد که مردم را به پیوستن به کمپین «بادکنک‌های سفید» دعوت کرده‌اند.
+
+فرستنده در ویدیو می‌گوید: «خونش بیهوده ریخته نشد و راهش ادامه دارد. زن، زندگی، آزادی»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259092
+
+<div align="center"><img src="files/post_259092_VahidOOnLine_259092.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش «فاکس‌نیوز»، ارتش ایالات متحده عملیات هوایی را علیه تاسیسات و شناورهای نفتی ایران در جزیره خارگ و جاسک آغاز کرده است. خبرنگار این شبکه به نقل از مقامات دفاعی آمریکا گزارش داد: «ما همین الان با چند تن از مقامات دفاعی آمریکا صحبت کردیم که تایید می‌کنند ارتش ایالات متحده در حال انجام حملات هوایی علیه اهدافی در نزدیکی جزیره خارگ و همچنین جاسک، منطقه‌ای در بخش جنوبی ایران و نزدیک تنگه هرمز است.» این گزارش با تاکید بر ماهیت اقتصادی این عملیات افزود: «به من گفته شده که اهداف، نفتکش‌های ایرانی هستند و این بخشی از تلاش مداوم برای تحت فشار گذاشتن اقتصادی ایران به شمار می‌رود، زیرا کل اقتصاد این کشور مبتنی بر صادرات نفت خام است.» خبرنگار فاکس‌نیوز همچنین به نقل از منابع نظامی تصریح کرد که این حملات «آغاز فاز جدیدی برای ورود نیروهای زمینی نیست، اما اقدامی هدفمند در راستای در تنگنا قرار دادن اقتصاد جمهوری اسلامی است و عملیات هم‌اکنون در جریان قرار دارد.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سپاه پاسداران انقلاب اسلامی روز سه‌شنبه ۱۷ شهریور تصاویری از یک زیردریایی بدون سرنشین متعلق به ارتش آمریکا منتشر کرد که به گفته این نهاد، در محدوده آب‌های تنگه هرمز توقیف شده است. سپاه توقیف این شناور را «غنیمت گرفتن» توصیف کرده است.
+این زیردریایی هوشمند حدود ۵۸۰ سانتی‌متر طول و نزدیک به سه تن وزن دارد و می‌تواند تا ۱۰ روز بدون بازگشت به مرکز هدایت به عملیات ادامه دهد.
+یک مقام آمریکایی به الجزیره تایید کرد که این زیردریایی بیش از یک روز پیش، هنگام بررسی آب‌های منطقه برای پشتیبانی از عملیات جاری، دچار «نقص فنی» شده بود. به گفته او، این شناور از مدل‌های قدیمی بود، اطلاعات حساس جمع‌آوری نمی‌کرد و تجهیزات محرمانه سونار یا راداری نداشت.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259090
+
+<div align="center"><img src="files/post_259090_VahidOOnLine_259090.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+در پی حمله موشکی ایالات متحده به یک نفتکش ایرانی در نزدیکی جزیره خارگ، سپاه پاسداران انقلاب اسلامی هشدار داد که نفتکش‌های مستقر در لنگرگاه‌ها و اسکله‌های بحرین و کویت را هدف قرار خواهد داد. در این بیانیه که در رسانه‌های جمهوری اسلامی بازتاب یافت، اشاره شده که آمریکا به «چند نفتکش ایرانی» حمله کرده است. سپاه هشدار داد: به تمامی خدمه نفتکش‌ها در محدوده اسکله‌های کویت و بحرین که میزبان و شریک آمریکا هستند اخطار می‌دهیم شناور خود را چه در لنگرگاه و چه در اسکله‌ها سریعا ترک کنند.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259089
+
+<div align="center"><img src="files/post_259089_VahidOOnLine_259089.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیروی دریایی سپاه پاسداران اعلام کرد با توجه به اقدام ارتش آمریکا در هدف قرار دادن چند فروند از نفتکش‌های جمهوری اسلامی، به تمامی خدمه نفتکش‌ها در محدود اسکله‌های کویت و بحرین که میزبان نیروهای آمریکایی است، اخطار می‌دهد شناور خود را چه در لنگرگاه و چه در اسکله‌ها سریعا ترک نمایند چرا که مورد هدف قرار خواهند گرفت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 259088
+
+<div align="center"><video src="files/post_259088_VahidOOnLine_259088.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_259088_VahidOOnLine_259088.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران اینترنشنال به اظهارات وزیر نیرو واکنش نشان داد که گفته بود «اگر قطعی برق برنامه‌ریزی‌شده‌ای مشاهده شد، مردم می‌توانند موضوع را با شماره ۱۲۱ اطلاع دهند.»
+
+این شهروند نشان داد که شماره اعلام‌شده اشغال است و گفت: «در گذشته، وزیرهای نیرو از دهان حرف می‌زند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 259087
 
@@ -179,116 +272,6 @@ Indypersian
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یک کاسب جوان با انتشار ویدیویی در رسانه‌های اجتماعی گفت: «دارم مغازه‌ام را جمع می‌کنم. حالا چه کنم؟ آیا بروم دزدی کنم؟ اگر حرفی هم بزنم به من می‌گویند مزدور بیگانه.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259058
-
-<div align="center"><video src="files/post_259058_VahidOOnLine_259058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_259058_VahidOOnLine_259058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، در خصوص گرانی‌ها می‌گوید ﻿شش عدد موز، ۷۰۰ گرم انگور سیاه، تعدادی لیمو و ۱۰ عدد سیب را به قیمت ۹۰۰ هزار تومان خریده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259057
-
-<div align="center"><video src="files/post_259057_VahidOOnLine_259057.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_259057_VahidOOnLine_259057.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های اجتماعی نشان می‌دهد مادر جاویدنام عرفان رضایی، معترض کشته‌شده در اعتراضات دی ۱۴۰۴، بر سنگ آرامگاه پسرش شمعی روشن کرد و گفت: «در زادروز خودم این شمع را روشن کردم چون افتخار می‌کنم که به دنیا آمدم تا مادر قهرمانی چون عرفان باشم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259056
-
-<div align="center"><img src="files/post_259056_VahidOOnLine_259056.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دفتر نخست‌وزیری اسرائیل در بیانیه‌ای گزارش‌های منتشرشده درباره هشدار امارات متحده عربی پیش از حمله هفتم اکتبر به نتانیاهو را رد کرد. در این بیانیه آمده است که اگر اطلاعات مرتبطی وجود داشت، از طریق کانال‌های اطلاعاتی میان دو کشور منتقل شده بود.
-
-هاآرتص گزارش داده بود که امارات متحده عربی، پیش از حمله هفتم اکتبر، درباره طرح حماس برای انجام این حمله به بنیامین نتانیاهو هشدار داده بود.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259055
-
-<div align="center"><video src="files/post_259055_VahidOOnLine_259055.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_259055_VahidOOnLine_259055.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک کارگر ویدیویی برای ایران اینترنشنال فرستاد و حساب کرد که هزینه پنج قلم جنس برای مصرف روزانه، معادل دستمزد ۱۲ ساعت کار کردن اوست.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259054
-
-<div align="center"><video src="files/post_259054_VahidOOnLine_259054.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_259054_VahidOOnLine_259054.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، روز سه‌شنبه ۱۷ شهریور در فرودگاه میامی و پیش از سفر به کلمبیا، در پاسخ به سوال خبرنگاری درباره حملات حوثی‌ها به عربستان سعودی، این گروه را از عوامل و نیروهای نیابتی دانست و گفت پشت بخشی از تحولات اخیر یمن «به‌وضوح دست ایران» قرار دارد.
-
-روبیو با اشاره به روابط نظامی و دفاعی مستحکم واشنگتن و ریاض تاکید کرد آمریکا تحولات مربوط به عربستان سعودی و حوثی‌ها را با دقت زیر نظر دارد. به گفته او، عملیات زمینی نیز در جریان بوده و نیروهای یمنی با حوثی‌ها مقابله کرده و بخشی از پیشروی‌های زمینی آن‌ها را عقب رانده‌اند.
-
-وزیر خارجه آمریکا درباره احتمال اقدامات دفاعی بیشتر توضیحی نداد و این موضوع را به وزارت جنگ آمریکا ارجاع داد. او همچنین گفت انتظار ندارد روز سه‌شنبه اطلاعیه‌ای در این زمینه منتشر شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259053
-
-<div align="center"><img src="files/post_259053_VahidOOnLine_259053.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع کره جنوبی روز سه‌شنبه ۱۷ شهریور اعلام کرد که یک تیم ارزیابی و حقیقت‌یاب را برای بررسی وضعیت و شرایط امنیتی به تنگه هرمز اعزام کرده است. به گزارش خبرگزاری فرانسه، این وزارتخانه تاکید کرد که این اقدام به معنای تصمیم برای اعزام نیروهای نظامی نیست.
-
-در بیانیه وزارت دفاع کره جنوبی آمده است: «این تیم برای بررسی شرایط منطقه‌ای و وضعیت امنیتی اعزام شده و ماموریت آن پیش‌فرض هیچ‌گونه استقرار نظامی واقعی را در بر نمی‌گیرد.»
-
-این تصمیم در پی تبادل آتش اخیر میان جمهوری اسلامی ایران و ایالات متحده در تنگه هرمز گرفته شده است؛ درگیری‌هایی که در جریان آن سه نفتکش ایرانی هدف قرار گرفته و زمین‌گیر شدند. این تحرکات همچنین هم‌زمان با اعلام تصمیم ایران برای ایجاد یک «منطقه ممنوعه دریانوردی» در خارج از تنگه هرمز صورت می‌گیرد؛ منطقه‌ای که تهران قصد دارد در آن از عبور «شناورهای بدون مجوز» جلوگیری کند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259052
-
-<div align="center"><img src="files/post_259052_VahidOOnLine_259052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دفاع مدنی عربستان سعودی اعلام کرد سامانه هشدار در جازان و ابها فعال شده است. این نهاد همچنین اعلام کرد سامانه هشدار در نجران نیز فعال شده است.
-
-دفاع مدنی عربستان سعودی تا لحظه انتشار این گزارش جزئیات بیشتری اعلام نکرده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 259051
-
-<div align="center"><video src="files/post_259051_VahidOOnLine_259051.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_259051_VahidOOnLine_259051.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر جاویدنام آسیه رمضانی با پیوستن به پویش «یک شمع، یک نام، یک یاد» برای مادرش شمعی روشن کرد و یاد او و دیگر کشته‌شدگان اعتراضات دی‌ماه را گرامی داشت. او گفت مادرش برای «گرفتن حقش» از خانه بیرون رفت و با شلیک مستقیم گلوله کشته شد.
 IranintlTV
 
 🤖 @VahidOOnLine

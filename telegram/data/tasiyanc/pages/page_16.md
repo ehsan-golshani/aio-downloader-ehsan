@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 10014
+
+<div align="center"><img src="files/post_10014_tasiyanc_10014.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه میخواید میزان تورم ایران دستتون بیاد کافیه بدونید که سال 1391 با 14 میلیون تومن میتونستی یه پراید بخری؛ امروز با ۱۴ میلیون تومن میتونی یه بسته کـاندوم بخری تا یه آدم دیگه به دنیا نیاد مثل ما بدبخت بشه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10013
 
@@ -352,18 +362,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9990
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg15
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

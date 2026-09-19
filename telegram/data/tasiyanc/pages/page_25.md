@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 9796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
+
+امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9795
 
@@ -288,13 +299,5 @@ til.ac/0L4vyJf
 •کاهش وسواس فکری
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
 </div>
 

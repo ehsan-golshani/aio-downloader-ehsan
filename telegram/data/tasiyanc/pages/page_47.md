@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 9225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک⚡️
+</div>
 
 ## tasiyanc — post 9224
 
@@ -217,26 +227,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
 
 @Tasiyanc 🔋
-</div>
-
-## tasiyanc — post 9201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
 </div>
 

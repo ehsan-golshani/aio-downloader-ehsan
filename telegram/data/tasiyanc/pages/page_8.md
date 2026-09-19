@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 10239
+
+<div align="center"><video src="files/post_10239_tasiyanc_10239.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10239_tasiyanc_10239.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10238
 
@@ -247,15 +276,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
 که تک‌تیرانداز به هیچ کدومشون رحم نکرد
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10210
-
-<div align="center"><img src="files/post_10210_tasiyanc_10210.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
 💋 @Tasiyanc
 </div>
 

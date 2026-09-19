@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 10305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10304
 
@@ -338,15 +346,5 @@ Location
 این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10271
-
-<div align="center"><video src="files/post_10271_tasiyanc_10271.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10271_tasiyanc_10271.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا برای اولین بار منتشر کرد لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران : آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن…
 </div>
 

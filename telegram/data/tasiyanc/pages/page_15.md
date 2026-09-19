@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 10037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
 
 ## tasiyanc — post 10036
 
@@ -299,16 +305,6 @@ sg16
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10014
-
-<div align="center"><img src="files/post_10014_tasiyanc_10014.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه میخواید میزان تورم ایران دستتون بیاد کافیه بدونید که سال 1391 با 14 میلیون تومن میتونستی یه پراید بخری؛ امروز با ۱۴ میلیون تومن میتونی یه بسته کـاندوم بخری تا یه آدم دیگه به دنیا نیاد مثل ما بدبخت بشه.
 
 💋 @Tasiyanc
 </div>

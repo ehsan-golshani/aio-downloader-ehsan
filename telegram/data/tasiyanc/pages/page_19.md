@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/28 21:42
+📅 آخرین بروزرسانی: 1405/06/29 00:10
 
 ---
+
+## tasiyanc — post 9944
+
+<div align="center"><video src="files/post_9944_tasiyanc_9944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9944_tasiyanc_9944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‌حسین پاک، خبرنگار صداوسیما حوزه لبنان:
+منتظر بیانیه حزب‌الله هستیم ولی چیزی که معلومه اینه که علی الطاهر سقوط کرده و به دست اسرائیل افتاده!
+رزمنده‌ها تو علی الطاهر محاصره شدن و امکان ارسال غذا و اسلحه بهشون نیست.
+شرایط اونجا کاملا عاشورایی شده.
+میشه اسرائیل رو فرستاد عقب، حمله نظامی تاثیر داره.
+5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 9943
 
@@ -280,14 +297,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
 
 💋 @Tasiyanc
 </div>
