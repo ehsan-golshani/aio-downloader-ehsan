@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/28 10:25
+📅 آخرین بروزرسانی: 1405/06/28 15:22
 
 ---
+
+## tasiyanc — post 10371
+
+<div align="center"><img src="files/post_10371_tasiyanc_10371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قتل فجیع ۵ نفر از اعضای خانواده در تهران
+
+ساعتی قبل جسد پنج زن و مرد که گفته می‌شود قربانی یک قتل عام خانوادگی شده بودند، در بلوار سیمون بولیوار تهران کشف شد ، عاملان جنایت دستگیر شدند
+
+دوتا برادر بعد از فوت پدرشون تصمیم میگیرن تمام اموال باباشونو بالا بکشن،
+دو تا خواهر و دو برادر و مادر خودشونو به قتل میرسونن و یه چاه میکنن و جنازه هارو میندازن توش و تمام اموالو بالا میکشن، با یه دختر اوکی میشه یکیشون که دختره می‌فهمه خیلی پولدارن مشکوک میشه ، میفهمه خانوادشونو به قتل رسوندن، سریع به پلیس گزارش می‌کنه و دستگیر میشن
+﻿
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10370
+
+<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10369
+
+<div align="center"><video src="files/post_10369_tasiyanc_10369.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10369_tasiyanc_10369.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیشب تو تهران دوتا دختر با موتورشون چند ساعت پشت یه ماشین تو ترافیک گیر کرده بودن؛ وقتی که خسته میشن، میان پایین و می‌بینن اصلا ماشینه راننده نداره و طرف پارک
+کرده رفته😂
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10367
+
+<div align="center"><img src="files/post_10367_tasiyanc_10367.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
+⁉️
+
+
+🔥کمپانی بین المللی We pari همون انتخاب
+🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+
+🔥کانال اطلاع رسانی ایران:👇🅰r2‌6
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
+
++ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10365
 
@@ -231,110 +324,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 حتی گفته شده جنگنده‌ها وارد آسمان ایران شدن و در بخش‌هایی از غرب کشور و جنوب‌غرب تهران دیده شدن، اما بدون انجام حمله برگشتن.
 همزمان اومدن گفتن صبح دیروز به بعضی مکان‌های حساس دولتی تو تهران دستور تخلیه دادن
 اما فعلاً مشخص نیست واقعاً حمله‌ای قرار بود صورت بگیره یا نه. البته ادعای «درز اطلاعات و لو رفتن عملیات» هم مطرح شد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10348
-
-<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
-
-22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
-روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
-
-مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10347
-
-<div align="center"><video src="files/post_10347_tasiyanc_10347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10347_tasiyanc_10347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تبلیغ عجیب شرکت سونی در سال ۲۰۰۵ صحنه های زیبایی در خیابانهای آمریکا خلق کرد اما ؛
-
-جولای ۲۰۰۵ سونی ۲۵۰هزار توپ رنگارنگ را در خیابان‌های سن‌فرانسیسکو انداخت تا تلویزیون LCD براویا را تبلیغ کند.
-علیرغم پاکسازی گسترده با تورهای غول‌پیکر، تیم‌های پاکسازی، جاروبرقی‌های صنعتی، و جایزه نقدی به کودکان هزاران عدد از آنها به گوشه و کنار محله گریختند و سال‌ها پیدا می‌شدند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10346
-
-<div align="center"><video src="files/post_10346_tasiyanc_10346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10346_tasiyanc_10346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید نسخه جدید 
-
-نسخه جدید حتما دانلود کنید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده
-⭕️
-
-
-مناسب دانلود 
-⬇️ ترید 
-🤑 اینستاگرام 
-📸 جمنای 
-🤖
-
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10345
-
-<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
-
-سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
-ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10344
-
-<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
-
-Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
-Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
-
-آموزش استفاده 
-➡️
-
 
 💋 @Tasiyanc
 </div>
