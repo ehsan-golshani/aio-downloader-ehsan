@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 10372
+
+<div align="center"><video src="files/post_10372_tasiyanc_10372.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10372_tasiyanc_10372.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+⭕️ حتما برنامه Npv Tunnel رو آپدیت کنید
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 
+📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 10371
 
@@ -307,23 +328,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
 
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10350
-
-<div align="center"><video src="files/post_10350_tasiyanc_10350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10350_tasiyanc_10350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 گزارش‌های غیررسمی از حمله‌ اسرائیل که در آخرین لحظه لغو شد!
-
-طبق ادعاهایی که بعضی رسانه‌ها و منابع غیررسمی مطرح کردن، قرار بوده دیروز  حمله‌ای به ایران انجام بشه؛
-حتی گفته شده جنگنده‌ها وارد آسمان ایران شدن و در بخش‌هایی از غرب کشور و جنوب‌غرب تهران دیده شدن، اما بدون انجام حمله برگشتن.
-همزمان اومدن گفتن صبح دیروز به بعضی مکان‌های حساس دولتی تو تهران دستور تخلیه دادن
-اما فعلاً مشخص نیست واقعاً حمله‌ای قرار بود صورت بگیره یا نه. البته ادعای «درز اطلاعات و لو رفتن عملیات» هم مطرح شد...
 
 💋 @Tasiyanc
 </div>

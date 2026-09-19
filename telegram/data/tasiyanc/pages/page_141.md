@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 141
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 6218
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جنگ میشه یا آتش بس برقراره؟
+</div>
 
 ## tasiyanc — post 6217
 
@@ -175,13 +181,5 @@ SuperFast @Tasiyanc 🪐⚡.npvt
 
 🦁  @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  📱
-2سرور  سرعتی تست شده 🚀
-@Tasiyanc ✅
 </div>
 

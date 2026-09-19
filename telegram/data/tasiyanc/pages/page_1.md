@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 10419
+
+<div align="center"><video src="files/post_10419_tasiyanc_10419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10419_tasiyanc_10419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رودخانه گنگ هند جزو آلوده‌ترین رودخانه های دنیاست چون نه تنها همه فاضلاب ها بهش ختم میشن بلکه سوخته اجساد شون رو هم این تو میریزن
+
+ولی ببین معده یک هندی چی هست که باکتری ای‌کولای در مقابلش عاجزه
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10418
 
@@ -53,8 +69,6 @@
 </div>
 
 ## tasiyanc — post 10413
-
-<div align="center"><a href="files/post_10413_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپلیکیشن اختصاصی آمیتیس‌بت📱
@@ -333,16 +347,6 @@ Act as a motivational coach
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 امروز ـ رژه بانوان جانفدا در تهران
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10397
-
-<div align="center"><img src="files/post_10397_tasiyanc_10397.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
 
 💋 @Tasiyanc
 </div>

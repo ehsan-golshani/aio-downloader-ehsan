@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 9592
+
+<div align="center"><img src="files/post_9592_tasiyanc_9592.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨عمق فاجعه برا یه کشور : این کاغذ ۱۱۷ میلیون تومان !
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9591
 
@@ -300,15 +311,5 @@ sa2
 + مشاهده بدون سانسور 👉
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

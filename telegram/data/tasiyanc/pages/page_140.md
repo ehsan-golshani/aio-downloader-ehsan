@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 140
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
 
 ## tasiyanc — post 6239
 
@@ -188,11 +194,5 @@ nuclear bomb 💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
 </div>
 

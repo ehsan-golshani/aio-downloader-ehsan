@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 7164
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡⚡IR FAST 🚀.npvt
+</div>
 
 ## tasiyanc — post 7163
 
@@ -238,11 +244,5 @@ T.me/Tasiyanc ✅
 دریافت کانفیگ نامحدود رایگان
 
 🔴توجه: تو بات آپلود میکنم نتونن آیپی هاشو ببندن
-</div>
-
-## tasiyanc — post 7117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آماده باشید بریم‌چنتا سرور خفن بزاریم
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/28 15:22
+📅 آخرین بروزرسانی: 1405/06/28 18:34
 
 ---
+
+## tasiyanc — post 10298
+
+<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
+
++ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10297
 
@@ -321,14 +332,5 @@ Location
 میگی ن ؟ بیا تو چنلمون و ببین🔥
 Join Join Join
 Join Join Join
-</div>
-
-## tasiyanc — post 10263
-
-<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میکس عالی برد شد❤️☑️
-✔️@Tipster_Mafiaa
 </div>
 
