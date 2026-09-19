@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
+
+## tasiyanc — post 10136
+
+<div align="center"><img src="files/post_10136_tasiyanc_10136.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه مرده تو تهران زنشو ۴ قلو حامله کرده و حالا ۶ تا بچه داره برگشته گفته با اینکه تو یه خونه چهل متری زندگی می‌کنیم اما شادترین پدر دنیا هستم
+
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 10131
 
@@ -344,17 +354,6 @@ sa18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨صدای انفجار سیریک ، میناب
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10103
-
-<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
-بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
 
 💋 @Tasiyanc
 </div>

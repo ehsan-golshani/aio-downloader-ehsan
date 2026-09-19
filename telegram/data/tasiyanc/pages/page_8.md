@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
+
+## tasiyanc — post 10223
+
+<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
+
+آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
+این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
+و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10220
 
@@ -238,29 +253,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 🔗 https://goflyvpn.com/
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10189
-
-<div align="center"><video src="files/post_10189_tasiyanc_10189.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10189_tasiyanc_10189.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-💖بونوس 100% واریز اول
-💖بونوس 100% واریز دوم
-💖بونوس 75% | 50% واریز سوم و چهارم
-💖بونوس 200% ویژه کازینو
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-🔥 کانال تلگرام وی پاری:
-✅ @wepari_irann
 </div>
 

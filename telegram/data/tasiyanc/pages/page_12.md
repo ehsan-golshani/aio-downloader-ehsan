@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
+
+## tasiyanc — post 10103
+
+<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
+بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10101
 
@@ -256,21 +267,5 @@ Tasiyan | تاسیان pinned a photo
 خراب شه سقفی که زن خونه‌اش امثال توء …
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

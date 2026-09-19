@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
+
+## tasiyanc — post 10388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر✔️
+همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
+https://t.me/+72lhaZgfJ2oxMjdk
+</div>
 
 ## tasiyanc — post 10387
 
@@ -282,17 +290,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 + خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10365
-
-<div align="center"><img src="files/post_10365_tasiyanc_10365.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز ۲۶ شهریور ماه، تولد کمبوجیه، پسرِ کوروش بزرگ و روزِ پسره.
-
-امروز تنها روز اصیل پسر های ایرانیه بهشون تبریک بگید.
-
-⚡ @Tasiyanc
 </div>
 

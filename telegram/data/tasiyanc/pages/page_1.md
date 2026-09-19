@@ -1,12 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
 
-## tasiyanc — post 10410
+## tasiyanc — post 10411
 
-<div align="center"><a href="files/post_10410_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_10411_tasiyanc_10411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10411_tasiyanc_10411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 تاثیر قهوه بر بدن
+
+تاثیر قهوه بر بدن به ژنتیک‌مون بستگی داره. بعضی از افراد ژن‌هایی دارن که باعث می‌شه سریع‌تر کافئین رو متابولیزه کنن و انرژی زیادی ازش بگیرن…
+
+در حالی که بعضی‌ها به دلیل داشتن ژن‌های خاص، کافئین رو دیرتر تجزیه می‌ کنن و ممکنه دچار بی‌خوابی یا حتی اضطراب بشن.
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10410
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپلیکیشن اختصاصی آمیتیس‌بت
@@ -295,13 +311,5 @@ Act as a motivational coach
 صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
 مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر✔️
-همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
-https://t.me/+72lhaZgfJ2oxMjdk
 </div>
 

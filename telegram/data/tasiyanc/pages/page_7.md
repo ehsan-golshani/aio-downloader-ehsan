@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/28 03:16
+📅 آخرین بروزرسانی: 1405/06/28 10:25
 
 ---
+
+## tasiyanc — post 10247
+
+<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
+
+اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
+
+« اطلاع رسانی کنین به آشناهاتون »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10246
 
@@ -314,19 +330,4 @@
 </div>
 
 ## tasiyanc — post 10224
-
-## tasiyanc — post 10223
-
-<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
-
-آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
-این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
-و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
-💋 @Tasiyanc
-</div>
 
