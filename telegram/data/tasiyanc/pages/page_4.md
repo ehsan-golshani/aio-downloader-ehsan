@@ -1,8 +1,118 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/28 18:34
+📅 آخرین بروزرسانی: 1405/06/28 21:42
 
 ---
+
+## tasiyanc — post 10355
+
+<div align="center"><video src="files/post_10355_tasiyanc_10355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10355_tasiyanc_10355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وزیر نیرو:
+مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10354
+
+<div align="center"><video src="files/post_10354_tasiyanc_10354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10354_tasiyanc_10354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری / شرکتای هواپیمایی بزرگ جهان به دلیل تحریم و هم چنین احتمال بالای حمله ی آمریکا و اسرائیل به ایران تمامی پروازهاشون به ایران رو لغو کردن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری
+🔥
+
+
+💖امکان شارژ از طریق کارت بانکی
+
+💖تسویه حساب سریع بدون احراز
+
+💖دارای مجوز رسمی Anjuan وcuracao
+
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+
+✅کانال تلگرام:
+👇
+
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10352
+
+<div align="center"><img src="files/post_10352_tasiyanc_10352.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید
+🔥
+
+
+🥇سایت شماره یک اروپا حالا در ایران
+🥇
+
+😀
+😃
+😄
+😁
+
+
+🎁واریز اول
+💖100% بونوس هدیه(2برابر شارژ می شوید)
+
+🎁واریز دوم
+💖100% بونوس هدیه(2برابر شارژ می شوید)
+
+🎁واریز سوم
+💖75% بونوس هدیه
+
+🎁واریز چهارم
+💖50% بونوس هدیه
+
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+
+🤔http://til.ac/z5jcpGT
+
+
+💎کانال اطلاع رسانی ایران:g25🅰
+
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10351
+
+<div align="center"><video src="files/post_10351_tasiyanc_10351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10351_tasiyanc_10351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صحبت های یه آخوند:
+
+ـ تجاوز رو آزاد کنین!!! چرا به کسی که میخواد مزاحم دخترا بشه و بهشون تجاوز بکنه آزادی نمیدید؟!
+دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10350
 
@@ -272,71 +382,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از بهترین ربات‌های دانلودر که بکارتون میاد
-
-مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
-
-👉 @wsavebot
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10332
-
-<div align="center"><img src="files/post_10332_tasiyanc_10332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت تحریم کاربران ایرانی
-
-🚨 صرافی چینی کوینکس (CoinEx) که عمده مشتری‌هاش ایرانی بودند ورشکسته شد!
-صرافی کوینکس اعلام‌کرد‌ تعطیل شده است و پول‌هایتان را خارج کنید.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 10331
-
-<div align="center"><img src="files/post_10331_tasiyanc_10331.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10329
-
-<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
-
-
-💋 @Tasiyanc
 </div>
 

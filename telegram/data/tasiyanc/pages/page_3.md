@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/28 18:34
+📅 آخرین بروزرسانی: 1405/06/28 21:42
 
 ---
+
+## tasiyanc — post 10379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
+
+💖امکان شارژ از طریق کارت بانکی
+💖تسویه حساب سریع بدون احراز
+💖دارای مجوز رسمی Anjuan وcuracao
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+✅کانال تلگرام:👇
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10378
+
+<div align="center"><img src="files/post_10378_tasiyanc_10378.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید🔥
+
+🥇سایت شماره یک اروپا حالا در ایران🥇
+😀😃😄😁
+
+🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز سوم💖75% بونوس هدیه
+🎁واریز چهارم💖50% بونوس هدیه
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+🤔http://til.ac/z5jcpGT
+
+💎کانال اطلاع رسانی ایران:g26🅰
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10377
+
+<div align="center"><img src="files/post_10377_tasiyanc_10377.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرگزاری تلگراف :
+هکرهای وابسته به حکومت‌ایران 🇮🇷 ، با یه بدافزار به اسم «Chosen Brick» (یا Heavygram) دارن مخالفان، فعالان و خبرنگارا رو هدف می‌گیرن؛
+هکرها اول تو واتساپ یا تلگرام باهاشون تماس میگیرن، خودشونو جای یکی از آشناها یا پشتیبانی فنی جا میزنن، چند وقت باهاشون گپ می‌زنن تا اعتماد جلب کنن. بعد یه فایل می‌فرستن که ظاهراً چیز بی‌ضرری مثل نتیجه MRI (عکس‌برداری از مغز یا کمر) یا برنامه‌های معتبر (مثل آنتی‌ویروس نورتون، تلگرام، کی‌پس و اینا) هستش.
+وقتی طرف فایل رو باز میکنه، بدافزار نصب میشه و شروع میکنه به دزدیدن مخاطبین، ایمیل‌ها، پیام‌ها، اسکرین‌شات گرفتن و حتی روشن کردن میکروفون گوشی یا لپ‌تاپ.
+آژانس‌های امنیتی انگلیس🏴󠁧󠁢󠁥󠁮󠁧󠁿 (NCSC)، آمریکا 🇺🇸 (FBI) و هلند 🇳🇱 با هم هشدار دادن که این کار برای سرکوب منتقدان رژیمه و از سال 2025 (یا حتی زودتر) داره انجام میشه، مخصوصا روی دستگاه‌های ویندوزی.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+جهت دریافت کلیک کنید ☝
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10374
+
+<div align="center"><img src="files/post_10374_tasiyanc_10374.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 بهداد اقبالی ( ایرانی الاصل ) که مالک شرکت Clearlake Capital است با خرید سهام تادبولی رسما 100 درصد مالکیت باشگاه چلسی رو در اختیار گرفت
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10372
 
@@ -217,116 +292,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مدرسه پسرونه وقتی یه دختر میاد تو حیاط :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10355
-
-<div align="center"><video src="files/post_10355_tasiyanc_10355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10355_tasiyanc_10355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وزیر نیرو:
-مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10354
-
-<div align="center"><video src="files/post_10354_tasiyanc_10354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10354_tasiyanc_10354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری / شرکتای هواپیمایی بزرگ جهان به دلیل تحریم و هم چنین احتمال بالای حمله ی آمریکا و اسرائیل به ایران تمامی پروازهاشون به ایران رو لغو کردن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری
-🔥
-
-
-💖امکان شارژ از طریق کارت بانکی
-
-💖تسویه حساب سریع بدون احراز
-
-💖دارای مجوز رسمی Anjuan وcuracao
-
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-
-✅کانال تلگرام:
-👇
-
-💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10352
-
-<div align="center"><img src="files/post_10352_tasiyanc_10352.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید
-🔥
-
-
-🥇سایت شماره یک اروپا حالا در ایران
-🥇
-
-😀
-😃
-😄
-😁
-
-
-🎁واریز اول
-💖100% بونوس هدیه(2برابر شارژ می شوید)
-
-🎁واریز دوم
-💖100% بونوس هدیه(2برابر شارژ می شوید)
-
-🎁واریز سوم
-💖75% بونوس هدیه
-
-🎁واریز چهارم
-💖50% بونوس هدیه
-
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-
-🤔http://til.ac/z5jcpGT
-
-
-💎کانال اطلاع رسانی ایران:g25🅰
-
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10351
-
-<div align="center"><video src="files/post_10351_tasiyanc_10351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10351_tasiyanc_10351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 صحبت های یه آخوند:
-
-ـ تجاوز رو آزاد کنین!!! چرا به کسی که میخواد مزاحم دخترا بشه و بهشون تجاوز بکنه آزادی نمیدید؟!
-دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
-
 
 
 💋 @Tasiyanc
