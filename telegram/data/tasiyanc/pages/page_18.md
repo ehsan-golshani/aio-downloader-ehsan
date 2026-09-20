@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/29 17:55
+📅 آخرین بروزرسانی: 1405/06/29 21:11
 
 ---
+
+## tasiyanc — post 9987
+
+<div align="center"><video src="files/post_9987_tasiyanc_9987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9987_tasiyanc_9987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9986
+
+<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
+
+سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9984
+
+<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۶ کانفیگ پرمیوم سرعتی OpenVpn 
+📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
+
+
+👈 دریافت کانفیگ ها 
+➡️
+
+
+لوکیشن : 
+🇩🇰
+🇪🇸
+🇫🇮
+🇮🇪
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9983
+
+<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9982
+
+<div align="center"><video src="files/post_9982_tasiyanc_9982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9982_tasiyanc_9982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک تک‌تیرانداز از شبه‌نظامیان یمنی طرفدار عربستان، وقتی که یک جنگجوی حوثی داشته قضای حاجت میکرده، از فرصت استفاده میکنه و به "شمبول" او شلیک میکنه 😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9981
 
@@ -228,64 +317,5 @@ til.ac/0L4vyJf
 این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
 
 آیدی عددی اکانت 7189150445
-</div>
-
-## tasiyanc — post 9963
-
-<div align="center"><video src="files/post_9963_tasiyanc_9963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9963_tasiyanc_9963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴روایت یه خیانت پشم ریزان از سمت یک مشتری آقا در طلافروشی
-
-+ به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9961
-
-<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت برگ ریزان گوشی ۱۴ شهریور
-
-یه موبایل میان رده هم شد آرزو!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حسن روحانی:
-هیچکس از طرف خدا حاکم نشده. همتون مستقیم و غیرمستقیم با رای مردم مسئولیت دارید. از اون بالایی تا پایینی‌. پس ببینید مردم چی میگن؛ همون کارو کنید. اگه میخواید ۲۰ سال دیگه با دنیا بجنگید اول باید مردم موافق باشن. اون که پیغمبرش بود و به خدا وصل بود مشورت میکرد؛ حالا شما کی هستید؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
-
-🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/29 17:55
+📅 آخرین بروزرسانی: 1405/06/29 21:11
 
 ---
+
+## tasiyanc — post 10235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
+
+👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
+</div>
+
+## tasiyanc — post 10234
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ دیگه تنهایی و بدون استراتژی فرم نبند!
+دنیای پیش‌بینی فوتبال یعنی «دیتای دقیق» به‌علاوه «همفکری با افراد حرفه‌ای». مجموعه ما هر دو رو برات آماده کرده:
+📢 در کانال ما چه خبره؟
+▫️ فرم‌ها و تیپ‌های روزانه بر اساس آمار (BTTS، Over/Under و لاین‌های ارزشمند)
+▫️ تحلیل ترکیب، مصدومان و انگیزه تیم‌ها قبل از بازی
+▫️ آموزش مدیریت سرمایه برای سوددهی بلندمدت
+💬 در گروه (سوپرگپ) چه خبره؟
+▫️ تحلیل زنده بازی‌ها و لایو تیپ در حین تماشای فوتبال
+▫️ تبادل نظر و اشتراک فرم‌ها بین اعضای باسابقه
+▫️ پاسخ به سوالات و استراتژی‌های پیش‌بینی
+━━━━━━━━━━━━━━━
+📌 همین حالا به خانواده ما اضافه شو:
+📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
+💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
+</div>
+
+## tasiyanc — post 10233
+
+<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق تحقیقات جدید، از نظر ثبات مالی و ...
+65 سالگی بهترین سن برای ازدواج آقایونه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10232
+
+<div align="center"><video src="files/post_10232_tasiyanc_10232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10232_tasiyanc_10232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاقبت هول بون این شکلی میشه، لطفا درس عبرت بگیرید؛
+
+مرده تو بانک نوبت خودشو میده به یه خانوم ، طرف برنده جایزه بانک میشه با شماره نوبتی که گرفته بود 🤣
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10231
+
+<div align="center"><img src="files/post_10231_tasiyanc_10231.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موندم کیلیان امباپه چجوری میخواد فیلم دوست دخترشو نگاه کنه « مشاهده فیلم 🔞»
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10229
+
+<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10227
 
@@ -170,69 +245,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
-</div>
-
-## tasiyanc — post 10206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
-</div>
-
-## tasiyanc — post 10205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان
-
-منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان این درگیری‌ها دست‌کم سه دستگاه خودروی نظامی و زرهی نیروهای امنیتی هدف قرار گرفته‌اند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10204
-
-<div align="center"><img src="files/post_10204_tasiyanc_10204.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیشب تو تهران ی عروس و داماد بعد از مراسم داشتن از تالار میرفتن سمت خونشون تا زندگیشونو شروع کنن که تو اتوبان آزادگان ماشینشون چپ میشه، عروس درجا جونشو از دست میده و داماد هم به شدت زخمی شده و الان بستریه.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزیر نیرو : ممکن است بارش‌های سهمگین داشته باشیم، همه آماده باشند؛ نباید غافلگیر شویم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10201
-
-<div align="center"><img src="files/post_10201_tasiyanc_10201.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دعوایی ترین استان های ایران:
-
-+ نکته جالب ۳ استان اولی ترکا هستن آخری‌ام بلوچا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 @Tasiyanc
 </div>
 
