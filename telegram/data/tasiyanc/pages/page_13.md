@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/29 13:41
+📅 آخرین بروزرسانی: 1405/06/29 17:55
 
 ---
+
+## tasiyanc — post 10107
+
+<div align="center"><video src="files/post_10107_tasiyanc_10107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10107_tasiyanc_10107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پست ترامپ در تروث‌سوشال:
+
+این رژیم به‌زودی می‌فهمد که هیچ‌کس نباید قدرت آمریکا را به چالش بکشد.
+ای مردم سربلند ایران، ساعت آزادی شما نزدیک است. وقتی کار ما تمام شد، حکومت خود را به دست بگیرید. این حکومت از آنِ شما خواهد بود.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو
+به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10105
 
@@ -229,32 +254,5 @@ Tasiyan | تاسیان pinned a photo
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️⭕️ چندین مورد عجیب درباره فیلترشکن JumpJump که قبلاً هم بهش پرداخته بودم متاسفانه ایرانیا اکثرا نصبش دارن فیلترشکن JumpJumpVPN تاکنون بیش از ۵۰ میلیون بار از گوگل‌پلی دانلود شده است. بررسی‌های پس‌کوچه نشان می‌دهد که پشت این ویترین جذاب و آمار دانلود…
-</div>
-
-## tasiyanc — post 10085
-
-<div align="center"><img src="files/post_10085_tasiyanc_10085.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همینطوری که چند ماه پیش راجب JumpJump VPN براتون اخطار داده بودیم و یه سری بیسواد حمله کردن به من، الان میبینیم که دیتا بیس کاربران این فیلتر شکن در دارک وب منتشر شده از جمله شماره کارت ها، و برخی اسناد خصوصی« فقط میتونم بگم سریعا پاک کنید» و از کانفیگ های متن باز که با امنیت هستن و تو چنل میزارم استفاده کنید ، هیچ اپلیکشن فیلترشکنی امن نیست به جز چند تا مثل ویندسکرایب و یکی دوتا دیگه.
-
-« اطلاع رسانی کنید »
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10084
-
-<div align="center"><img src="files/post_10084_tasiyanc_10084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 سرور پر سرعت نامحدود OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ‌ها ➡️
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/29 13:41
+📅 آخرین بروزرسانی: 1405/06/29 17:55
 
 ---
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10289
 
@@ -301,27 +328,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
 </div>
 

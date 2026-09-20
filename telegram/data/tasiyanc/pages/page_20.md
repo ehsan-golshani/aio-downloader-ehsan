@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/29 13:41
+📅 آخرین بروزرسانی: 1405/06/29 17:55
 
 ---
+
+## tasiyanc — post 9929
+
+<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
+
++کمر به نابودی مردم بستن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9928
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9927
 
@@ -240,37 +264,5 @@ til.ac/0L4vyJf
 ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9909
-
-<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9908
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت سرعت بالا
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 
