@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 9844
+
+<div align="center"><img src="files/post_9844_tasiyanc_9844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره به دوست‌پسرش شک داشته و طی یه حرکت بشدت لاشیانه این پیام رو با شماره ناشناس به دوست‌پسرش داده 😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9843
 
@@ -287,15 +297,6 @@ til.ac/0L4vyJf
 🚨 ادعای ترامپ:
 
 حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
 
 
 🩸 @Tasiyanc

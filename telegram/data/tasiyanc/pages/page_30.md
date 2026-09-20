@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 9679
+
+<div align="center"><img src="files/post_9679_tasiyanc_9679.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طبق تحقیقات جدید؛ سرماخوردگی واقعا پایان مردهاست و فیلم بازی نمی کنن!
+
+
+ممکنه یه مرد بتونه با پای شکسته راه بره اما وقتی سرما میخوره، نمیتونه تکون بخوره!
+حالا دلیلش چیه؟ وقتی بدن یه مرد دچار شکستگی میشه، بدنش آدرنالین و اندروفین ترشح میکنه.
+مغز میره رو حالت بقا و کلا سنسور درد رو خاموش میکنه، دلیلشم بخاطر تستوسترون بالای مردهاست. حالا همون تستوسترون وقتی مریض میشن سیستم ایمنی‌شون رو ضعیف میکنه!
+تحقیقات میگه تستوسترون مثل یه سرکوب کننده سیستم ایمنی عمل میکنه، در حالی که استروژن سیستم ایمنی رو قوی‌تر میکنه.
+برای همینه خانما راحت‌تر با سرماخوردگی کنار میان، آقایون پیاز داغش رو زیاد نمی کنن، بدنشون در برابر ویروس‌ها واقعا ضعیف‌تره.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9678
 
@@ -402,28 +419,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
-</div>
-
-## tasiyanc — post 9651
-
-<div align="center"><video src="files/post_9651_tasiyanc_9651.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9651_tasiyanc_9651.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
-
-
-⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 
-🔥
-
-
-💵با عمو خسرو، آروم آروم به آرزوهات برس
-
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+J_q7c-COftQzOGM0
 https://t.me/+J_q7c-COftQzOGM0
 </div>
 

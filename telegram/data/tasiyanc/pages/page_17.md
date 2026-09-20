@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10012
+
+<div align="center"><video src="files/post_10012_tasiyanc_10012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10012_tasiyanc_10012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨این روزا خیلی مواظب گوشیتون باشید؛
+دختره داشت برای پیجش تولید محتوا میکرد که یهو حمله کردن گوشیشو بزنن.
+سعی کنید تا حد امکان گوشیتون رو توی خیابون در نیارید اگه آیفونه‌.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10011
 
@@ -359,15 +374,5 @@ sg15
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9988
-
-<div align="center"><img src="files/post_9988_tasiyanc_9988.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴انقد کله زرد گفتین ترامپ موهاشو رنگ کرده تا خوشتیپ تر بنظر برسه
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10092
+
+<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
+
+تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
+بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
+دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
+مهریه کم میگیریم، ذلت نمی پذیریم.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10091
 
@@ -282,16 +298,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
-نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
 
 
 💋 @Tasiyanc

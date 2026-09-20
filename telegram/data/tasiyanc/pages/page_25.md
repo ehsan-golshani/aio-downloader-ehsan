@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 9823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9822
 
@@ -271,17 +280,6 @@ sg10
 یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
 نظر شما چیه طبیعیه یا غیرطبیعی؟
 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9794
-
-<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
-
-+ هانا فقط 16 سال سن داشت :)
 🩸 @Tasiyanc
 </div>
 

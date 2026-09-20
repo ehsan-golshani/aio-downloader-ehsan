@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 9988
+
+<div align="center"><img src="files/post_9988_tasiyanc_9988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴انقد کله زرد گفتین ترامپ موهاشو رنگ کرده تا خوشتیپ تر بنظر برسه
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9987
 
@@ -307,15 +317,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9964
-
-<div align="center"><img src="files/post_9964_tasiyanc_9964.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
-
-آیدی عددی اکانت 7189150445
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10267
 
@@ -352,19 +370,6 @@ Join Join Join
 
 جرمش چی بوده؟
 چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10236
-
-<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
 
 
 💋 @Tasiyanc

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10354
+
+<div align="center"><video src="files/post_10354_tasiyanc_10354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10354_tasiyanc_10354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری / شرکتای هواپیمایی بزرگ جهان به دلیل تحریم و هم چنین احتمال بالای حمله ی آمریکا و اسرائیل به ایران تمامی پروازهاشون به ایران رو لغو کردن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10353
 
@@ -373,17 +386,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از بهترین ربات‌های دانلودر که بکارتون میاد
-
-مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
-
-👉 @wsavebot
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10378
+
+<div align="center"><img src="files/post_10378_tasiyanc_10378.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید🔥
+
+🥇سایت شماره یک اروپا حالا در ایران🥇
+😀😃😄😁
+
+🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز سوم💖75% بونوس هدیه
+🎁واریز چهارم💖50% بونوس هدیه
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+🤔http://til.ac/z5jcpGT
+
+💎کانال اطلاع رسانی ایران:g26🅰
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10377
 
@@ -267,19 +291,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 وزیر نیرو:
 مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10354
-
-<div align="center"><video src="files/post_10354_tasiyanc_10354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10354_tasiyanc_10354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری / شرکتای هواپیمایی بزرگ جهان به دلیل تحریم و هم چنین احتمال بالای حمله ی آمریکا و اسرائیل به ایران تمامی پروازهاشون به ایران رو لغو کردن
 
 
 💋 @Tasiyanc

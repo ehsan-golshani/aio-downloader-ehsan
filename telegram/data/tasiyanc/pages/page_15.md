@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
+نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10054
 
@@ -272,20 +282,5 @@ Tasiyan | تاسیان pinned a photo
 🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10035
-
-<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
-
-مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
-
-
-دریافت کانفیگ ها 👉
-
-@Tasiyanc 💋
 </div>
 

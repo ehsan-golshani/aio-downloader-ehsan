@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10333
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یکی از بهترین ربات‌های دانلودر که بکارتون میاد
+
+مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
+
+👉 @wsavebot
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10332
 
@@ -266,29 +278,5 @@ http://til.ac/z5jcpGT
 
 🔥کانال اطلاع رسانی ایران:👇🅰r2‌4
 https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10303
-
-<div align="center"><img src="files/post_10303_tasiyanc_10303.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-🚨 چندین هوش مصنوعی قدرتمند، فقط در یک سایت!
-
-با Arena AI می‌تونی به مدل‌های مختلف هوش مصنوعی دسترسی داشته باشی و حتی مدل‌هایی مثل GPT، Gemini، Grok و... رو با هم مقایسه کنی!
-
-🚨 تولید و ویرایش عکس با مدل‌های مختلف
-
-🚨 ساخت ویدیو با AI
-
-🚨 چت و حل مسائل با مدل‌های قدرتمند
-
-
-مقایسه مدل‌ها و رأی دادن به بهترین پاسخ
-و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
-🌐 https://arena.ai
-
-💋 @Tasiyanc
 </div>
 

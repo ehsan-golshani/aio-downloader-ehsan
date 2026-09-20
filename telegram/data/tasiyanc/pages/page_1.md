@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/29 21:11
+📅 آخرین بروزرسانی: 1405/06/29 23:28
 
 ---
+
+## tasiyanc — post 10448
+
+<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
+این کشور اولین کشور درجهانه که اینکارو میکنه.
+یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10447
 
@@ -302,17 +316,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 دختره تو ماشین دوس‌پسرش نشسته داره به دوس‌پسر دومش پیام میده پسره هم هار هار مثل خر می‌خنده
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10423
-
-<div align="center"><img src="files/post_10423_tasiyanc_10423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توییت اکانت رسمی تلگرام در توییتر
-
-خطاب به ایلان ماسک نوشته ثروت واقعی به پول و... نیست به ممه های گنده‌س
-
-⚡ @Tasiyanc
 </div>
 
