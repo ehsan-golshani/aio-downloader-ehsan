@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 9769
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9768
 
@@ -273,16 +281,5 @@ til.ac/0L4vyJf
 پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9744
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
 </div>
 

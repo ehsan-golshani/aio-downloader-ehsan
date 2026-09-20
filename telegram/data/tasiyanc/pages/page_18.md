@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 9973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سد مهدی دهمردی بریم تو کارت یا ن 😐
+</div>
 
 ## tasiyanc — post 9972
 
@@ -240,28 +246,5 @@ sg14
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9947
-
-<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  
-📶
-
-لوکیشن 
-🇲🇦 Morocco
-
-مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
-
-
-⬅️ دریافت کانفیگ ها 
-🟠
-
-
-🩸 T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 9630
+
+<div align="center"><img src="files/post_9630_tasiyanc_9630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز 5 شهریور ماه، زادروز اسطوره بزرگ و منجی یگانه مستی حضرت زکریا رازی هست
+
+این اتفاق مبارك همزمان با شب جمعه‌س ، بفرست واسه رفیقت از الان برنامه رو بچین
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9628
 
@@ -310,18 +323,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9607
-
-<div align="center"><img src="files/post_9607_tasiyanc_9607.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ممکنه در آینده تولد پسرها متوقف بشه ؟
-یک مطالعه علمی هشدار داده که کروموزوم Y، عامل اصلی تعیین جنسیت مردانه، در طول میلیون‌ها سال به‌شدت کوچک شده و بخش بزرگی از ژن‌های خود را از دست داده است؛ روندی که این سؤال نگران‌کننده را مطرح کرده: اگر این روند در آینده ادامه پیدا کند، آیا ممکن است روزی تولد پسرها متوقف شود؟!
-+منبع داخل بنر
-
-
-🩸 @Tasiyanc
 </div>
 

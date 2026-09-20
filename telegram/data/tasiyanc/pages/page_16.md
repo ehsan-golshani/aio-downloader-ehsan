@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 10018
+
+<div align="center"><img src="files/post_10018_tasiyanc_10018.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 10017
 
@@ -347,19 +372,6 @@ til.ac/0L4vyJf
 4. فرزاد ریازی — اهل سنه (سنندج)، بازنشسته اداره راه
 5. یدالله سلیمی — اهل سنه (سنندج)
 6. مهدی زندی پوریان
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9993
-
-<div align="center"><img src="files/post_9993_tasiyanc_9993.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عادی‌ترین پست ترامپ 😂
-
-اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
-+اشاره به شباهت نقشه برعکس ایران با کله خودش
 
 💋 @Tasiyanc
 </div>

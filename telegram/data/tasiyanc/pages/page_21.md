@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 9901
+
+<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9900
 
@@ -262,18 +273,6 @@ sg12
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9876
-
-<div align="center"><video src="files/post_9876_tasiyanc_9876.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9876_tasiyanc_9876.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠خدمه‌ی نام هواپیمابر آبراهام لینکلن که چندین ماه در خلیج فارس و جنگ با جمهوری اسلامی حضور داشتن ، به تایلند رسیدن و رفتن چند روزی عشق حال کنن
 
 💋 @Tasiyanc
 </div>

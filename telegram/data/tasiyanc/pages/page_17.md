@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/29 03:58
+📅 آخرین بروزرسانی: 1405/06/29 08:56
 
 ---
+
+## tasiyanc — post 9993
+
+<div align="center"><img src="files/post_9993_tasiyanc_9993.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عادی‌ترین پست ترامپ 😂
+
+اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
++اشاره به شباهت نقشه برعکس ایران با کله خودش
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9992
 
@@ -327,11 +340,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9973
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سد مهدی دهمردی بریم تو کارت یا ن 😐
 </div>
 
