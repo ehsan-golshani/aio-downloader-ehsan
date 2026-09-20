@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 9875
+
+<div align="center"><video src="files/post_9875_tasiyanc_9875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9875_tasiyanc_9875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با انجام دادن این حرکات ورزشی، قوز کمرتان را اصلاح کرده و درد شانه‌ را برطرف کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9873
 
@@ -318,29 +340,5 @@ sa11
 sg11
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9849
-
-<div align="center"><video src="files/post_9849_tasiyanc_9849.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9849_tasiyanc_9849.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9848
-
-<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
-
-💋 @Tasiyanc
 </div>
 

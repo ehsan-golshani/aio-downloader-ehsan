@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 9920
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 حمله موشکی از سیریک به تنگه هرمز
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9919
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9918
 
@@ -272,30 +288,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9900
-
-<div align="center"><video src="files/post_9900_tasiyanc_9900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9900_tasiyanc_9900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدئوی دوربین مداربسته از حمله دو نفر سارق به یک زن میانسال در خیابان و سرقت وحشیانه طلاهای او
-
-در مکانهای خلوت، احتیاط بیشتری کنید و وسایل و اشیای ارزشمند خود را در معرض دید قرار ندید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
 
 
 💋 @Tasiyanc

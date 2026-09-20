@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 10213
+
+<div align="center"><img src="files/post_10213_tasiyanc_10213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت وایرال‌شده مادر فرزند دهه ۶۰
+
+Prompt 🤖🤖
+
+Create an ultra-realistic vintage photograph of an Iranian mother holding her young child, set in Iran during the 1360s Persian calendar (1980s). The mother and child are standing outdoors on a nostalgic Iranian city street during golden hour, with an authentic old Iranian car parked in the background and softly blurred urban scenery.
+
+The mother has naturally curly dark hair, large vintage sunglasses and classic hoop earrings. She is wearing an authentic colorful 1980s Nike-style retro windbreaker with teal green, purple, pink and white color-block patterns. The child is wearing a matching retro colorful tracksuit jacket, creating a beautiful coordinated mother-and-child look.
+
+The mother is holding the child naturally and affectionately, both facing the camera with calm, natural expressions. Warm sunset light creates a soft golden glow around them. Authentic 1980s Persian/Iranian atmosphere, nostalgic family photography, old analog camera aesthetic, subtle film grain, light dust, tiny scratches, faded vintage colors, slightly soft focus, realistic skin texture, natural facial proportions, candid documentary feeling.
+
+Composition: medium portrait, vertical 4:5 framing, mother positioned slightly to the left while holding the child on the right, eye-level camera angle, shallow depth of field, cinematic warm lighting, realistic background bokeh.
+
+Extremely photorealistic, authentic 1980s family photo, analog film photography, Kodak-style vintage tones, highly detailed, natural imperfections, no modern objects, no smartphones, no contemporary cars, no text, no watermark.
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10212
+
+<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
+که تک‌تیرانداز به هیچ کدومشون رحم نکرد
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10210
 
@@ -275,31 +312,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 10179
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-
-🟠با این سایت میتونید روزانه ۱۵ ویدیو رایگان تولید محتوا و تبلیغاتی با هوش مصنوعی بسازید
-
-برای تست کردنش کافیه وارد سایت زیر بشید
-https://fal.ai/models/minimax/h3-max/text-to-video
-
-🤖 یه گزینه خوب برای ساخت کلیپ‌های کوتاه، تست ایده‌ها ، تولید محتوای تبلیغاتی و ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همسر غلامعلی حدادعادل تعداد کشته شدگان حمله ۹ اسفند در بیت رهبری را اعلام کرد: ۷۶ نفر
-
-همسر حدادعادل:
-هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
-
-💋 @Tasiyanc
 </div>
 

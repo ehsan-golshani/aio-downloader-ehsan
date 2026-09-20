@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 10017
+
+<div align="center"><video src="files/post_10017_tasiyanc_10017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10017_tasiyanc_10017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ادب کردن عراقی‌ها که در سمنان به یه دختر ایرانی قصد تعرض داشتند
+
+توی سمنان چند نفر عراقی برای یک بانوی ایرانی ایجاد مزاحمت کرده بودن اینطوری ادب شدن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10015
+
+<div align="center"><video src="files/post_10015_tasiyanc_10015.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10015_tasiyanc_10015.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10014
 
@@ -332,34 +360,6 @@ til.ac/0L4vyJf
 
 اومده نقشه خاورمیانه رو برعکس کرده و نوشته «Before»؛ بعد پایینش سر خودش رو جای نقشه ایران گذاشته و نوشته «After»!
 +اشاره به شباهت نقشه برعکس ایران با کله خودش
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سخنگوی دولت رسما اعلام کرد:
-
-نرخ کارت جایگاه سوخت از بامداد ۱۷ شهریور به ۱۰ هزار تومان افزایش خواهد یافت.
-
-+ سهمیه اول و دوم ثابت ، نرخ سوم ۱۰ هزار تومان شد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9991
-
-<div align="center"><video src="files/post_9991_tasiyanc_9991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9991_tasiyanc_9991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 به تازگی یه چیزی مُد شده به اسم:
-«جوجو پارتی»، تو این پارتی،
-
-پسرا رفیقای دوس دخترشون رو به همراه رفیق سینگلشون به این پارتی میارن، تا برای همدیگه جوجه بکشن و از سینگلی در بیان.
-
 
 💋 @Tasiyanc
 </div>

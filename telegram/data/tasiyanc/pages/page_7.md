@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 10280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
+</div>
+
+## tasiyanc — post 10272
+
+<div align="center"><video src="files/post_10272_tasiyanc_10272.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10272_tasiyanc_10272.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوری میشه انقد حرومزاده باشی؟
+
+🚨 این پسر تیک تاکر حرومزاده به اسم آران‌ به یه دختر بچه ۶ ساله تجاوز کرده طبق چت‌هاش
+
+ماجرا از این قراره که یه دختر بچه ۶ ساله که فامیلشون بود اومد خونشون. بعد این بی همه چیز به دوستاش تو گروه میگه:
+این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10271
 
@@ -271,90 +294,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10241
-
-<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 
-📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-
-💖بونوس 100% واریز اول
-
-💖بونوس 100% واریز دوم
-
-💖بونوس 75% | 50% واریز سوم و چهارم
-
-💖بونوس 200% ویژه کازینو
-
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-
-🔥 کانال تلگرام وی پاری:
-
-✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10240
-
-<div align="center"><video src="files/post_10240_tasiyanc_10240.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10240_tasiyanc_10240.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-
-🍏 آموزش برای کاربران iOS
-
-
-🌐 لینک ورود به سایت
-👇
-
-🔥 til.ac/PJHVQSm
-
-🔥 til.ac/PJHVQSm
-
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
 </div>
 

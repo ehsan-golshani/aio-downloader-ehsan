@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 10428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
+</div>
+
+## tasiyanc — post 10427
+
+<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+28🅰
+🛒 ورود به سایت 👇
+✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10426
 
@@ -325,39 +355,6 @@ https://AmitisBet.com/
 
 اینا فقط چندتا از دستورای خفنشه؛
 بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10406
-
-<div align="center"><video src="files/post_10406_tasiyanc_10406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10406_tasiyanc_10406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10405
-
-<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دستور جادویی برای پرامپت حرفه‌ای‌تر!
-
-🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
-
-Act as a … + تخصص
-
-مثلاً:
-Act as a senior UX designer
-Act as an expert copywriter
-Act as a motivational coach
-
-🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/29 00:10
+📅 آخرین بروزرسانی: 1405/06/29 03:58
 
 ---
+
+## tasiyanc — post 9972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9971
+
+<div align="center"><video src="files/post_9971_tasiyanc_9971.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9971_tasiyanc_9971.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9970
 
@@ -242,24 +263,5 @@ sg14
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9946
-
-<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
 </div>
 
