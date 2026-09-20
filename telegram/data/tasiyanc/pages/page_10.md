@@ -1,8 +1,135 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/29 08:56
+📅 آخرین بروزرسانی: 1405/06/29 13:41
 
 ---
+
+## tasiyanc — post 10191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10190
+
+<div align="center"><img src="files/post_10190_tasiyanc_10190.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠معرفی فیلترشکن رایگان GoFly VPN
+
+یکی از فیلترشکن‌های محبوب و کاملاً رایگان که بیش از ۱ میلیون نصب در گوگل‌پلی داره و با تمام اپراتور های ایران وصله
+
+
+• کاملاً رایگان (بدون اشتراک و خرید درون‌برنامه‌ای)
+• پهنای باند نامحدود
+• اتصال یک‌کلیکی و ساده
+• پشتیبانی از V2ray / Trojan / SOCKS5
+• مناسب برای اینستاگرام، یوتیوب و شبکه‌های اجتماعی و هوش مصنوعی
+دارای دو نسخه اندروید و ویندوز 🪟👽
+
+🔗 https://goflyvpn.com/
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10189
+
+<div align="center"><video src="files/post_10189_tasiyanc_10189.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10189_tasiyanc_10189.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 جدیدترین آپدیت اپلیکیشن Wepari 📱
+
+
+✅ امکان شارژ درگاه ریالی کاربران ایران
+💖بونوس 100% واریز اول
+💖بونوس 100% واریز دوم
+💖بونوس 75% | 50% واریز سوم و چهارم
+💖بونوس 200% ویژه کازینو
+
+🔥کد هدیه برای بونوس ها: wepari200
+
+🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
+
+🔥 کانال تلگرام وی پاری:
+✅ @wepari_irann
+</div>
+
+## tasiyanc — post 10188
+
+<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+              
+😃
+😃
+😃
+😃                
+
+
+🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
+🤝
+
+
+🔥 سایت شماره 1 حال حاضر اروپا
+
+🔥 بازگشت 25% باخت به صورت هفتگی
+
+🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
+
+
+✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: wepari200
+
+💳  آموزش شارژ با کارت بانکی
+
+📱 نصب اپلیکیشن اندروید سایت
+🍏 آموزش برای کاربران iOS
+
+🌐 لینک ورود به سایت👇
+
+🔥 til.ac/PJHVQSm
+🔥 til.ac/PJHVQSm
+
+🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
+</div>
+
+## tasiyanc — post 10184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10180
 
@@ -246,104 +373,5 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛ ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار! تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی . 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10161
-
-<div align="center"><img src="files/post_10161_tasiyanc_10161.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده کاپلی تهران دهه 50 👑
-
-« Prompt »
-
-Create a highly photorealistic authentic 35mm color film photograph of the two people from the uploaded reference photos, as a young couple in Tehran, Iran, circa 1960.
-
-IDENTITY IS THE HIGHEST PRIORITY: Person 1 must remain clearly recognizable from reference 1, and Person 2 from reference 2. Preserve their exact facial identity, proportions, eyes, nose, lips, jawline, skin tone, hair and distinctive features. No face swapping, merging, beautification, generic faces or identity changes.
-
-Composition: Vertical 3:4, eye-level, vintage 50mm lens look, framed from knees/thighs upward. Person 1 on the left, Person 2 on the right. They stand close together, looking naturally at the camera. Person 2 has one arm gently around Person 1's shoulders, heads slightly leaning together. Person 1 holds a small cream vintage handbag with both hands.
-
-Person 1: Late-1950s/early-1960s sage-green and cream gingham dress, fitted waist, modest rounded neckline, ivory gloves, pearl/cream clip-on earrings, elegant period updo with cream headband, subtle vintage makeup and natural skin texture.
-
-Person 2: Dark charcoal-brown tailored vintage suit, broad lapels, white shirt, narrow patterned dark tie, silver tie clip and white pocket square. Classic period hairstyle; preserve facial hair if present in reference.
-
-Background: Authentic Tehran street circa 1960, old cinema entrance directly behind them with a marquee reading “TEHRAN” and subtle period movie lettering. Upper-right: vintage Iranian movie poster with Persian text “زندگی زیباست”. Include period architecture, pedestrians, trees and storefronts. Lower-left: partially visible pale turquoise/mint 1950s American classic car with chrome and round headlights.
-
-Film look: Authentic faded Kodachrome-style colors, warm beige/brown/sage/cream/dusty turquoise palette, soft afternoon light, natural skin, slightly soft vintage lens, fine grain, subtle film noise, faded colors, low-medium contrast, gentle sepia warmth, realistic depth of field.
-
-Add strong physical aging only around the outer edges: worn cream border, chipped/scratched corners, dust, emulsion scratches, faded patches, paper wear, light leaks and distressed antique-print texture. Keep the center—especially both faces—clean, sharp and recognizable.
-
-Avoid: modern buildings/cars/fashion/hairstyles, smartphones, HDR, plastic skin, beauty filters, altered identities, generic faces, anatomy errors, extra fingers, duplicated people, excessive blur, CGI, illustration or painting.
-
-Final result: A believable rediscovered real color photograph from Tehran around 1960, romantic, nostalgic and historically authentic.
-
-آموزش استفاده و ساخت تصویر➡️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10160
-
-<div align="center"><video src="files/post_10160_tasiyanc_10160.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10160_tasiyanc_10160.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز ۱۱ سپتامبر ، 25 سال پیش در چنین روزی تلخ‌ترین حادثه تروریستی برای آمریکا رقم خورد
-صبحی که با برخورد دو هواپیما به برج‌های دوقلوی تجارت جهانی نیویورک، جهان شوکه شد.
-۲۹۷۷ نفر کشته شدند؛ دو برج فرو ریختند و تاریخ سیاست آمریکا برای همیشه تغییر کرد.
-این حملات توسط ۱۹ هواپیماربا انجام شد که اعضای شبکه تروریستی القاعده (Al-Qaeda) بودند و عملیات تحت رهبری اسامه بن لادن برنامه‌ریزی شده بود.
-چهار هواپیما ربوده شدند:
-دو هواپیما به برج‌های دوقلوی نیویورک برخورد کردند.
-یکی به پنتاگون اصابت کرد.
-چهارمی در پنسیلوانیا سقوط کرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10159
-
-<div align="center"><img src="files/post_10159_tasiyanc_10159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✝️حکم دستگیری دختر و پسر تو ماشین
-احتمالا به دردتون بخوره بدونید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10158
-
-<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
-این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

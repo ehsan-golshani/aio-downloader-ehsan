@@ -1,8 +1,138 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/29 08:56
+📅 آخرین بروزرسانی: 1405/06/29 13:41
 
 ---
+
+## tasiyanc — post 10437
+
+<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼امروز 20 September روز جهانی قدردانی از همسره
+👼
+
+بفرس براش 
+🌹
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10436
+
+<div align="center"><img src="files/post_10436_tasiyanc_10436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10434
+
+<div align="center"><video src="files/post_10434_tasiyanc_10434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10434_tasiyanc_10434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴معرفی فیلم وایرال شده جدید : مادر اژدها
+
+مادری در یک اتفاق نادر و عجیب، بچه‌ای از جنس اژدها به دنیا می‌آورد. با انتشار این خبر، اهالی روستا که از وجود این موجود نگران شده و امنیت خود را در خطر می‌بینند، مادر را از روستا بیرون می‌کنند و تصمیم می‌گیرند بچه را نابود کنند. اما مادر برای محافظت از فرزندش در برابر خشم و بی‌رحمی مردم، دست به هر کاری می‌زند و نبردی پرچالش را آغاز می‌کند...
+
+دانلود فیلم بدون سانسور 👉
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10433
+
+<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
+آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10432
+
+<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀 
+📆 بورنموث - لیورپول 
+⏰ ساعت ۱۶:۳۰ 
+🌎 
+📲 آث میلان - لچه 
+😀 ساعت ۲۲:۱۵ 
+🌎   
+📺بونوس خوش آمدگویی ورزشی
+🎁 
+🎁 بالاترین حد مبلغ شرط
+🎁 
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️ 
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️ 
+✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10431
+
+<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀
+
+
+📆 بورنموث - لیورپول
+
+⏰ ساعت ۱۶:۳۰ 
+🌎
+
+
+📲 آث میلان - لچه
+
+😀 ساعت ۲۲:۱۵ 
+🌎
+
+ 
+
+📺بونوس خوش آمدگویی ورزشی
+🎁
+
+🎁 بالاترین حد مبلغ شرط
+🎁
+
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️
+
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️
+
+
+✈️ https://t.me/BerryBetOfficial
+R29
+
+🔗 ثبت نام و ورود به بخش پیشبینی
+💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10430
 
@@ -202,139 +332,5 @@
 بانو در حین تلاش برای شکستن رکورد بیشترین تعداد سکس تو ۲۴ ساعت، دقایقی بعد از آغاز عملیات یکی از مردایی که باهاش رابطه داشت پاشید تو صورتش و بیناییش بشدت به مشکل خورد و راهی بیمارستان شد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10412
-
-<div align="center"><video src="files/post_10412_tasiyanc_10412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10412_tasiyanc_10412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁بعضی موقع ها، سخت‌ترین رقابت دنیا…
-همونیه که توی ذهن خودت اتفاق می‌افته. 🧠💡⚡️
-
-یکی می‌گه «بی‌خیال، بخواب»
-یکی می‌گه «یه کم هیجان لازم داری» 🚬
-
-کدوم شخصیتِ ذهنت برنده می‌شه؟
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-📱🤖 دانلود مستقیم اپلیکیشن اندروید
-
-😀 آدرس ثابت وبسایت
-
-✈️ عضویت کانال تلگرام
-
-📷مشاهده پروفایل اینستاگرام
-
-لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
-۱۸+ | مسئولانه بازی کن
-</div>
-
-## tasiyanc — post 10411
-
-<div align="center"><video src="files/post_10411_tasiyanc_10411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10411_tasiyanc_10411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 تاثیر قهوه بر بدن
-
-تاثیر قهوه بر بدن به ژنتیک‌مون بستگی داره. بعضی از افراد ژن‌هایی دارن که باعث می‌شه سریع‌تر کافئین رو متابولیزه کنن و انرژی زیادی ازش بگیرن…
-
-در حالی که بعضی‌ها به دلیل داشتن ژن‌های خاص، کافئین رو دیرتر تجزیه می‌ کنن و ممکنه دچار بی‌خوابی یا حتی اضطراب بشن.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت
-📱
-سریع، آسان و آنی
-👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10409
-
-<div align="center"><video src="files/post_10409_tasiyanc_10409.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10409_tasiyanc_10409.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 شنبه ۲۸ شهریور؛ انگلستان امروز بدون توقف می‌دود!
-تاتنهام–ویلا ۱۵:۰۰؛ ضربه‌ی اول و شروع فشار.
-اورتون–نیوکاسل ۱۷:۳۰؛ جدالی که وسط روز را سنگین می‌کند.
-برایتون–هال ۱۷:۳۰؛ نبردی که ریتم را دوشاخه می‌کند.
-ایپسویچ–آرسنال ۱۷:۳۰؛ بازی‌ای که همیشه بیشتر از ظاهرش می‌جوشد.
-ناتینگهام–کاونتری ۲۰:۰۰؛ پایانی که روز را کامل می‌بندد.
-پریمیرلیگ امروز پنج ضربه‌ی پشت‌سرهم می‌زند.
-
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 
-3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-
-🌄 آدرس ثابت وبسایت
-
-
-🌐 عضویت کانال تلگرام
-
-
-📱 مشاهده پروفایل اینستاگرام
-
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
-</div>
-
-## tasiyanc — post 10408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
-
-دریافت کانفیگ‌ها 👉
-
-به هیچ عنوان از دست ندید گادن 💥
-
-@Tasiyanc
 </div>
 
