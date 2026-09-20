@@ -1,8 +1,27 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/29 23:27
+📅 آخرین بروزرسانی: 1405/06/30 01:59
 
 ---
+
+## ProxyMTProto — post 51138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Хочешь разместить свой прокси здесь? 😏 @SProxyRobot
+Забронируй слот через бота за пару секунд.
+
+Want to post your proxy here? 😏 @SProxyRobot
+Reserve your slot through the bot in seconds.
+</div>
+
+## ProxyMTProto — post 51137
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media6.happtg.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51136
 
@@ -164,24 +183,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: 1b2aca9d-6852-45a7-bd7b-771a70fde2b7.fast-cdn.cc
 Port: 443
 Secret: ee5a9252c2c44ec88a5ad64b048d4585f7666173742d63646e2e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51118
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51117
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 @ProxyMTProto
 </div>
 
