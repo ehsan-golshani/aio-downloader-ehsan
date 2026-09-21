@@ -1,8 +1,133 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/30 14:42
+📅 آخرین بروزرسانی: 1405/06/30 20:46
 
 ---
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10289
+
+<div align="center"><img src="files/post_10289_tasiyanc_10289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاشقانه‌ترین عکسی که میتونی با پارتنرت بسازی 💕
+
+Prompt 🤖🤖
+
+Keep faces 100% similar to reference photos A detailed medium close-up, candid portrait photograph of a young, attractive couple in a tender, romantic embrace on a beach. The man, with dark hair and a beard, is on the left, wearing a vintage-style brown t-shirt with beige gothic-style text and graphic prints on the back. He holds the woman close, his arms around her waist. The woman, with long blonde hair emerging from under a black baseball cap worn backwards, is on the right, wearing a dark olive-green coverall. She has bold red lipstick and her eyes are closed as she reaches up with both hands, gently cupping the man’s face, their faces very close for a soft, imminent kiss (a nose-to-nose or soft cheek kiss). The background is a soft-focus, overcast beach scene with gray-blue sea waves and a hazy, indistinct horizon. Natural, diffuse, and gentle lighting. The image is clean and completely devoid of any text, status bars, or watermarks. Canvas: 9:16
+
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: giftcodeir
+
+🤝 اسپانسر رسمی جام جهانی
+🔵 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 آموزش ثبت نام و واریز
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10287
+
+<div align="center"><img src="files/post_10287_tasiyanc_10287.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاب امروز فوتبال جهان رو با آپشن های تخصصی در MelBet پیشبینی کنید! ⚽️🔥
+
+✅ تمام بازی ها در سایت Melbet ارائه شده و بالای 3000 آپشن دارند. از برد و باخت بگیر تا کرنر و شوت و آفساید و خطا و… حتی روی VAR و کادر درمان بازی هم شرط میتونید ببندید!
+
+┅━━━━━━━━━━━━┅
+
+
+💵 امکان شارژ حساب با انواع ارز دیجیتال
+🔢 با واریز اول در ملبت 2 برابر شارژ بشید
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+↗️حرفه ای، مطمئن و در کلاس جهانی پیش بینی کنید!
+
+🔔 آموزش ثبت نام و واریز
+
+💛 لینک جدید و بدون فیلتر ملبت (فیلترشکن خاموش)⬇️
+🌐 www.Melbet.com
+🌐 www.Melbet.com
+</div>
+
+## tasiyanc — post 10286
+
+<div align="center"><video src="files/post_10286_tasiyanc_10286.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10286_tasiyanc_10286.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت گنگ براتون آوردیم 
+😎
+
+Prompt 
+🤖
+🤖
+
+«BatMan»
+
+CREATE A BLACK-AND-WHITE CINEMATIC, MEDIUM CLOSE-UP. IN THE FOREGROUND, DOMINATING THE LEFT SIDE OF THE FRAME, IS THE BACK OF A RIGID, MATTE BLACK HIGH-TECH SUIT FEATURING BROAD SHOULDER PLATES AND A SLEEK, ANGULAR SCULPTED COWL WITH SHARP POINTED EARS. OVER THE SHOULDER OF THE SUIT, POSITIONED IN THE RIGHT MIDGROUND, IS A HANDSOME YOUNG MAN LOOKING AT THE SUIT. HE IS WEARING A DARK PINSTRIPE SUIT JACKET OVER A FINELY STRIPED DRESS SHIRT AND DARK TIE. HIS EXPRESSION IS SERIOUS, CONTEMPLATIVE, AND STOIC. THE SETTING IS A MINIMALIST, MODERN ROOM FEATURING A BRIGHT, LUMINOUS GRID CEILING AND DARK, OUT-OF-FOCUS BACKGROUND WALLS WITH A SUBTLE VERTICAL METALLIC ELEMENT. SOFT, DIFFUSED OVERHEAD LIGHTING FROM THE CEILING PANELS CREATES SCULPTED SHADOWS ON THE MAN'S SHARPLY FOCUSED FACE AND STRIKING EDGE HIGHLIGHTS ALONG THE CONTOURS OF THE DARK SUIT. HIGH CONTRAST GRAYSCALE, FINE FACIAL FEATURES AND CRISP TEXTURES, INTENSE INTROSPECTIVE MOOD. ASPECT RATIO 3:4
+
+«Sport Man »
+
+RAW 35MM FLASH PHOTOGRAPHY, POINT-AND-SHOOT SNAPSHOT AESTHETIC. [SUBJECT: A PERSON MATCHING MY UPLOADED REFERENCE PHOTO] STANDING CONFIDENTLY IN A NOCTURNAL STONE COURTYARD. THE SUBJECT IS WEARING A FITTED BLACK LEATHER JACKET, DARK T-SHIRT, AND DARK DENIM, LEANING CASUALLY AGAINST THE DRIVER'S SIDE OF A SLEEK BLACK PORSCHE 911 GT3 RS WITH A VISIBLE CARBON FIBER HOOD AND MASSIVE REAR WING. THE SUBJECT IS HOLDING THE LEATHER LEAD ROPE OF A MASSIVE, IMPOSING BLACK FRIESIAN HORSE STANDING IMMEDIATELY BEHIND THEM ON THE RIGHT. DIRECT, HARSH ON-CAMERA FLASH ILLUMINATES THE SCENE, CREATING INTENSE SPECULAR HIGHLIGHTS ON THE GLOSSY CAR PAINT AND THE HORSE'S DARK COAT. SHARP, HARD SHADOWS FALL DIRECTLY BEHIND THE SUBJECTS ONTO PALE BEIGE STUCCO WALLS AND STONE ARCHWAYS WITH DARK WOOD DOORS. IRREGULAR COBBLESTONE GROUND. PITCH BLACK, LIGHTLESS NIGHT SKY ABOVE THE WALLS. HIGH CONTRAST, DESATURATED COLORS, DEEP CRUSHED BLACKS IN THE BACKGROUND, HEAVY FILM GRAIN, SLIGHT VIGNETTE, RAW, GRITTY LUXURY LIFESTYLE EDITORIAL, ULTRA-DETAILED. ASPECT RATIO 3:4.
+
+«Smoke Man »
+
+CREATE A SURREAL BLACK-AND-WHITE EDITORIAL POSTER SHOT FROM AN EXTREME LOW ANGLE WITH HEAVY ANALOG GRAIN, HARSH CONTRAST, AND REALISTIC PHOTOGRAPHIC TEXTURE. A YOUNG ATHLETIC MAN STANDS CENTER-RIGHT, AGAINST THE BELLY, WEARING A DISTRESSED DARK TANK TOP, TROUSERS, AND A METAL WATCH. HE CALMLY SMOKES A CIGARETTE WITH BOTH HANDS, THE SMOKE SLOWLY DRIFTING PAST HIS FACE.
+ABOVE HIM, HANG AN UPSIDE-DOWN PALE SUBURBAN HOUSE AGAINST A BLURRED SKY, SURROUNDED BY INVERTED DARK FOLIAGE. ADD A LARGE DIAGONAL BLACK ARCHITECTURAL SILHOUETTE IN THE BOTTOM-RIGHT OF THE BACKGROUND, LEAVING STRONG NEGATIVE SPACE ON THE LEFT.
+IN THE SKY, PLACE A DISTRESSED CRIMSON-MAROON HEADLINE: "ONE LAST SMOKE". RED SHOULD BE THE ONLY COLOR. ADD A FAINT "AI.AKAASH" LOGO/WATERMARK IN A CLEAN MINIMALIST STYLE, PREFERABLY SMALL NEAR THE BOTTOM.
+USE DEEP BLACKS, SILVERY MID-TONES, CINEMATIC DUST TEXTURE, HALFTONE EFFECT, AND IMPERFECT BLUR. MONOCHROME, SURREAL, GRITTY POSTER STYLE. NO REALISM OF HUMAN APPEARANCE.
+IMAGE FORMAT: 3:
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10285
 
@@ -200,99 +325,6 @@ Join Join Join
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 خبرگزاری فارس :
 احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10250
-
-<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی نامحدود OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون 
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10249
-
-<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10247
-
-<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
-
-اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
-
-« اطلاع رسانی کنین به آشناهاتون »
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10246
-
-<div align="center"><video src="files/post_10246_tasiyanc_10246.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10246_tasiyanc_10246.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
 
 
 💋 @Tasiyanc

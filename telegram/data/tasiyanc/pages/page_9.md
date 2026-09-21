@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/30 14:42
+📅 آخرین بروزرسانی: 1405/06/30 20:46
 
 ---
+
+## tasiyanc — post 10256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
+
+## tasiyanc — post 10255
+
+<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال
+
+📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
+
+🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
+
+👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
+
+## tasiyanc — post 10250
+
+<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون 
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10249
+
+<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10247
+
+<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
+
+اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
+
+« اطلاع رسانی کنین به آشناهاتون »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10246
+
+<div align="center"><video src="files/post_10246_tasiyanc_10246.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10246_tasiyanc_10246.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10245
 
@@ -263,66 +356,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10227
-
-<div align="center"><video src="files/post_10227_tasiyanc_10227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10227_tasiyanc_10227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو کیش یه کنسرت ده هزار نفری برگزار شد که دخترا و پسرای ایران‌زمین کنار هم رقصیدن بدون اینکه کسی تحریک شه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10226
-
-<div align="center"><img src="files/post_10226_tasiyanc_10226.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
-
-شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Mix_Safe @miix_viip
-هر هفته قرعه کشی داریم 😏👆👆
-
-فرم های شرطبندی با آنالیز های حرفه ای📊
-#VIP #رایگان 🛡️
-</div>
-
-## tasiyanc — post 10224
-
-## tasiyanc — post 10223
-
-<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
-
-آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
-این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
-و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10220
-
-<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رویت شده در تجمعات شبانه 🤣
 
 💋 @Tasiyanc
 </div>
