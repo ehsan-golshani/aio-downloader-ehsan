@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40میلیون جایزه برای ۱۰۰ نفر
+همین حالا عضو خانواده وی پاری شو✔️
+</div>
 
 ## tasiyanc — post 10153
 
@@ -273,30 +280,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 ⭕️
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10118
-
-<div align="center"><video src="files/post_10118_tasiyanc_10118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10118_tasiyanc_10118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 
-👑
-
-Name: Tehran 1350
-
-Prompt 
-🤖
-🤖
-
-Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and recognizable appearance. Set the scene in Tehran, Iran during the 1350s (1970s). She is standing on a Tehran street near Azadi Square, facing the camera in a sophisticated three-quarter pose while her face remains clearly visible. She is dressed as a fashionable Iranian woman from the 1350s
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
 </div>
 

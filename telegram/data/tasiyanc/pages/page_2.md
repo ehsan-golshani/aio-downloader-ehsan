@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10427
+
+<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+28🅰
+🛒 ورود به سایت 👇
+✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10426
 
@@ -337,27 +361,6 @@ https://AmitisBet.com/
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10405
-
-<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دستور جادویی برای پرامپت حرفه‌ای‌تر!
-
-🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
-
-Act as a … + تخصص
-
-مثلاً:
-Act as a senior UX designer
-Act as an expert copywriter
-Act as a motivational coach
-
-🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 9874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9873
 
@@ -328,18 +338,6 @@ sg11
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 وضعیت تعدادی از خونه های مسکونی کوهستک بعد از حملات دیشبِ آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9848
-
-<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
 
 💋 @Tasiyanc
 </div>

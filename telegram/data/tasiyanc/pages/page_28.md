@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 9741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9740
 
@@ -222,16 +230,5 @@ til.ac/0L4vyJf
 🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9707
-
-<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مردی که میبینید اسمش جیسون کوئیج هستش
-
-جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
-🩸 @Tasiyanc
 </div>
 

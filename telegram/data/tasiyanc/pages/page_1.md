@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10453
+
+<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
+
+مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10450
 
@@ -293,29 +306,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10427
-
-<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

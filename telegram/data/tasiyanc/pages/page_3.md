@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10405
+
+<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دستور جادویی برای پرامپت حرفه‌ای‌تر!
+
+🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
+
+Act as a … + تخصص
+
+مثلاً:
+Act as a senior UX designer
+Act as an expert copywriter
+Act as a motivational coach
+
+🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10404
 
@@ -226,18 +247,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10381
-
-<div align="center"><img src="files/post_10381_tasiyanc_10381.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 علی ضیا (مجری حکومتی) همراه با همسرش در ایتالیا ...
-
-+ امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
-عکسها با کیفیت شدن✅
 💋 @Tasiyanc
 </div>
 

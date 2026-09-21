@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چقد کارگری کنم واسه ۱۵۰ میلیونی که میتونم توی یه شب از این کانال دربیارم . 💲
+
+شاید دیگه این فرصت گیرت نیاد حتما جوین شو 💎
+
+به پول یه خونه و ماشین می‌رسی راحت 💲
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
 
 ## tasiyanc — post 10335
 
@@ -257,18 +269,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 🇦🇪
 🇩🇪
 🇳🇱
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10306
-
-<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
 
 💋 @Tasiyanc
 </div>

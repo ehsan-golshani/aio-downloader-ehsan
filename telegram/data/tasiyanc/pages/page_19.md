@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 9971
+
+<div align="center"><video src="files/post_9971_tasiyanc_9971.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9971_tasiyanc_9971.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9970
 
@@ -255,11 +268,5 @@ sg14
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
 </div>
 

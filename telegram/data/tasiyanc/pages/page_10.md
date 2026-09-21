@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10212
+
+<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
+که تک‌تیرانداز به هیچ کدومشون رحم نکرد
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10210
 
@@ -288,17 +301,6 @@ til.ac/0L4vyJf
 https://fal.ai/models/minimax/h3-max/text-to-video
 
 🤖 یه گزینه خوب برای ساخت کلیپ‌های کوتاه، تست ایده‌ها ، تولید محتوای تبلیغاتی و ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همسر غلامعلی حدادعادل تعداد کشته شدگان حمله ۹ اسفند در بیت رهبری را اعلام کرد: ۷۶ نفر
-
-همسر حدادعادل:
-هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
 
 💋 @Tasiyanc
 </div>

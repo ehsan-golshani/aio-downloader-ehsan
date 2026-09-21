@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 9707
+
+<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مردی که میبینید اسمش جیسون کوئیج هستش
+
+جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9706
 
@@ -277,15 +288,5 @@ https://Winamit.com/fa
 + بازی efutball از قلم افتاده
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9682
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 10240
+
+<div align="center"><video src="files/post_10240_tasiyanc_10240.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10240_tasiyanc_10240.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+              
+😃
+😃
+😃
+😃                
+
+
+🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
+🤝
+
+
+🔥 سایت شماره 1 حال حاضر اروپا
+
+🔥 بازگشت 25% باخت به صورت هفتگی
+
+🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
+
+
+✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: wepari200
+
+💳  آموزش شارژ با کارت بانکی
+
+📱 نصب اپلیکیشن اندروید سایت
+
+🍏 آموزش برای کاربران iOS
+
+
+🌐 لینک ورود به سایت
+👇
+
+🔥 til.ac/PJHVQSm
+
+🔥 til.ac/PJHVQSm
+
+
+🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
+</div>
 
 ## tasiyanc — post 10239
 
@@ -262,19 +314,6 @@ Composition: medium portrait, vertical 4:5 framing, mother positioned slightly t
 Extremely photorealistic, authentic 1980s family photo, analog film photography, Kodak-style vintage tones, highly detailed, natural imperfections, no modern objects, no smartphones, no contemporary cars, no text, no watermark.
 
 آموزش استفاده ➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10212
-
-<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
-که تک‌تیرانداز به هیچ کدومشون رحم نکرد
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/30 04:06
+📅 آخرین بروزرسانی: 1405/06/30 09:01
 
 ---
+
+## tasiyanc — post 9848
+
+<div align="center"><video src="files/post_9848_tasiyanc_9848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9848_tasiyanc_9848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختری که چند وقت قبل سر سفره عقد؛ داماد رو سوپرایز کرد و تمام مهریه‌شو تبدیل به ۱۴ شاخه گل رز کرد؛ پسره طلاقش داد و اونم با ۱۴ تا گل رز طبیعی برگشت خونه باباش.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9846
 
@@ -278,17 +290,6 @@ til.ac/0L4vyJf
 🚨« تایید نشده» یک خودروی ناشناس در شهرک گلستان شیراز، زنانی در خیابان تجمعات شبانه کرده بودند، زیر گرفت!
 
 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9827
-
-<div align="center"><video src="files/post_9827_tasiyanc_9827.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9827_tasiyanc_9827.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
 🩸 @Tasiyanc
 </div>
 
