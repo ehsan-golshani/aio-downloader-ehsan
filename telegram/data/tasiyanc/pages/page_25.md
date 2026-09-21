@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9826
+
+<div align="center"><video src="files/post_9826_tasiyanc_9826.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9826_tasiyanc_9826.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9825
+
+<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ادعای ترامپ:
+
+حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9823
 
@@ -255,30 +283,6 @@ sg10
 در حالی که درِ ضدسرقت، دوربین مداربسته، دزدگیر و... فعال کرده بوده.
 خانمش چون باردار بوده همیشه توی خونه بوده، فقط ۳۰ ثانیه بعد اینکه خانمش اومده بیرون، اومدن دزدی!
 حالا ۱۰ میلیارد پاداش گذاشته برای هر کسی که بتونه یه نشونه و آدرسی از این دزدا در بیاره.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
-
-امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9795
-
-<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
-نظر شما چیه طبیعیه یا غیرطبیعی؟
 
 🩸 @Tasiyanc
 </div>

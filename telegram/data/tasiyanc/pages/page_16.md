@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10037
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
+
+## tasiyanc — post 10036
+
+<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10035
 
@@ -286,32 +304,6 @@ sg16
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴توی نیاوران تهران یه کافه ادایی هست که ورودیش ۱۸ میلیون تومنه٬ یعنی شما برای اینکه اجازه بدن وارد اون محوطه بشی ۱۸ میلیون میدی بعدش میری داخل میتونی تازه یه چیزی سفارش بدی بخوری که اونم پولشو باید بدی!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10014
-
-<div align="center"><img src="files/post_10014_tasiyanc_10014.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه میخواید میزان تورم ایران دستتون بیاد کافیه بدونید که سال 1391 با 14 میلیون تومن میتونستی یه پراید بخری؛ امروز با ۱۴ میلیون تومن میتونی یه بسته کـاندوم بخری تا یه آدم دیگه به دنیا نیاد مثل ما بدبخت بشه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10013
-
-<div align="center"><video src="files/post_10013_tasiyanc_10013.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10013_tasiyanc_10013.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایلان ماسک هشدار داده 10 سال دیگه وقت داریم که با کار کردن فیزیکی پول دربیاریم. بعد از اون، ربات‌ها ، هوش مصنوعی بیشتر کارها رو بدست میگیرن و دلیل نداره تو به‌جای اونا کار کنی
-
-+ فرمول‌های قدیمی که هفتگی یا ماهانه حقوق می‌گرفتید دورانشون تموم میشه .
-
 
 
 💋 @Tasiyanc

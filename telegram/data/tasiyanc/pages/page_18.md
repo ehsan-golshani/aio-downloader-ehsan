@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet💥
+
+🎁بونوس ورزشی هر چهارشنبه🔥
+💸واریز و برداشت متنوع💵
+⭕️بدون نیاز به فیلتر شکن⭕️
+sg15
+🎁کد هدیه ثبت نام Melbet90 ✌️
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 9989
+
+<div align="center"><img src="files/post_9989_tasiyanc_9989.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9988
 
@@ -285,35 +323,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9970
-
-<div align="center"><video src="files/post_9970_tasiyanc_9970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9970_tasiyanc_9970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بیانیه سپاه:
-امروز واسه پاسخ به حمله آمریکا، 3 نفتکش تو مسیر غیرمجاز تنگه هرمز + 3 شناور وابسته به آمریکا رو تو یه منطقه دیگه زدیم!
-فریب آمریکا رو نخورید، از هر راهی غیر از اون مسیر مجاز برید، بهتون شلیک میشه...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9969
-
-<div align="center"><video src="files/post_9969_tasiyanc_9969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9969_tasiyanc_9969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢حملات ساعت پیش سپاه پاسداران با پهپاد به نفتکش ها و کشتی های حمل کانتینر
-
-
 
 
 💋 @Tasiyanc

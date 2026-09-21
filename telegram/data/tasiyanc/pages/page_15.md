@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10055
 
@@ -262,24 +280,6 @@ sg17
 + قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
 پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
 
 💋 @Tasiyanc
 </div>

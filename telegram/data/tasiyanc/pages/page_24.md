@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9846
+
+<div align="center"><video src="files/post_9846_tasiyanc_9846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9846_tasiyanc_9846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیروز توی تبریز برای اولین بار ایونت مد و فشن برگزار شد:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی هر دلار 218000 طلای ۱۸ عیار 22.500.000 سکه تمام بهار 222.600.000 🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9844
 
@@ -271,34 +289,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9826
-
-<div align="center"><video src="files/post_9826_tasiyanc_9826.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9826_tasiyanc_9826.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9825
-
-<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ادعای ترامپ:
-
-حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
-
-
 🩸 @Tasiyanc
 </div>
 

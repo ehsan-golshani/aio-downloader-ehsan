@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9796
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دنا پلاس اتومات اپشنال به ۳ میلیارد و ۲۰۰ رسید‌. ۲۰۷ پانا اتومات ۲ میلیارد و ۹۵۰ میلیون.
+
+امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9795
+
+<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
+نظر شما چیه طبیعیه یا غیرطبیعی؟
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9794
 
@@ -275,45 +299,5 @@ til.ac/0L4vyJf
 •کاهش وسواس فکری
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وینامیت 🔥
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9765
-
-<div align="center"><img src="files/post_9765_tasiyanc_9765.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
 </div>
 

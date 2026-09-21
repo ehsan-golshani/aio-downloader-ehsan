@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9916
 
@@ -283,26 +299,5 @@ til.ac/0L4vyJf
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9898
-
-<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-🔗https://www.novigrad.top
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه دلار به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
 </div>
 

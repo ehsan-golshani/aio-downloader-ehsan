@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10210
+
+<div align="center"><img src="files/post_10210_tasiyanc_10210.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
+مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10207
 
@@ -281,39 +299,6 @@ https://fal.ai/models/minimax/h3-max/text-to-video
 
 همسر حدادعادل:
 هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10176
-
-<div align="center"><img src="files/post_10176_tasiyanc_10176.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت وایرال شده جدید کاپلی
-
-عکس خودتون با پارتنرتون بفرستید نتیجه عالیه
-
-Prompt 🤖🤖
-
-Ultra-photorealistic cinematic couple photograph, vertical 4:5. Use TWO uploaded portraits: Photo 1 for the person beside the car, Photo 2 for the person on the balcony. Preserve each person’s exact facial identity, gender, skin tone and defining features; do not blend or swap faces. Both roles work for any gender.
-
-Rainy night in an old Iranian alley. Person 1 wears an oversized white T-shirt, loose black trousers and light sneakers, standing beside the open driver’s door of a white Peugeot 206, one hand in a pocket, the other forearm resting on the roof edge, looking lovingly up at Person 2. Person 2 wears a light-colored top, leans slightly over the second-floor balcony railing and smiles down.
-
-Rear three-quarter view of the car fills the lower-right frame: wet paint and windows, unlit rear lights, black bumper, PEUGEOT badge and partially cropped Iranian plate. Upper-right balcony: weathered wood, geometric railing, hanging pots, dense ivy and warm amber interior light. Aged walls, closed metal shutters and faded Persian shop signs, their lettering indistinct in the darkness; no invented readable phrases.
-
-Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, intimate nostalgic mood. Slightly upward camera angle, natural 35mm perspective, authentic low-light exposure, realistic skin, fabric and droplets, subtle film grain. Keep both identities recognizable within the composition. No plastic skin, excessive HDR, artificial glow, distorted hands, duplicate people or watermark.
-
-
-آموزش استفاده از پرامپت➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با اعلام رئیس سازمان سنجش نتایج اولیه کنکور تا پایان شهریور ماه یا هفته اول مهر ماه منتشر میشه.
 
 💋 @Tasiyanc
 </div>

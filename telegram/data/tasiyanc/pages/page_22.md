@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9898
+
+<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
+
+سایت پیشنهادی برای تماشا و دانلود بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه دلار به جیب بزنی ✅
+همین حالا وارد کانال  Evil Bet شو👇
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
 
 ## tasiyanc — post 9895
 
@@ -253,51 +274,5 @@ sg12
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9873
-
-<div align="center"><img src="files/post_9873_tasiyanc_9873.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9870
-
-<div align="center"><video src="files/post_9870_tasiyanc_9870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9870_tasiyanc_9870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
-
-💋 @Tasiyanc
 </div>
 

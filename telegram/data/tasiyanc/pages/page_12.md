@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10153
+
+## tasiyanc — post 10150
+
+<div align="center"><img src="files/post_10150_tasiyanc_10150.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توییت نتانیاهو:
+امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
+
+ماموریت را به پایان رساندیم. سال نو مبارک!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10147
 
@@ -283,50 +298,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10117
-
-<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
-فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
-پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10116
-
-<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
-
-
-🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
-
-
-•چرخاندن مدل بدن از زوایای مختلف
-
-•بزرگ‌نمایی و بررسی جزئیات
-
-•مشاهده جداگانه استخوان‌ها و اندام‌ها
-
-•حالت Explode برای تفکیک لایه‌های مختلف بدن
-
-•نمایش نام بخش‌های مختلف آناتومی
-﻿
-🌐 یه جورایی Google Maps، ولی برای بدن انسان!
-
-🔗https://human-atlas-seven.vercel.app
-
-
-
-🩸 @Tasiyanc
 </div>
 

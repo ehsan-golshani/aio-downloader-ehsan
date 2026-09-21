@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10117
+
+<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
+فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10115
 
@@ -227,36 +272,6 @@ sa18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10094
-
-<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
-
-ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
-تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
 
 🩸 @Tasiyanc
 </div>

@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 9626
+
+<div align="center"><img src="files/post_9626_tasiyanc_9626.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ربات هوش مصنوعی فوتبال
+🤖
+
+ربات دستیار هوش مصنوعی و آنالیز مسابقات و پیشبینی بازی‌ها بر پایه AI 
+🔥
+
+ویژگی های کلیدی
+
+1- 10+ سایت شرطبندی بزرگ، از بازارهای آسیایی و اروپایی را پوشش می‌دهد.
+- هشدارهای زمان واقعی برای تحرکات مشکوک بازار.
+- کاهش ضریب، حرکات خط و قفل بازار را دنبال می کند.
+
+
+💠 لینک عضویت کانال راهنما ربات:
+https://t.me/+86B34ioXJtUwODg6
+https://t.me/+86B34ioXJtUwODg6
+</div>
+
+## tasiyanc — post 9625
+
+<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
+
+بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9624
 
@@ -288,55 +323,5 @@ til.ac/0L4vyJf
 📱  آیفون   Apple Store
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9603
-
-<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃😃
-         😃
-😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

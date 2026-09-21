@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10094
+
+<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
+
+ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
+تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10093
+
+<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاوی صحنه شاید دلخراش
+
+🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10092
 
@@ -281,24 +311,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 ، از تعداد زیادی ریزبمب یا بمب‌های کوچک تشکیل شده‌اند
 ﻿
 ﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
-
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/29 23:28
+📅 آخرین بروزرسانی: 1405/06/30 04:06
 
 ---
+
+## tasiyanc — post 10356
+
+<div align="center"><video src="files/post_10356_tasiyanc_10356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10356_tasiyanc_10356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدرسه پسرونه وقتی یه دختر میاد تو حیاط :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10355
+
+<div align="center"><video src="files/post_10355_tasiyanc_10355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10355_tasiyanc_10355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وزیر نیرو:
+مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10354
 
@@ -356,35 +383,5 @@ https://osirisai.live
 به پول یه خونه و ماشین می‌رسی راحت 💲
 
 https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10335
-
-<div align="center"><img src="files/post_10335_tasiyanc_10335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-https://t.me/+ArmBt6ZWMF84ZDlk
-https://t.me/+ArmBt6ZWMF84ZDlk
-https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 
