@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/06/30 20:46
+📅 آخرین بروزرسانی: 1405/06/31 00:48
 
 ---
+
+## tasiyanc — post 6087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Channel@Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 6086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا بالا باشه❤️
+</div>
 
 ## tasiyanc — post 6085
 
@@ -203,17 +215,5 @@ Hot Servers 🔥🌶️.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife
 اوبی کونی پدر با من در میوفتی🤣
-</div>
-
-## tasiyanc — post 6055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۵ مین دیگه میزارم
-</div>
-
-## tasiyanc — post 6054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اماده باشین
 </div>
 

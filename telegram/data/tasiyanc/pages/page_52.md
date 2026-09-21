@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/06/30 20:46
+📅 آخرین بروزرسانی: 1405/06/31 00:48
 
 ---
+
+## tasiyanc — post 9139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴متهمین قتل «حمیدرضا رجب‌زاده» دستگیر شدند طبق اعلام مقام‌های قضایی، خودرویی که او آخرین‌بار سوار شده بود شناسایی و مالک آن دستگیر شد. این فرد اعتراف کرده که به همراه ۴ نفر دیگر و با تحریک یک شبکه خارج از کشور، اقدام به ربایش و قتل رجب‌زاده کرده‌اند @TASIYANC…
+</div>
+
+## tasiyanc — post 9138
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گروه تاسیان فعاله جوین بشید https://t.me/+DhVkjFb6qhZmYTFk
+</div>
 
 ## tasiyanc — post 9137
 
@@ -290,26 +302,5 @@ r18
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 r18
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9116
-
-## tasiyanc — post 9115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 
-🇮🇷
-
-✅ @TASIYANC
 </div>
 

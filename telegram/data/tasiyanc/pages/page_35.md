@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/06/30 20:46
+📅 آخرین بروزرسانی: 1405/06/31 00:48
 
 ---
+
+## tasiyanc — post 9561
+
+<div align="center"><img src="files/post_9561_tasiyanc_9561.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃😃
+😃
+         
+😃
+😃😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9560
+
+<div align="center"><video src="files/post_9560_tasiyanc_9560.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9560_tasiyanc_9560.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام ایرانی ، الان فهمیدی ۱۳ سال بدون تورم یعنی چه ؟ میدونی ۱۳ سال ثابت بودن نرخ دلار یعنی چه ؟
+
+آقای هویدا روحت شاد 🙂
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9559
 
@@ -291,17 +348,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درک نمیکنم چطوری برخی‌کانالها دارن مطالب طنز میزارن
-</div>
-
-## tasiyanc — post 9539
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنظر میاد دلمون بزودی به همین دلار ۲۰۰ تومنی ام تنگ میشه
 </div>
 

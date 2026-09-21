@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/30 20:46
+📅 آخرین بروزرسانی: 1405/06/31 00:48
 
 ---
+
+## tasiyanc — post 10349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10348
+
+<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
+
+22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
+روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
+
+مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10347
 
@@ -304,32 +329,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10327
-
-<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
-
-نیرویی خواستید مشتاق همکاری هستیم 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10326
-
-<div align="center"><img src="files/post_10326_tasiyanc_10326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلترشکن جامپ‌جامپ حواشی های اخیر که میگفتن اطلاعات کاربران به سرقت رفته رو گردن نگرفت و تکذیب کرد
-
-من بودمم تکذیب میکردم 😂
-
-💋 @Tasiyanc
 </div>
 
