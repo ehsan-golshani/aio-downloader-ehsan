@@ -1,8 +1,116 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/30 08:59
+📅 آخرین بروزرسانی: 1405/06/30 14:40
 
 ---
+
+## ProxyMTProto — post 51232
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kostyanchekloh.lol
+Port: 443
+Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51231
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: e3fand.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: qadim.zhigool.co.uk
+Port: 22
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51227
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.meow-network.com
+Port: 443
+Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: shahi.shambelile.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gov.grasic.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51224
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51223
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 69
+Secret: eebde76db082bb05e04cb5c63a32b5853d6472696c6c2e67697a616d6f66662e7472616465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best.ir.agrescjarkahdgs.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51220
 
@@ -73,114 +181,6 @@ Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 Server: 91.107.160.196
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media9.happtg.org
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51211
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51209
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn8.cdnwave.org
-Port: 443
-Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 208.87.242.223
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s5.assetflux.org
-Port: 443
-Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sahel.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s01.neo-trading.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: HI.PIGLIO.ONLINE
-Port: 69
-Secret: ee90070792574663c0f6bd34279078aa5b68692e7069676c696f2e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
