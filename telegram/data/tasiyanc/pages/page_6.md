@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/06/31 13:43
+📅 آخرین بروزرسانی: 1405/06/31 18:40
 
 ---
+
+## tasiyanc — post 10365
+
+<div align="center"><img src="files/post_10365_tasiyanc_10365.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 امروز ۲۶ شهریور ماه، تولد کمبوجیه، پسرِ کوروش بزرگ و روزِ پسره.
+
+امروز تنها روز اصیل پسر های ایرانیه بهشون تبریک بگید.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10364
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر✔️
+همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
+https://t.me/+72lhaZgfJ2oxMjdk
+</div>
+
+## tasiyanc — post 10363
+
+<div align="center"><img src="files/post_10363_tasiyanc_10363.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰25
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10362
+
+<div align="center"><video src="files/post_10362_tasiyanc_10362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10362_tasiyanc_10362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی تهران طرف کارگر افغانی استخدام کرده کافش یک ماه هم حقوقشون جلو داده ،
+افغانی مست کرده و کل وسایل مغازه اش رو زده شکونده صد ها میلیون خسارت بهش زده و فرار کرده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10360
+
+<div align="center"><video src="files/post_10360_tasiyanc_10360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10360_tasiyanc_10360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شاید باورش براتون سخت باشه ولی ایشون دختر نیست و ی فمبوی(پسر) ایرانیه که بخاطر زیباییش حسابی وایرال شده :
+
++پسرا خیلی روش کراش زدن.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10358
 
@@ -270,121 +335,6 @@ Goal: Showcase 12 different hair colors while strictly keeping the user's facial
 آموزش استفاده 
 ➡️
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10343
-
-<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
-✅
-وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
-⚠️
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10342
-
-<div align="center"><video src="files/post_10342_tasiyanc_10342.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10342_tasiyanc_10342.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی
-⁉️
-
-
-🔥کمپانی بین المللی We pari همون انتخاب
-🔥
-
-            
-👑سایتی برای حرفه ای ها
-👑
-
-
-🎁اولین واریز توی وی پاری 2 برابر شارژ میشی
-💖
-
-
-🔔چرا این روزا همه وی پاری انتخاب میکنند
-⚠️
-
-💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
-
-💖تسویه حساب سریع و بدون احراز
-
-💖دارای مجوز رسمی Anjuan و curacao
-
-😃
-😃
-😃
-😃
-
-👑کد هدیه ثبت نام:GG007
-
-👑ادرس سایت:
-http://til.ac/z5jcpGT
-
-😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
-
-
-👑دانلود اپلیکیشن اندروید
-➡️
-
-
-🔥کانال اطلاع رسانی ایران:
-👇🅰r2‌5
-https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10341
-
-<div align="center"><video src="files/post_10341_tasiyanc_10341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10341_tasiyanc_10341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینستاگرام فارسی روز به روز داره جالب‌تر میشه ،بسیاری از سایتهای بد ویوشون ته کشیده 
-🗡
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10339
-
-<div align="center"><img src="files/post_10339_tasiyanc_10339.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 زیبایی حیرت‌انگیز بانو آنا آرماس در مراسم اکران جهانی فیلم (No Time To Die)
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10338
-
-<div align="center"><img src="files/post_10338_tasiyanc_10338.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با این سایت کل کره‌ی زمین رو زیر ذره‌بین ببر!
-
-🔴سایت Osiris AI یکی از خفن‌ترین ابزارهاییه که این روزا می‌تونی پیدا کنی!
-
-🔴این پلتفرم به‌صورت سه‌بعدی و کاملاً زنده (Real-time) این اطلاعات رو برات نمایش میده ؛
-•دسترسی به پخش زنده دوربین‌های مداربسته شهری دنیا
-•ردیابی پرواز ۱۰,۰۰۰+ هواپیما در لحظه
-•نمایش مسیر بیش از ۲,۰۰۰ ماهواره
-نقشه زنده مناطق جنگی و اخبار داغ جهان
-•ابزارهای اسکن شبکه، پایش زلزله و تهدیدات سایبری
-کاملاً رایگان و بدون نیاز به نصب برنامه!
-
-🔗 ورود به سایت:
-https://osirisai.live
 
 💋 @Tasiyanc
 </div>

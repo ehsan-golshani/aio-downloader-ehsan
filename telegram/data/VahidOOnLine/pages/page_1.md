@@ -1,8 +1,82 @@
 # آرشیو کانال VahidOOnLine - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/06/31 13:41
+📅 آخرین بروزرسانی: 1405/06/31 18:37
 
 ---
+
+## VahidOOnLine — post 261457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری آمریکا با «پلید» خواندن جمهوری اسلامی ایران گفت، باید تصمیمی بگیرم «آیا با ایران توافقی انجام خواهد شد که به آنها اجازه دهد اقتصادشان را بازسازی کنند و کشوری بسیار بزرگ‌تر از آنچه تاکنون بوده است ایجاد کنند؟ یا جمهوری اسلامی را نابود کنم و این کار را سریع انجام دهم، بدون اینکه هرگز به آنها فرصتی بدهم دوباره مردم و کشورها را بکشند و نابود کنند؟ آیا آنها را به جهنم بفرستم، بدون هیچ شانسی برای بقا و بدون هیچ امیدی برای عظمت در آینده یا نسل‌های آینده؟»
+
+ترامپ سپس با بیان اینکه مطمئن است ایران پس از انتخابات میان‌دوره‌ای آمریکا توافق خواهد کرد، به برداشت ایران درباره این موضوع اشاره کرد که فکر می‌کند تهران به انتخابات میان‌دوره‌ای آمریکا امید بسته که قرار است در ماه نوامبر برگزار شود. ترامپ تاکید کرد از وقتی وارد سیاست شده موضعش جلوگیری از دستیابی ایران به سلاح هسته‌ای بوده و این موضع هرگز تغییر نکرده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261451
+
+<div align="center"><img src="files/post_261451_VahidOOnLine_261451.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+با تشدید محدودیت‌های دریایی، بخش بیشتری از تجارت خارجی ایران به مسیرهای زمینی منتقل شده است؛ تغییری که وابستگی به ترکیه، هزینه حمل‌ونقل و صف‌های طولانی کامیون‌ها در مرزها را افزایش داده است. در این میان، ترکیه از گسترش تجارت زمینی با ایران هم منافع اقتصادی به دست می‌آورد و هم بر اهرم‌های نفوذ خود می‌افزاید.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261450
+
+<div align="center"><video src="files/post_261450_VahidOOnLine_261450.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261450_VahidOOnLine_261450.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور همسر جاویدنام علی خسروی بر مزار او در سالگرد ازدواجشان ـ گزارشگر
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261449
+
+<div align="center"><video src="files/post_261449_VahidOOnLine_261449.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261449_VahidOOnLine_261449.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادر جاویدنام علیرضا خدادادی: «شمعی روشن می‌کنم برای پسرم و تمام جاویدنامان وطن» ـ گزارشگر
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261439
+
+<div align="center"><video src="files/post_261439_VahidOOnLine_261439.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261439_VahidOOnLine_261439.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موسیقی لری، روایت عشق، کوچ، سوگ و ایستادگی است. صدایی برخاسته از زاگرس که با شبکه‌های اجتماعی به گوش شنوندگان تازه رسید و در دی‌ماه ۱۴۰۴، با اندوه و خاطره جمعی ایرانیان پیوند خورد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261438
+
+<div align="center"><video src="files/post_261438_VahidOOnLine_261438.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261438_VahidOOnLine_261438.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، در خصوص گرانی‌ها در ایران می‌گوید: «دو عدد تن‌ماهی و سه عدد سوسیس را به قیمت یک میلیون تومان خریدم. حتی پول غذا خوردن هم دیگر نداریم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 261391
 
@@ -213,88 +287,6 @@ IranintlTV
 
 اظهارات بسنت یک روز پس از دیدار او با هه لی‌فنگ، معاون نخست‌وزیر چین، برای گفتگوهای اقتصادی مطرح شد که زمینه را برای دیدار رهبران دو کشور در این هفته فراهم کرد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261377
-
-<div align="center"><video src="files/post_261377_VahidOOnLine_261377.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_261377_VahidOOnLine_261377.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یکی از معترضان روی دیوار معبری در شهر شیراز شعار «جاوید شاه» را کنار پرچم شیروخورشید می‌نویسد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261376
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان، رئیس جمهوری اسلامی ایران، روز سه‌شنبه ۳۱ شهریورماه و پیش از سفر به نیویورک برای شرکت در نشست سالانه مجمع عمومی سازمان، آمریکا را به نقض تفاهم‌نامه اسلام‌آباد متهم کرد و گفت صاحبان قدرت در منطقه، به مردم حمله می‌کنند و می‌گویند داریم با تروریست‌ها برخورد می‌کنیم.
-
-پزشکیان «قدرت‌های جهانی» را متهم کرد که عامدانه و با استفاده از توانایی‌های «تکنولوژی» به غیرنظامیان در ایران، غزه، یمن، سوریه و لبنان حمله می‌کنند.
-
-رئیس جمهوری اسلامی در حالی تهران را به مقصد نیویورک ترک کرد که اسکات بسنت، وزیر خزانه‌داری آمریکا اعلام کرده است آسمان همه کشورهای جهان از روز اول مهرماه به روی پروازهای ایرانی بسته می‌شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261375
-
-<div align="center"><img src="files/post_261375_VahidOOnLine_261375.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس علی‌آبادی، وزیر نیرو، در نشست مجلس جمهوری اسلامی و در پاسخ به سوال بیت‌الله عبداللهی، نماینده اهر و هریس در مجلس، درباره «تعلل، کوتاهی و عدم برنامه‌ریزی» وزارت نیرو برای حل قطعی برق و کمبود آب شرب و کشاورزی، صنعت آب و برق را «یکی از نقاط قوت جمهوری اسلامی ایران» خواند و قطعی‌ها را نتیجه حملات آمریکا دانست.
-
-علی‌آبادی گفت: «دشمنان انقلاب و نظام همواره به دنبال اخلال در نظام خدمت‌رسانی کشور بوده‌اند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261374
-
-<div align="center"><video src="files/post_261374_VahidOOnLine_261374.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_261374_VahidOOnLine_261374.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال که مربوط به شامگاه ۲۹ و ۳۰ شهریور است، شیء نورانی رنگارنگی را در آسمان تهران نشان می‌دهد. پیش‌تر ویدیویی از حضور شیء نورانی در آسمان تهران و اصفهان منتشر شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261373
-
-<div align="center"><img src="files/post_261373_VahidOOnLine_261373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی صالحی، دادستان تهران روز سه‌شنبه ۳۱ شهریور گفت به دستور دادستانی تهران و با «شناسایی حساب‌های بانکی و خودروهای متعلق به ۳۹۴ تن از عوامل ضد انقلاب که در جنگ تحمیلی دوم و سوم و اغتشاشات سال گذشته با دشمن متخاصم همکاری نموده و در مقابل ملت ایران قرار گرفتند، بخشی از اموال عناصر معاند توقیف گردید.»
-
-قوه قضائیه جمهوری اسلامی از زمان اعتراضات دی‌ماه ۱۴۰۴ و در پی سرکوب انقلاب ملی ایرانیان در ۱۸ و ۱۹ دی‌ماه، اموال صدها شهروند ایرانی ساکن ایران و خارج از کشور را به اتهام «همکاری با دشمن» توقیف کرده است.
-
-به گزارش خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، صالحی  درباره میزان اموال توقیفی گفت: «تعداد حساب‌های متعلق به این افراد ۲۱۹۱ فقره بوده و همچنین تعداد خودروهای توقیف شده نیز ۳۷ دستگاه می‌باشد.»
-
-در هفته‌های گذشته توقیف تمام اموال صادق ساعدی‌نیا، مالک کافه‌های ساعدی‌نیا به‌دلیل حمایت از انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴ و محکومیت او به ۱۲ سال و ۶ ماه حبس خبرساز شده بود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261372
-
-<div align="center"><video src="files/post_261372_VahidOOnLine_261372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_261372_VahidOOnLine_261372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، شیء نورانی ناشناسی را در آسمان اصفهان در شامگاه دوشنبه ۳۰ شهریور نشان می‌دهد. پیش‌تر ویدیویی در رسانه‌های اجتماعی منتشر شده که در آن شیء‌ ناشناسی با چراغ‌های رنگارنگ، بر آسمان تهران دیده می‌شود.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

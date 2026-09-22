@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/31 13:43
+📅 آخرین بروزرسانی: 1405/06/31 18:40
 
 ---
+
+## tasiyanc — post 10460
+
+<div align="center"><video src="files/post_10460_tasiyanc_10460.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10460_tasiyanc_10460.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایی خیره‌کننده مزارع چای روستای سطلسر که در قلب لاهیجان عروس شهرهای شمالی قرار گرفته.
+
+
+
+💋‎ @Tasiyanc
+</div>
+
+## tasiyanc — post 10459
+
+<div align="center"><video src="files/post_10459_tasiyanc_10459.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10459_tasiyanc_10459.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مراسم انتخاب همسر توسط قبیلهٔ وودابه در سواحل آفریقا ؛ که مراسم «گرول» نام دارد و یکی از جالب‌ترین آیین‌های خواستگاری در جهان است.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10458
+
+<div align="center"><video src="files/post_10458_tasiyanc_10458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10458_tasiyanc_10458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی شهری در جمهوری‌چک به جای آب ، شراب از پله ها سرازیر میشود 🍷🇨🇿
+
+هر سال در جشن برداشت انگور Vinobraní na Kuksu در جمهوری چک، یک اتفاق جالب رخ می‌دهد؛ به‌جای آب، شراب از پلکان باروک تاریخی Kuks جاری می‌شود.
+این پلکان که در قرن هجدهم ساخته شده، در طول جشن به‌طور موقت به یک آبشار شراب تبدیل می‌شود. مردم هم برای تماشای این مراسم و چشیدن شراب‌های محلی در آنجا جمع می‌شوند.\nاین رسم بخشی از جشن‌های سنتی برداشت انگور در منطقه بوهمیاست و ترکیبی از فرهنگ شراب، موسیقی و تاریخ معماری Kuks به شمار می‌رود
+﻿
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10457
+
+<div align="center"><img src="files/post_10457_tasiyanc_10457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اینجا شهرک امیردشت مازندران 🇮🇷
+
+این شهرک تو سال 1351 افتتاح شد و ویلاهاش معمولا به سبک ایتالیایی و انگلیسی ساخته شده.
+تو شهرک همه امکاناتی تفریحی مثل زمین تنیس، زمین فوتبال و پلاژ اختصاصی وجود داره. اکثر ساکنینش هم دیپلمات‌ها و ...هستن.
+برای ورود به شهرک حتما باید با یکی از مالکینی که ویلا دارن هماهنگ کرده باشی و معمولا روزانه 34 نگهبان تو شهرک گشت میزنن.
++ این ویلایی هم که تو عکس مشاهده میکنید اسمش کاخ گوتیکه و قیمتش 2 هزار میلیارده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
+</div>
 
 ## tasiyanc — post 10455
 
@@ -208,120 +271,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10434
-
-<div align="center"><video src="files/post_10434_tasiyanc_10434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10434_tasiyanc_10434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴معرفی فیلم وایرال شده جدید : مادر اژدها
-
-مادری در یک اتفاق نادر و عجیب، بچه‌ای از جنس اژدها به دنیا می‌آورد. با انتشار این خبر، اهالی روستا که از وجود این موجود نگران شده و امنیت خود را در خطر می‌بینند، مادر را از روستا بیرون می‌کنند و تصمیم می‌گیرند بچه را نابود کنند. اما مادر برای محافظت از فرزندش در برابر خشم و بی‌رحمی مردم، دست به هر کاری می‌زند و نبردی پرچالش را آغاز می‌کند...
-
-دانلود فیلم بدون سانسور 👉
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10433
-
-<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
-آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10432
-
-<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
-😀 
-📆 بورنموث - لیورپول 
-⏰ ساعت ۱۶:۳۰ 
-🌎 
-📲 آث میلان - لچه 
-😀 ساعت ۲۲:۱۵ 
-🌎   
-📺بونوس خوش آمدگویی ورزشی
-🎁 
-🎁 بالاترین حد مبلغ شرط
-🎁 
-🏆واریز جوایز در کمتر از 24 ساعت
-⭐️ 
-👩‍💻پشتیبانی از طریق چت زنده
-⌨️ 
-✈️ https://t.me/BerryBetOfficial…
-</div>
-
-## tasiyanc — post 10431
-
-<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
-😀
-
-
-📆 بورنموث - لیورپول
-
-⏰ ساعت ۱۶:۳۰ 
-🌎
-
-
-📲 آث میلان - لچه
-
-😀 ساعت ۲۲:۱۵ 
-🌎
-
- 
-
-📺بونوس خوش آمدگویی ورزشی
-🎁
-
-🎁 بالاترین حد مبلغ شرط
-🎁
-
-🏆واریز جوایز در کمتر از 24 ساعت
-⭐️
-
-👩‍💻پشتیبانی از طریق چت زنده
-⌨️
-
-
-✈️ https://t.me/BerryBetOfficial
-R29
-
-🔗 ثبت نام و ورود به بخش پیشبینی
-💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10430
-
-<div align="center"><img src="files/post_10430_tasiyanc_10430.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینجا جزایره فارو در دانمارکه
-🇩🇰 که مهاجر می‌پذیره
 
 
 💋 @Tasiyanc

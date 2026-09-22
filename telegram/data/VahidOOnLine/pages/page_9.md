@@ -1,8 +1,99 @@
 # آرشیو کانال VahidOOnLine - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/31 13:41
+📅 آخرین بروزرسانی: 1405/06/31 18:37
 
 ---
+
+## VahidOOnLine — post 261154
+
+<div align="center"><video src="files/post_261154_VahidOOnLine_261154.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261154_VahidOOnLine_261154.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آندروس تاونزند، بازیکن ۳۵ ساله پیشین تاتنهام و تیم ملی انگلستان، در یک حادثه کم‌سابقه حین گرم کردن بین دو نیمه بازی تیمش در لیگ برتر تایلند، با یک غلطک سنگین هموارسازی چمن زیر گرفته شد. تصاویر منتشرشده نشان می‌دهد مسوول نگهداری زمین در ورزشگاه «پی‌تی پراچواپ» متوجه حضور این بازیکن نشد و دستگاه را از روی پاها و بالاتنه او عبور داد، اما تاونزند به شکلی معجزه‌آسا از آسیب‌دیدگی شدید جان سالم به در برد و حتی دقایقی بعد در جریان برتری سه بر صفر تیمش، به عنوان بازیکن تعویضی وارد زمین مسابقه شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261153
+
+<div align="center"><video src="files/post_261153_VahidOOnLine_261153.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261153_VahidOOnLine_261153.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس آگاهی مشهد از شناسایی یک کارگاه غیرمجاز تولید ادویه تقلبی در این شهر خبر داد. بر اساس توضیحات پلیس، در این محل مقادیری نان خشک کپک‌زده، چوب و گیاهان مختلف، پوست میوه‌های ترش، گوجه‌های استفاده‌شده، پوست گردو و پوست بادام نگهداری می‌شد که از آن‌ها برای تهیه محصولات نهایی استفاده می‌کردند.
+
+تصاویر منتشرشده از این کارگاه، مواد اولیه و تجهیزات مورد استفاده برای تولید و بسته‌بندی محصولات را نشان می‌دهد. پلیس اعلام کرده است محصولات این کارگاه با استفاده از مواد دورریز و ضایعات تهیه می‌شدند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261152
+
+<div align="center"><img src="files/post_261152_VahidOOnLine_261152.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سید موسی شبیری زنجانی، از مراجع تقلید شیعه، یک‌شنبه ۳۰ شهریور در قم درگذشت. خبرگزاری فارس گزارش داد او از روز جمعه به دلیل خون‌ریزی معده و عارضه ریوی در بیمارستان بستری بود.
+
+شبیری زنجانی متولد ۱۱ اسفند ۱۳۰۶ بود و در سال ۱۳۷۳، پس از درگذشت محمدعلی اراکی، از سوی جامعه مدرسین حوزه علمیه قم به عنوان یکی از هفت مرجع تقلید مورد تایید حکومت معرفی شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261151
+
+<div align="center"><video src="files/post_261151_VahidOOnLine_261151.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261151_VahidOOnLine_261151.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+The most important records of Iran’s January protests came from ordinary people filming what was unfolding in front of them.
+
+This Is Our Story brings together these images and voices, creating a record of events as they were witnessed.
+
+A four-part documentary series, with English subtitles.
+
+مهم‌ترین تصاویر اعتراضات دی‌ماه را مردمی ثبت کردند که در همان لحظه شاهد وقایع بودند.
+
+مستند چهارقسمتی «This Is Our Story» این تصاویر و صداها را کنار هم قرار می‌دهد؛ روایتی از آنچه مردم در آن روزها دیدند و ثبت کردند.
+
+این مجموعه ۲۶ سپتامبر (۴ مهر)، با زیرنویس انگلیسی از کانال یوتیوب منوتو منتشر می‌شود.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261150
+
+<div align="center"><img src="files/post_261150_VahidOOnLine_261150.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدرضا صباغیان، نماینده مجلس، یکشنبه ۲۹ شهریورماه در جلسه علنی مجلس به برگزاری مسابقه دوی ۱۰ کیلومتر تهران و حضور زنان در این رقابت واکنش نشان داد و در اظهاراتی توهین‌آمیز، برگزاری چنین برنامه‌هایی برای زنان را زیر سوال برد. او گفت اگر ایران کشوری اسلامی است، مسئولان باید هدف از این برنامه‌ها را مشخص کنند و پرسید چرا برای ورزش و سلامت زنان، رشته‌ها و فضاهای دیگری در نظر گرفته نمی‌شود.
+
+مسابقه دوی ۱۰ کیلومتر روز جمعه ۲۷ شهریورماه همزمان با مراسم «رزمایش جان‌فدا» در جنوب غربی تهران برگزار شد و تصاویر حضور زنان بدون حجاب اجباری در این رقابت در شبکه‌های اجتماعی بازتاب گسترده‌ای داشت. پس از برگزاری مسابقه، مرکز رسانه قوه قضاییه از اعلام جرم دادستانی تهران علیه عوامل برگزاری به دلیل آنچه «رعایت نشدن موازین قانونی و شرعی» خواند، خبر داد. حبیب ستوده‌نژاد، مدیرکل ورزش و جوانان استان تهران، نیز شنبه ۲۸ شهریورماه به خبرگزاری تسنیم گفت با ورزشکارانی که «خاطی» تشخیص داده شوند، برخورد قانونی و انضباطی خواهد شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 261149
+
+<div align="center"><video src="files/post_261149_VahidOOnLine_261149.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_261149_VahidOOnLine_261149.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود قدیریان با کسب مقام نخست دسته آزاد در مسابقات بدنسازی ازمیر ترکیه، عنوان قهرمانی این رقابت‌ها را به دست آورد. او پس از قهرمانی اعلام کرد مدال خود را به رشت می‌برد تا آن را به مادر جاویدنام مسعود ذات‌پرور تقدیم کند.
+مسعود ذات‌پرور، متولد سال ۱۳۶۵ و از چهره‌های شناخته‌شده پرورش‌اندام ایران، ۱۸ دی‌ماه ۱۴۰۴ در جریان انقلاب ملی ایران، به ضرب گلوله سرکوبگران جمهوری اسلامی در رشت کشته شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 261148
 
@@ -188,85 +279,6 @@ Indypersian
 
 همزمان سخنگوی وزارت خارجه قطر نیز از تلاش‌ها برای از سرگیری مذاکرات میان تهران و واشنگتن از طریق میانجی‌گران قطری خبر داده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261134
-
-<div align="center"><img src="files/post_261134_VahidOOnLine_261134.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، رسانه وابسته به سپاه پاسداران، گزارش داد عباس عراقچی، وزیر خارجه جمهوری اسلامی، جهت شرکت در نشست مجمع عمومی سازمان ملل در صدر یک هیات دیپلماتیک عصر یکشنبه تهران را ترک کرد.
-
-بر اساس این گزارش، عراقچی پس از توقفی کوتاه در قطر به نیویورک پرواز خواهد کرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجمالیان، عضو کمیسیون بهداشت و درمان مجلس، روز یکشنبه ۲۹ شهریور ماه گفت واکسن آنفلوآنزا تاکنون وارد ایران نشده و با توجه به محدودیت زمانی، تلاش‌ها برای واردات آن در حال انجام است.
-
-به گزارش رسانه دیده‌بان ایران، محمدجمالیان همچنین گفت اگر مهرماه بگذرد، تزریق واکسن آنفلوآنزا دیگر ارزشی نخواهد داشت و اعلام کرد تلاش برای واردات این واکسن ادامه دارد.
-
-او به گروه‌های پرخطر توصیه کرد تا زمان ورود واکسن، با استفاده از ماسک، پرهیز از حضور در اماکن شلوغ و رعایت بهداشت فردی از خود محافظت کنند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بنیامین نتانیاهو، نخست‌وزیر اسرائیل، روز یکشنبه ۲۹ شهریور، تصاویری از حضور خود و همسرش سارا را در تونل‌های دیوار غربی در شهر قدیم اورشلیم منتشر کرد. او گفت: «ما اینجا هستیم و همیشه اینجا خواهیم ماند.»
-
-نتانیاهو سپس در مراسم «سِلیحوت» (دعاهای توبه و طلب آمرزش در آیین یهود) در دیوار غربی شرکت کرد. بنا بر اعلام برگزارکنندگان، حدود ۱۵۰ هزار نفر در مراسم اصلی سِلیحوت در شب پیش از یوم کیپور حضور داشتند. سِلیحوت مجموعه دعاهایی برای توبه و طلب آمرزش است که در آستانه یوم کیپور خوانده می‌شود. هم‌زمان، گروهی از یهودیان در دیوار غربی در شهر قدیم اورشلیم و همچنین در تل‌آویو در مراسم سِلیحوت و «هاتارات نداریم» (آیین لغو نذرها و تعهدات مذهبی) شرکت کردند.
-
-یوم کیپور یا «روز کفاره» مهم‌ترین روز روزه و توبه در آیین یهود است و در دهم ماه تیشری(۳۰ شهریور) برگزار می‌شود. در متون تورات، این روز به کفاره، پاک شدن از گناهان، خودداری از کار و روزه اختصاص دارد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261122
-
-<div align="center"><video src="files/post_261122_VahidOOnLine_261122.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_261122_VahidOOnLine_261122.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هوش مصنوعی در چین از ربات‌های رستورانی فراتر رفته و وارد مدیریت آشپزخانه، موجودی، نیروی انسانی و کاهش هزینه‌ها شده است. تغییری که می‌تواند مدل اداره رستوران‌ها را دگرگون کند.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261120
-
-<div align="center"><img src="files/post_261120_VahidOOnLine_261120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روابط عمومی ارتش، روز شنبه ۲۹ شهریور ماه در بیانیه‌ای اعلام کرد، یک «پهپاد شناسایی پیشرفته اوربیتر» (Orbiter reconnaissance drone) را با استفاده از «سامانه‌های بومی» نیروی هوایی ارتش بر فراز تنگه هرمز منهدم کرده است.
-بر اساس بیانیه‌ای که در تسنیم منتشر شده، شبکه یکپارچه پدافند هوایی ارتش ساعت ۱۸:۳۰ روز یکشنبه این پهپاد را هدف قرار داده است.
-
-اوربیتر از خانواده پهپادهای شناسایی تاکتیکی و ساخت اسرائیل است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 261119
-
-<div align="center"><video src="files/post_261119_VahidOOnLine_261119.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_261119_VahidOOnLine_261119.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن سوئیس و فرانسه، شنبه ۲۸ شهریور برای بزرگداشت چهارمین سالگرد خیزش مهسا، در شهرهای برن و بوردو تجمع کردند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

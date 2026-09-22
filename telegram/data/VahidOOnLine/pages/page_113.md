@@ -1,8 +1,78 @@
 # آرشیو کانال VahidOOnLine - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/06/31 13:41
+📅 آخرین بروزرسانی: 1405/06/31 18:37
 
 ---
+
+## VahidOOnLine — post 257995
+
+<div align="center"><video src="files/post_257995_VahidOOnLine_257995.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257995_VahidOOnLine_257995.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌ جمهوری اسلامی را از کرمانشاه در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257994
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، جمهوری اسلامی شامگاه سه‌شنبه ۱۰ شهریور از شهریار موشک شلیک کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257993
+
+<div align="center"><video src="files/post_257993_VahidOOnLine_257993.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257993_VahidOOnLine_257993.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایسنا روز سه‌شنبه ۱۰ شهریور تصاویری از موشک‌های بالستیک سپاه بر فراز آسمان اردن را منتشر کرد. همزمان گزارش‌هایی از حمله موشکی ایران به مواضع آمریکا در اردن منتشر شده است. فارس، خبرگزاری وابسته به سپاه، اعلام کرد که پایگاه هوایی «موفق‌السلطی» از جمله اهداف این حملات بوده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257992
+
+<div align="center"><video src="files/post_257992_VahidOOnLine_257992.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257992_VahidOOnLine_257992.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌ جمهوری اسلامی را از ساوجبلاغ در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257991
+
+<div align="center"><video src="files/post_257991_VahidOOnLine_257991.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257991_VahidOOnLine_257991.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال پرتاب موشک‌های جمهوری اسلامی را از شهر اندیشه در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257990
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی ارسال‌شده به ایران‌اینترنشنال جمهوری اسلامی سه‌شنبه ۱۰ شهریور از تهران موشک شیک کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 257989
 
@@ -186,82 +256,6 @@ Indypersian
 آژانس بین‌المللی انرژی اتمی در یک گزارش محرمانه که روز سه‌شنبه ۱۰ شهریور به رویت خبرگزاری فرانسه رسیده، اعلام کرده است که مسئله دسترسی نداشتن این سازمان به مراکز کلیدی هسته‌ای در ایران «باید با فوریت فوق‌العاده مورد رسیدگی قرار گیرد».
 
 آژانس بین‌المللی انرژی اتمی در این گزارش تاکید کرده است: «بی‌اطلاعی آژانس از این مواد هسته‌ای و نداشتن دسترسی به تاسیسات برای راستی‌آزمایی آن، موضوعی نگران‌کننده در زمینه تکثیر تسلیحات هسته‌ای است.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257957
-
-<div align="center"><img src="files/post_257957_VahidOOnLine_257957.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همشهری به نقل از منابع محلی گزارش داد که سه‌شنبه‌شب، ۱۰ شهریور، بعد از یک سکوت کوتاه در آسمان شهرهای استان هرمزگان، بار دیگر صدای انفجار در بندرعباس، قشم و لاوان شنیده شده است.
-
-فرماندهی مرکزی ارتش آمریکا سه‌شنبه شب حملاتی را در نوار ساحلی جنوب ایران انجام داد. سنتکام اعلام کرد که اهداف این حملات، مواضع مرتبط با سپاه پاسداران بوده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257956
-
-<div align="center"><img src="files/post_257956_VahidOOnLine_257956.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یوری اوشاکوف، دستیار رئیس‌جمهوری روسیه، روز سه‌شنبه ۱۰ شهریور اعلام کرد احتمال دارد ولادیمیر پوتین، رئیس‌جمهوری روسیه، دونالد ترامپ، رئیس‌جمهوری ایالات متحده و شی جین‌پینگ، رئیس‌جمهوری چین، در حاشیه اجلاس بعدی انجمن همکاری‌های اقتصادی آسیا–پاسفیک (اپک) دیداری سه‌جانبه داشته باشند.
-
-اجلاس بعدی سران اپک قرار است در روزهای ۲۷ و ۲۸ آبان به میزبانی کشور چین و در شهر شنژن برگزار شود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257955
-
-<div align="center"><img src="files/post_257955_VahidOOnLine_257955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری صدا و سیمای جمهوری اسلامی از شنیده شدن دوباره صدای انفجار در بندرعباس و جزیره قشم در شامگاه سه‌شنبه خبر داد و افزود: «در جزیره لاوان هم صدای انفجار شنیده شده است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257954
-
-<div align="center"><video src="files/post_257954_VahidOOnLine_257954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257954_VahidOOnLine_257954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید به همراه همسر و دو کودک خردسالش تصمیم به مهاجرت گرفته‌اند: «همسرم در پالایشگاه کار می‌کرد و خودم هم پرستار بودم اما هر دوی ما را تعدیل کرده‌اند. حالا مجبوریم به‌خاطر نبود امنیت مالی و جانی مهاجرت کنیم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257953
-
-<div align="center"><img src="files/post_257953_VahidOOnLine_257953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ستادکل نیروهای مسلح جمهوری اسلامی اعلام کرد که در پاسخ به حمله هوایی ارتش آمریکا به نقاطی در سیستان‌وبلوچستان و هرمزگان، نیروهای مسلح جمهوری اسلامی «ضربات کوبنده و شکننده‌ای» را به دشمن آمریکایی وارد خواهند نمود.
-
-همچنین حسین محبی، سخنگوی سپاه پاسداران، در ایکس نوشت که تنبیه سختی در انتظار آمریکا است و این کشور از حملات جدید خود پشیمان خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257952
-
-<div align="center"><img src="files/post_257952_VahidOOnLine_257952.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس یک گزارش محرمانه آژانس بین‌المللی انرژی اتمی که روز سه‌شنبه ۱۰ شهریور به رویت خبرگزاری رویترز رسیده است، دیده‌بان هسته‌ای سازمان ملل پرسش‌های باقی‌مانده درباره تحقیقات مربوط به فعالیت‌های هسته‌ای گذشته و مخفیانه سوریه در دوران حکومت خاندان اسد را حل‌وفصل کرده است.
-
-با این حال، گزارش فصلی و جداگانه آژانس درباره ایران که به کشورهای عضو ارسال شده، نشان می‌دهد کماکان هیچ پیشرفتی در پرونده تهران حاصل نشده است. دسترسی نداشتن آژانس برای راستی‌آزمایی ذخایر اورانیوم ایران از زمان حملات ژوئن ۲۰۲۵ آمریکا و اسرائیل، همچنان یک «نگرانی جدی در زمینه تکثیر تسلیحات هسته‌ای» به شمار می‌رود.
 Indypersian
 
 🤖 @VahidOOnLine
