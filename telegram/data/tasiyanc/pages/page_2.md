@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/31 18:40
+📅 آخرین بروزرسانی: 1405/06/31 22:28
 
 ---
+
+## tasiyanc — post 10464
+
+<div align="center"><video src="files/post_10464_tasiyanc_10464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10464_tasiyanc_10464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴معجزه‌ای به نام نورالینک
+
+بیماری که نمیتونست حرف بزنه، با تراشه مغزی نورالینک (شرکت ایلان ماسک) دوباره صحبت کرد!
+
+این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
+این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10463
+
+<div align="center"><img src="files/post_10463_tasiyanc_10463.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما زیبایی دریاچه مرداب سراوان - رشت 🇮🇷 را می‌بینید تکه ای از بهشت!
+
+لذت قایقرانی توی دریاچه سراوان رو نمیشه با قایق سواری توی دریاچه های دیگه مقایسه کرد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10462
+
+<div align="center"><video src="files/post_10462_tasiyanc_10462.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10462_tasiyanc_10462.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣
+🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
+🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
+</div>
+
+## tasiyanc — post 10461
+
+<div align="center"><video src="files/post_10461_tasiyanc_10461.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10461_tasiyanc_10461.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝
+0️⃣2️⃣
+🔤سود برد برای اولین واریز روزانه👀
+
+😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
+🥹
+💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌
+
+
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه نمایید.😀
+
+🤖 ادرس سایت: 🅰g30
+
+👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+📨 کانال تلگرام :
+
+👍 https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10460
 
@@ -222,57 +292,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 📨 کانال تلگرام :
 👍 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10441
-
-<div align="center"><video src="files/post_10441_tasiyanc_10441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10441_tasiyanc_10441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پارتی وایرال شده ی مختلط اروپایی تو تهران :
-
-برای این مرحله شما باید نسخه پرمیوم ایرانُ نصب کنین
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10440
-
-<div align="center"><img src="files/post_10440_tasiyanc_10440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده
-« مشاهده »
-</div>
-
-## tasiyanc — post 10437
-
-<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼امروز 20 September روز جهانی قدردانی از همسره
-👼
-
-بفرس براش 
-🌹
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10436
-
-<div align="center"><img src="files/post_10436_tasiyanc_10436.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
-
-
-💋 @Tasiyanc
 </div>
 

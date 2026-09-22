@@ -1,8 +1,109 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/31 18:40
+📅 آخرین بروزرسانی: 1405/06/31 22:28
 
 ---
+
+## tasiyanc — post 10048
+
+<div align="center"><img src="files/post_10048_tasiyanc_10048.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۳۰ تا نامزد توپ طلا با حضور مسی معرفی شد که متاسفانه رونالدو تازه ازدواج کرده نامزد نیست 🐸
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10047
+
+<div align="center"><video src="files/post_10047_tasiyanc_10047.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10047_tasiyanc_10047.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بی‌بی‌سی فارسی از لندن میفرمایند بنزین در ایران تقریباً مجانی است!
+تا حالا شده بی بی سی فارسی حقوق کارگران در ایران را هم به دلار حساب کند و نتیجه بگیرد مجانی کار می‌کنند؟؟
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10046
+
+<div align="center"><video src="files/post_10046_tasiyanc_10046.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10046_tasiyanc_10046.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+sg17
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
+
+## tasiyanc — post 10045
+
+<div align="center"><video src="files/post_10045_tasiyanc_10045.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10045_tasiyanc_10045.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 
+👍
+😁
+😊
+🙂
+
+🥇واریز و برداشت ارزی و ریالی
+‼️
+
+🔥بونوس 100% اولین واریز
+‼️
+
+⚽️بونوس ورزشی هرچهارشنبه
+‼️
+
+🆗کازینو و انفجار با ضرایب جهانی
+‼️
+
+
+🎁کد هدیه ثبت نام :Melbet90
+
+
+🇩🇪دانلود اپلیکیشن MELBET
+👉
+
+
+🔗لینک وبسایت
+👉
+
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.
+🇨🇦 
+🇹🇷
+
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 10044
 
@@ -244,59 +345,6 @@ til.ac/0L4vyJf
 🔴 تغییرات جدید کنکور اعلام شد:
 
 بر اساس مصوبه جدید، در کنکور ۱۴۰۵ نمرات امتحانات نهایی پایه یازدهم فقط به‌ صورت «تأثیر مثبت» و نمرات پایه دوازدهم به‌ صورت «تأثیر قطعی» در نتیجه کنکور اعمال میشه. سهم سوابق تحصیلی هم همچنان ۶۰ درصد خواهد بود.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دانشگاه آزاد: با توجه به حضوری شدن دانشگاه‌ها از ترم جدید، این موارد رو حتما باید رعایت کنین!
-
-۱. قد مانتو تا روی زانو باشه.
-۲. مانتو جلو باز نباشه.
-۳. شلوار کوتاه و جذب ممنوعه.
-۴. پوشیدن شلوارهای زاپ‌دار ممنوعه.
-۵. پوشیدن هودی و شومیز و همه لباس‌های کوتاه برای خانم‌ها ممنوعه.
-۶. پوشیدن صندل ممنوعه.
-۷. اگه تتوهای زیادی دارید باید حتماً پوشیده بشن.
-۸. اگه پیرسینگ‌های زیادی دارین باید پوشیده بشن.
-۹. پوشیدن جوراب شلواری به تنهایی ممنوعه.
-۱۰. پوشیدن تیشرت‌های بدن‌نما و دارای نمادهای بیگانه ممنوعه.
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10027
-
-<div align="center"><video src="files/post_10027_tasiyanc_10027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10027_tasiyanc_10027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیروز یه خبرنگار لبنانی🇱🇧 داشت از شهر " نبطیه " لبنان گزارش تهیه میکرد که همون لحظه اسرائیل بیخ گوشش حمله کرد :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10026
-
-<div align="center"><video src="files/post_10026_tasiyanc_10026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10026_tasiyanc_10026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پدر جاویدنام ایلیا اجاقلو در اعتراض به تخریب تصویر مزار فرزندش تصاویر برادرانش را که در جنگ هشت ساله عراق شهید شده بودند را پایین کشید .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اعتصاب رانندگان اسنپ
-
-رانندگان اسنپ قراره از ۱۲ شب (۱۷ شهریور) به علت کرایه پایین، کمسیون بالا، گرونی بنزین، گرونی روغن موتور یک روز اعتصاب کنند.
 
 💋 @Tasiyanc
 </div>

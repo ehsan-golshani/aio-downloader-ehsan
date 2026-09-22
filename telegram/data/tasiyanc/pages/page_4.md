@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/31 18:40
+📅 آخرین بروزرسانی: 1405/06/31 22:28
 
 ---
+
+## tasiyanc — post 10416
+
+<div align="center"><img src="files/post_10416_tasiyanc_10416.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت
+
+🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که تو بیای فقط اسم کردستان بیاری و پرچم بارزانی رو بزاری  ، کردستان مال ایرانه نفهم
+
+حیف جاویدنام مهسا امینی ..... که تو پدرشی امجد امینی 
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10414
+
+<div align="center"><video src="files/post_10414_tasiyanc_10414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10414_tasiyanc_10414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لیلی فلیپس پور*ن استار آمریکایی، موقع انجام کار نیک راهی بیمارستان شد.
+
+بانو در حین تلاش برای شکستن رکورد بیشترین تعداد سکس تو ۲۴ ساعت، دقایقی بعد از آغاز عملیات یکی از مردایی که باهاش رابطه داشت پاشید تو صورتش و بیناییش بشدت به مشکل خورد و راهی بیمارستان شد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10412
+
+<div align="center"><video src="files/post_10412_tasiyanc_10412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10412_tasiyanc_10412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁بعضی موقع ها، سخت‌ترین رقابت دنیا…
+همونیه که توی ذهن خودت اتفاق می‌افته. 🧠💡⚡️
+
+یکی می‌گه «بی‌خیال، بخواب»
+یکی می‌گه «یه کم هیجان لازم داری» 🚬
+
+کدوم شخصیتِ ذهنت برنده می‌شه؟
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+📱🤖 دانلود مستقیم اپلیکیشن اندروید
+
+😀 آدرس ثابت وبسایت
+
+✈️ عضویت کانال تلگرام
+
+📷مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
+۱۸+ | مسئولانه بازی کن
+</div>
 
 ## tasiyanc — post 10411
 
@@ -279,37 +347,5 @@ Act as a motivational coach
 خب لامصب یه بار لخت شو بیا 😐
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10393
-
-## tasiyanc — post 10392
-
-## tasiyanc — post 10390
-
-<div align="center"><video src="files/post_10390_tasiyanc_10390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10390_tasiyanc_10390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴استایل بانو سیدنی سویینی دیشب در اکران سریالش :
-
-حالا که به چشم خریدار نگاه میکنم میبینم سیدنی سویینی خیلی بدم نیست و من داشتم کفران نعمت میکردم 🤣
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10389
-
-<div align="center"><video src="files/post_10389_tasiyanc_10389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10389_tasiyanc_10389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این روزا سر مرد ایرانی تو دنیا دعواس!
-
-صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
-مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
-⚡ @Tasiyanc
 </div>
 
