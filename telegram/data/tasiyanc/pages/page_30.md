@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 9702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 210.000 تومان 😐
+</div>
 
 ## tasiyanc — post 9701
 
@@ -315,15 +321,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال بت ویژن شو👇
-@Vision_Bet
-@Vision_Bet
-@Vision_Bet
 </div>
 

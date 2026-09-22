@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 10171
+
+<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
+
+یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10170
 
@@ -275,24 +289,5 @@ Final result: A believable rediscovered real color photograph from Tehran around
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑 اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰ Prompt 🤖🤖 Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress…
-</div>
-
-## tasiyanc — post 10145
-
-<div align="center"><img src="files/post_10145_tasiyanc_10145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑
-
-
-اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰
-
-Prompt 🤖🤖
-
-Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress me as an elegant Iranian aristocratic woman in a luxurious vintage evening gown with refined jewelry. Place me inside a grand Tehran palace with Persian carpets, crystal chandeliers and warm golden lighting. Sophisticated, feminine, wealthy, cinematic 35mm film photography, realistic vintage aesthetic. No modern objects .
-
-آموزش استفاده ➡️
-
-💋 @Tasiyanc
 </div>
 

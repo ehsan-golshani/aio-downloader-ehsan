@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dokhtar.nanaz.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51071
 
@@ -163,24 +181,6 @@ Secret: eeea54d6ad3d5483e95301bc5eb02d3ae5706574726f766963682e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 2443
-Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

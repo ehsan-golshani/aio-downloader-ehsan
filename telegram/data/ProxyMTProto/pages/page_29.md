@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 50833
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: bolt.utkanos.life
+Port: 2443
+Secret: eefcc4cf72e265ef4e47068bfe3fbd44fb626f6c742e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50832
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Strait-of-Hormuz.ir.jursdheks.info
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50831
 
@@ -158,24 +176,6 @@ Secret: eeed1174406b243d5a4afc1591498613dd7374726d2e79616e6465782e6e6574
 </div>
 
 ## ProxyMTProto — post 50814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media9.happtg.org
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50812
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

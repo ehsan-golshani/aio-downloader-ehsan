@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 10375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+جهت دریافت کلیک کنید ☝
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10374
 
@@ -280,48 +292,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 👇
 
 💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10352
-
-<div align="center"><img src="files/post_10352_tasiyanc_10352.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید
-🔥
-
-
-🥇سایت شماره یک اروپا حالا در ایران
-🥇
-
-😀
-😃
-😄
-😁
-
-
-🎁واریز اول
-💖100% بونوس هدیه(2برابر شارژ می شوید)
-
-🎁واریز دوم
-💖100% بونوس هدیه(2برابر شارژ می شوید)
-
-🎁واریز سوم
-💖75% بونوس هدیه
-
-🎁واریز چهارم
-💖50% بونوس هدیه
-
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-
-🤔http://til.ac/z5jcpGT
-
-
-💎کانال اطلاع رسانی ایران:g25🅰
-
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

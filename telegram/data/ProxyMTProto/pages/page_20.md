@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s13.assetflux.org
+Port: 443
+Secret: ee3afc68787d0be6268346b66a3563001b686f66662e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lux.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51011
 
@@ -163,24 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add7765622e62616c652e6169
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: global.lovely.lat
-Port: 443
-Secret: eeaadd88aa9facd454936d0c42dc128e776d2e6265626f6f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

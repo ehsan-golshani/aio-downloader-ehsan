@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 50893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sep1.startnetwork.shop
+Port: 443
+Secret: ee2cd47959b9ece2cc59b76a4a0c010ae37374726d2e79616e6465782e6e6574
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50892
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50891
 
@@ -163,24 +181,6 @@ Secret: ddb57ee5caf6ee163bd0a0d08f491a84db
 Server: jadid.zhigool.co.uk
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50873
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50872
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ssh.meow0.co.uk
-Port: 22
-Secret: dd79e344818749bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51354
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: e3fand.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dedicated.syscloudio.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51352
 
@@ -163,24 +181,6 @@ Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: freetg.mishutkin.click
-Port: 443
-Secret: 87e5ee876fc0254eed830e8029a81964
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

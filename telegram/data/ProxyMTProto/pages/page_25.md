@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 50913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media14.happtg.org
+Port: 443
+Secret: ee4f9067589367c2ef531642d501664f43686f66662e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: khalije-ta-abad-fars.ir.pugfhtrdyted.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50911
 
@@ -163,24 +181,6 @@ Secret: eeaadd88aa9facd454936d0c42dc128e7773747265616d2e6c6f76656c792e6c6174
 Server: reyhoon.shambelile.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sep1.startnetwork.shop
-Port: 443
-Secret: ee2cd47959b9ece2cc59b76a4a0c010ae37374726d2e79616e6465782e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50892
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

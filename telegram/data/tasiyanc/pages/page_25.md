@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 9842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9841
 
@@ -286,19 +296,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9821
-
-<div align="center"><video src="files/post_9821_tasiyanc_9821.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9821_tasiyanc_9821.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری مهر:
-
-پدافند شرق تهران فعال شده.
-
-💋 @Tasiyanc
 </div>
 

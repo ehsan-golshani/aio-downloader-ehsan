@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 50753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.rknsosi.shop
+Port: 443
+Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50751
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
 Server: t.meow-network.com
 Port: 443
 Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jadid.zhigool.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api2.medhata.org
-Port: 2443
-Secret: ee9d072ce3c5b43f6b422bb1e7fe983cc4617069322e6d6564686174612e6f7267
 @ProxyMTProto
 </div>
 

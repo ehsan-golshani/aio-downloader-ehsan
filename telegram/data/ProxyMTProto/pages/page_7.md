@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn8.cdnwave.org
+Port: 443
+Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51272
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51271
 
@@ -162,24 +180,6 @@ Secret: bace78f2e29ada4137186fa8b7d14f1d
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s02.neo-trading.org
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

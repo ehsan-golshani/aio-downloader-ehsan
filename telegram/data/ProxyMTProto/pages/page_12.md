@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s5.assetflux.org
+Port: 443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 3etare.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51171
 
@@ -164,24 +182,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: ykima.davay.click
 Port: 443
 Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51152
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
 @ProxyMTProto
 </div>
 

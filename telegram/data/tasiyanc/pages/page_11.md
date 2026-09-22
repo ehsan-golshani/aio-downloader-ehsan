@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 10205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان
+
+منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان این درگیری‌ها دست‌کم سه دستگاه خودروی نظامی و زرهی نیروهای امنیتی هدف قرار گرفته‌اند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10204
 
@@ -332,20 +342,6 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
 فکر کنم دستشم تمیز باشه
 بعد به دست مشتری میرسونه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10171
-
-<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
-
-یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
 
 💋 @Tasiyanc
 </div>

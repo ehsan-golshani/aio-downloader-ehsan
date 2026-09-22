@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/31 00:46
+📅 آخرین بروزرسانی: 1405/06/31 08:41
 
 ---
+
+## ProxyMTProto — post 51033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51031
 
@@ -163,24 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s13.assetflux.org
-Port: 443
-Secret: ee3afc68787d0be6268346b66a3563001b686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51012
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lux.fesgheli.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

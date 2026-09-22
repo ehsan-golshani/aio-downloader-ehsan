@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 9758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖🤖 Gemini - ChatGpt
+</div>
 
 ## tasiyanc — post 9757
 
@@ -238,14 +244,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 تیتر اول رویترز: جنگ آغاز شده است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
 
 🩸 @Tasiyanc
 </div>

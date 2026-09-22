@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/06/31 03:50
+📅 آخرین بروزرسانی: 1405/06/31 08:43
 
 ---
+
+## tasiyanc — post 9867
+
+<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+sa11
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
 
 ## tasiyanc — post 9866
 
@@ -304,15 +316,5 @@ sg11
 دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
