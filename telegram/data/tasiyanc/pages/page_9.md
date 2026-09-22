@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+Join Join Join
+Join Join Join
+</div>
+
+## tasiyanc — post 10263
+
+<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میکس عالی برد شد❤️☑️
+✔️@Tipster_Mafiaa
+</div>
 
 ## tasiyanc — post 10260
 
@@ -336,30 +355,5 @@
 📌 همین حالا به خانواده ما اضافه شو:
 📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
 💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
-</div>
-
-## tasiyanc — post 10233
-
-<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق تحقیقات جدید، از نظر ثبات مالی و ...
-65 سالگی بهترین سن برای ازدواج آقایونه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10232
-
-<div align="center"><video src="files/post_10232_tasiyanc_10232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10232_tasiyanc_10232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت هول بون این شکلی میشه، لطفا درس عبرت بگیرید؛
-
-مرده تو بانک نوبت خودشو میده به یه خانوم ، طرف برنده جایزه بانک میشه با شماره نوبتی که گرفته بود 🤣
-⚡ @Tasiyanc
 </div>
 

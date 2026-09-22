@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 9448
+
+<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
+
+## tasiyanc — post 9447
+
+<div align="center"><video src="files/post_9447_tasiyanc_9447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9447_tasiyanc_9447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مزاحم یک دختر توی تبریز، به سطل زباله انداخته شد!
+توی تبریز کسبه و مردم وقتی میبینن یه بچه داره واسه یه دختر مزاحمت ایجاد میکنه میریزن سرش دل سیر کتکش میزنن بعدشم میندازنش تو سطل زیاله.
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9446
 
@@ -258,30 +299,5 @@ Roast me , no filter , no mercy
 
 #N
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9428
-
-<div align="center"><img src="files/post_9428_tasiyanc_9428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فیلم تجاوز دو مرد به یک دختر ، متاسفم که وجدان ندارن دوتایی سر یه آدم مظلوم ...
-
-مشاهده فیلم
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9427
-
-<div align="center"><video src="files/post_9427_tasiyanc_9427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9427_tasiyanc_9427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آیا می‌دانستید که پس از اولین لیوان آب گرم صبحگاهی، چه اتفاقی در بدن ما می‌افتد؟👌
-
-#R
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 9428
+
+<div align="center"><img src="files/post_9428_tasiyanc_9428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فیلم تجاوز دو مرد به یک دختر ، متاسفم که وجدان ندارن دوتایی سر یه آدم مظلوم ...
+
+مشاهده فیلم
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 9427
+
+<div align="center"><video src="files/post_9427_tasiyanc_9427.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9427_tasiyanc_9427.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا می‌دانستید که پس از اولین لیوان آب گرم صبحگاهی، چه اتفاقی در بدن ما می‌افتد؟👌
+
+#R
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9426
 
@@ -187,28 +212,5 @@ sa26
 ‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
 https://t.me/+F1CivZlkxrgzMTM0
 https://t.me/+F1CivZlkxrgzMTM0
-</div>
-
-## tasiyanc — post 9405
-
-<div align="center"><video src="files/post_9405_tasiyanc_9405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9405_tasiyanc_9405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-لحظه قهوه ای کردن خبرنگار CNN همین الان در کاخ سفید 😂
-
-خبرنگار : آقای رییس جمهور :
-ترامپ: ساکت، ساکت، ساکت، خیلی بی‌احترامی می‌کنید، ساکت باشید، از رسانه دروغگوی CNN هستی با من حرف نزن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9404
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فووووری
-
-ترامپ: توافق با ایران را لغو خواهیم کرد
 </div>
 

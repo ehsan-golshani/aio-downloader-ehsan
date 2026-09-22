@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10170
+
+<div align="center"><img src="files/post_10170_tasiyanc_10170.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت پرتره ادیتوریال سینمایی و سیاه-سفید
+
+Prompt 🤖🤖
+
+« Man 😊 »
+
+A cinematic black-and-white editorial portrait of a young man sitting indoors against a textured wall, wearing an oversized dark wool coat and dark tailored trousers. He has short dark hair styled with natural texture and soft strands framing his face. He is sitting in a relaxed, confident pose with one knee raised, his right hand gently resting near his lips and chin, showing subtle hands structure. Calm, resolute, slightly melancholic facial expression, strong jawline, defined eyebrows, sharp facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and his face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
+
+« Woman 😊 »
+
+A cinematic black-and-white editorial portrait of a young woman sitting indoors against a textured wall, wearing an oversized dark wool coat and dark pants. She has long dark hair styled in a loose, slightly messy low bun with soft strands framing her face. She is sitting in a relaxed, elegant pose with one knee raised, her right hand gently resting near her lips and chin. Calm, confident, slightly melancholic facial expression, defined eyebrows, soft full lips, subtle natural makeup, delicate facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and her face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
+
+آموزش استفاده از پرامپت و ساخت تصویر➡️
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون بریزه ؛ روستایی در چین که همه فارسی صحبت میکنند و نامش پارسیان هست
+
+
+روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10168
 
@@ -262,23 +294,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 آموزش استفاده ➡️
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10144
-
-<div align="center"><img src="files/post_10144_tasiyanc_10144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠جدیدا خیلی از کافه‌ها شبا در کافه رو به روی مشتریای عادی میبندن و کافه ها تبدیل به کلاب میشن و پارتی برگزار میشه. فقط هم با بلیط میشه وارد شد. بلیط ورود برای پسرا ۱ میلیون و ۲۰۰ هزار تومنه؛ درحالی که برای دخترا فقط ۳۰۰هزار تومنه.
-
-پروکسی | پروکسی  | پروکسی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
 </div>
 

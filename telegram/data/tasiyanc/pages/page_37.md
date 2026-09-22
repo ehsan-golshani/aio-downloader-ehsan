@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 9519
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9518
+
+<div align="center"><img src="files/post_9518_tasiyanc_9518.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9517
 
@@ -268,34 +312,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9498
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9497
-
-<div align="center"><img src="files/post_9497_tasiyanc_9497.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ده تا از بهترین سریال های جهان که قبل مرگتون باید ببینید !
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-
-https://www.novigrad.top
-
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده « مشاهده »
+</div>
+
+## tasiyanc — post 10444
+
+<div align="center"><video src="files/post_10444_tasiyanc_10444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10444_tasiyanc_10444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک قبیله بومی منزوی در آمازون که از هوا عکاسی شده. آن‌ها نمی‌دانند زندگی دیگری در جهان هست ؛ و ما نمی‌دانیم در ذهن آن‌ها جهان دقیقاً چه معنایی دارد.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10443
 
@@ -293,45 +313,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 ✅کانال تلگرام:👇
 💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10420
-
-<div align="center"><img src="files/post_10420_tasiyanc_10420.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g28🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10419
-
-<div align="center"><video src="files/post_10419_tasiyanc_10419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10419_tasiyanc_10419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رودخانه گنگ هند جزو آلوده‌ترین رودخانه های دنیاست چون نه تنها همه فاضلاب ها بهش ختم میشن بلکه سوخته اجساد شون رو هم این تو میریزن
-
-ولی ببین معده یک هندی چی هست که باکتری ای‌کولای در مقابلش عاجزه
-
-
-
-💋 @Tasiyanc
 </div>
 

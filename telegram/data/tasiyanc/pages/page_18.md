@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10005
+
+<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ سرعتی وایرگارد 
+🔓
+
+حجم و کاربر نامحدود 
+⚡️
+
+
+دانلود 
+📱Android
+🕹  iOS
+
+
+آموزش اتصال با WgTunnel 
+🔗
+
+آموزش اتصال با windscribe
+🔗
+
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10004
+
+<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
+امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10003
 
@@ -285,42 +329,6 @@ sg15
 🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
 
 سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9984
-
-<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۶ کانفیگ پرمیوم سرعتی OpenVpn 
-📶
-
-مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
-
-
-👈 دریافت کانفیگ ها 
-➡️
-
-
-لوکیشن : 
-🇩🇰
-🇪🇸
-🇫🇮
-🇮🇪
 
 
 💋 @Tasiyanc

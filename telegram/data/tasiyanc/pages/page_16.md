@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴هادی چوپون:
+
+دوست داشتم تو المپیا امسال مدال طلا میگرفتم و اونو به رهبرمون تقدیم میکردم
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10051
+
+<div align="center"><img src="files/post_10051_tasiyanc_10051.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 فردا اپل رسما از سری 18 رونمایی میکنه:
+
+کدوم رنگش خوشگله؟
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10050
 
@@ -289,27 +312,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 10032
-
-<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

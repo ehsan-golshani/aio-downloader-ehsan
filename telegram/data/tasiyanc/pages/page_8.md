@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
+اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
+خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10298
+
+<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
+
++ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10297
 
@@ -311,24 +331,5 @@ Location
 🔴شات های جدید عشقتون بانو سیدنی سویینی
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-Join Join Join
-Join Join Join
-</div>
-
-## tasiyanc — post 10263
-
-<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میکس عالی برد شد❤️☑️
-✔️@Tipster_Mafiaa
 </div>
 

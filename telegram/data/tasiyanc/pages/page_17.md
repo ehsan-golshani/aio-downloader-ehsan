@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 10032
+
+<div align="center"><video src="files/post_10032_tasiyanc_10032.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10032_tasiyanc_10032.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این آقا موقع زایمان همسرش رفته بود دستشو گرفته بود که تنها نباشه، آخرش ۲ نفر مجبور شدن زیر بغل خودشو بگیرن بیهوش نشه 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10031
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10030
 
@@ -313,49 +335,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 10005
-
-<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ سرعتی وایرگارد 
-🔓
-
-حجم و کاربر نامحدود 
-⚡️
-
-
-دانلود 
-📱Android
-🕹  iOS
-
-
-آموزش اتصال با WgTunnel 
-🔗
-
-آموزش اتصال با windscribe
-🔗
-
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10004
-
-<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
-امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
-
-
-💋 @Tasiyanc
 </div>
 

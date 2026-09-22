@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/06/31 00:48
+📅 آخرین بروزرسانی: 1405/06/31 03:50
 
 ---
+
+## tasiyanc — post 9820
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محاصره بی تاثیره ؟
+
+تانکر ترکرز: صادرات نفت خام جمهوری اسلامی در ماه آگوست (۳۰ روز گذشته) به صفر رسید
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9819
+
+<div align="center"><video src="files/post_9819_tasiyanc_9819.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9819_tasiyanc_9819.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون حملات موشکی از اکثر شهرهای ایران به سمت پایگاه‌های آمریکا
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9818
 
@@ -268,49 +291,5 @@ sg10
 +قیمت هر دلار امروز ۱۰ شهریور از ۲۱۱ هم عبور کرد ولی شما ها از اراجیفتون خسته نشدید
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9790
-
-<div align="center"><img src="files/post_9790_tasiyanc_9790.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 
