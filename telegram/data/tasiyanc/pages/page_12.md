@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 10220
+
+<div align="center"><img src="files/post_10220_tasiyanc_10220.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویت شده در تجمعات شبانه 🤣
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10218
 
@@ -252,52 +262,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 🔥 کانال تلگرام وی پاری:
 ✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10188
-
-<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-🍏 آموزش برای کاربران iOS
-
-🌐 لینک ورود به سایت👇
-
-🔥 til.ac/PJHVQSm
-🔥 til.ac/PJHVQSm
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
 </div>
 

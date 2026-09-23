@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 9721
+
+<div align="center"><video src="files/post_9721_tasiyanc_9721.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9721_tasiyanc_9721.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه رسانه ترکیه ای اومده از عشق و حال ایرانیا توی شهر وان ترکیه ویدیو منتشر کرده که خیلی وایرال شده:
+
+تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9716
 
@@ -279,37 +293,5 @@ til.ac/0L4vyJf
 📲 اپلیکیشن اندروید سایت وینامیت 🔥
 
 🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-</div>
-
-## tasiyanc — post 9688
-
-<div align="center"><img src="files/post_9688_tasiyanc_9688.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
-
-                        ⭕️ بدون قرعه‌کشی!
-⭕️ هدیه ویژه برای همه کاربران جدید!
-
-
-💵پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
-
-👽 ثبت نام کنید 👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-
-
-🌐آدرس سایت👇
-https://Winamit.com/fa
-https://Winamit.com/fa
-https://Winamit.com/fa
-
-📲 کانال تلگرامی #وینامیت :
-
-✅@Winamit_fa
 </div>
 

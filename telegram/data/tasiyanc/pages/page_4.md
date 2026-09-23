@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 10433
+
+<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
+آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10432
 
@@ -331,15 +345,5 @@ https://AmitisBet.com/
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت
-📱
-سریع، آسان و آنی
-👑
-https://AmitisBet.com/
 </div>
 

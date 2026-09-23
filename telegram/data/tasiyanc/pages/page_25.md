@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 9879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠طبق گزارش ها؛
+روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
++ دلیلشم انجام برخی کارهای +۱۸ بوده
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9878
 
@@ -276,21 +286,5 @@ sa11
 ⭕️
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9856
-
-<div align="center"><video src="files/post_9856_tasiyanc_9856.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9856_tasiyanc_9856.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🇺🇸 فرماندهی سنتکام به الجزیره درباره برخورد پهباد یا موشک به عروسی :
-
-ما گزارش‌های مربوط به هدف قرار گرفتن یک مراسم عروسی در ایران رو بررسی می‌کنیم و برخلاف سپاه پاسداران، غیرنظامیان رو هدف قرار نمی‌دیم.
-
-
-💋@Tasiyanc
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 10021
+
+<div align="center"><video src="files/post_10021_tasiyanc_10021.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10021_tasiyanc_10021.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨آیدا حیدری نامزد جاویدنام ابوالفضل سلیمانی پس از تحمل درد و غم از دست دادن نامزدش ، صبح امروز به زندگی خودش پایان داد
+اعضای خانواده های جاویدنام ها کم کم داره تحمل این داغ براشون سخت میشه و دست به خودکشی میزنن توی ۲۴ ساعت اخیر دو خودکشی!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10020
 
@@ -347,20 +360,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9996
-
-<div align="center"><video src="files/post_9996_tasiyanc_9996.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9996_tasiyanc_9996.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ حاوی تصاویر دلخراش
-
-🚨جوان همدانی خودشو چندساعت پیش تو شهر جلوی بقیه آتیش زد
-هنوز اطلاعات دقیقی از علت این خودسوزی بیرون نيومده ولی دادستان همدان گفته این جوون دارای مشکلات روحی و روانی بوده و درحال حاضر هم تو بیمارستان بستریه...
-
-💋 @Tasiyanc
 </div>
 

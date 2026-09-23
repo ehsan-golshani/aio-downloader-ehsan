@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/01 18:46
+📅 آخرین بروزرسانی: 1405/07/01 22:48
 
 ---
+
+## tasiyanc — post 10131
+
+<div align="center"><img src="files/post_10131_tasiyanc_10131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عجیب‌ترین مسابقه مُد و فشن (ISIS FASHION AWARDS AMSTERDAM 2026) تو هلند🇳🇱 برگزار شد؛
+
+قانون اصلی این فشن‌شو اینه که فقط و فقط اکسسوری‌ها باید دیده بشن، یعنی چیزایی مثل کیف، کفش، عینک، جواهرات، کلاه و کمربند.
+
+مدل‌ها نباید هیچ لباسی بپوشن و فقط همون اکسسوری‌های طراح رو روی بدنشون دارن تا تمرکز کامل روی طراحی‌ها باشه.
+
+‌
+مشاهده ویدیو مسابقات بدون سانسور 🖤
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10129
 
@@ -338,19 +355,6 @@ sa18
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
 بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10101
-
-<div align="center"><video src="files/post_10101_tasiyanc_10101.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10101_tasiyanc_10101.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیوهای وایرال‌شده از بانو تیلور سوئیفت ( کراش خیلیا ) در کنسرت جدیدش
-
 
 💋 @Tasiyanc
 </div>
