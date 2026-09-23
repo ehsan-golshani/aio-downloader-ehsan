@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/06/31 22:28
+📅 آخرین بروزرسانی: 1405/07/01 04:00
 
 ---
+
+## tasiyanc — post 10418
+
+<div align="center"><video src="files/post_10418_tasiyanc_10418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10418_tasiyanc_10418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده از سوفیا ترنر تیک‌تاکر در مورد مردای ایرانی
+
+این خانم خارجی میگه مرد های ایرانی خوش تیپن، خانواده دوستن، وفادارن، کادو میخرن و مثل یک هدیه الهی هستند. بیشتر به مرد های ایرانی در کشورمون نیاز داریم. جالبی قضیه میدونید کجاست؟ در نظرات، خانم های خارجی همه تایید کردند ولی کامنت زنان ایرانی همه منفی بود
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
+</div>
 
 ## tasiyanc — post 10416
 
@@ -321,30 +341,6 @@ Act as a motivational coach
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇸🇪
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10394
-
-<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
-
-خب لامصب یه بار لخت شو بیا 😐
 
 💋 @Tasiyanc
 </div>

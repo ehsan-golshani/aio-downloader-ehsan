@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/06/31 22:28
+📅 آخرین بروزرسانی: 1405/07/01 04:00
 
 ---
+
+## tasiyanc — post 10201
+
+<div align="center"><img src="files/post_10201_tasiyanc_10201.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دعوایی ترین استان های ایران:
+
++ نکته جالب ۳ استان اولی ترکا هستن آخری‌ام بلوچا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10194
 
@@ -332,41 +360,5 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10168
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔔 اپلیشیکن بدون فیلتر1xbet 3️⃣2️⃣1️⃣
-🤝 اسپانسر لالیگا🇪🇸
-🤝 اسپانسر سری آ🇮🇹
-🤝اسپانسر باشگاه یوونتوس🇮🇹 sg20
-🤩 آموزش ثبت نام در 1 دقیقه
-💀 https://t.me/+mneyQS4mfqNjNjBk
-</div>
-
-## tasiyanc — post 10167
-
-<div align="center"><img src="files/post_10167_tasiyanc_10167.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-▪️ سایت بین المللی و معتبر 1xbet
-⚽️⚽️⚽️
-🔠دارای مجوز بین المللی CURACAO
-تسویه حساب کمتر از 2دقیقه
-
-🤑شارژ حساب از طریق یو ووچر و پی اس ووچر ،تمام ارزها
-┅━━━━━━━━━━━
-🎁 واریز اول و هر شنبه دو برابر شارژ شوید(بونوس ۱۰۰٪)
-💡کد هدیه ثبت نام: S5670
-👽ثبت نام کنید.     👇
-📲 نصب اپلیکیشن اندرید کلیک کنید👉
-
-🌐آدرس سایت ▫️
-
-‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳🇹🇷
-
-            🚨 امنیت مالی در 1xbet🚨
 </div>
 

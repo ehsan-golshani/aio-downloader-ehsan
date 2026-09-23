@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/06/31 22:28
+📅 آخرین بروزرسانی: 1405/07/01 04:00
 
 ---
+
+## tasiyanc — post 10396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+لوکیشن 🇸🇪
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10394
+
+<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
+
+خب لامصب یه بار لخت شو بیا 😐
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10393
 
@@ -229,33 +253,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10371
-
-<div align="center"><img src="files/post_10371_tasiyanc_10371.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قتل فجیع ۵ نفر از اعضای خانواده در تهران
-
-ساعتی قبل جسد پنج زن و مرد که گفته می‌شود قربانی یک قتل عام خانوادگی شده بودند، در بلوار سیمون بولیوار تهران کشف شد ، عاملان جنایت دستگیر شدند
-
-دوتا برادر بعد از فوت پدرشون تصمیم میگیرن تمام اموال باباشونو بالا بکشن،
-دو تا خواهر و دو برادر و مادر خودشونو به قتل میرسونن و یه چاه میکنن و جنازه هارو میندازن توش و تمام اموالو بالا میکشن، با یه دختر اوکی میشه یکیشون که دختره می‌فهمه خیلی پولدارن مشکوک میشه ، میفهمه خانوادشونو به قتل رسوندن، سریع به پلیس گزارش می‌کنه و دستگیر میشن
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10370
-
-<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
-
-
-💋 @Tasiyanc
 </div>
 

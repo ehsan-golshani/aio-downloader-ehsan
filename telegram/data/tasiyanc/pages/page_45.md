@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/06/31 22:28
+📅 آخرین بروزرسانی: 1405/07/01 04:00
 
 ---
+
+## tasiyanc — post 9350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
 
 ## tasiyanc — post 9348
 
@@ -240,38 +252,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
-</div>
-
-## tasiyanc — post 9328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟
-
-پسر توپُر & سیکس پک ؟
-
-کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
 </div>
 

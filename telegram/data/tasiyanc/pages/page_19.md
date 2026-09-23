@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/06/31 22:28
+📅 آخرین بروزرسانی: 1405/07/01 04:00
 
 ---
+
+## tasiyanc — post 10003
+
+<div align="center"><video src="files/post_10003_tasiyanc_10003.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10003_tasiyanc_10003.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10002
+
+<div align="center"><video src="files/post_10002_tasiyanc_10002.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10002_tasiyanc_10002.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ حاوی تصاویر دلخراش 
+🚨جوان همدانی خودشو چندساعت پیش تو شهر جلوی بقیه آتیش زد هنوز اطلاعات دقیقی از علت این خودسوزی بیرون نيومده ولی دادستان همدان گفته این جوون دارای مشکلات روحی و روانی بوده و درحال حاضر هم تو بیمارستان بستریه... 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10001
 
@@ -295,32 +322,6 @@ sg15
 🇫🇮
 🇮🇪
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9983
-
-<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9982
-
-<div align="center"><video src="files/post_9982_tasiyanc_9982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9982_tasiyanc_9982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک تک‌تیرانداز از شبه‌نظامیان یمنی طرفدار عربستان، وقتی که یک جنگجوی حوثی داشته قضای حاجت میکرده، از فرصت استفاده میکنه و به "شمبول" او شلیک میکنه 😂
 
 💋 @Tasiyanc
 </div>
