@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 50925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ya709.startnetwork.shop
+Port: 443
+Secret: eefc5d33f52ad4d9f04358306ba003d8fc7374726d2e79616e6465782e6e6574
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.cheap-ass-domain.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50923
 
@@ -163,24 +181,6 @@ Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 Server: ssh.meow0.co.uk
 Port: 22
 Secret: dd79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxtstar.live
-Port: 443
-Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
 @ProxyMTProto
 </div>
 

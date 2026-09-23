@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 50604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50603
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50602
 
@@ -163,24 +181,6 @@ Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

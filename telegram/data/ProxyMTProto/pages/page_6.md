@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 51326
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best.ir.agrescjarkahdgs.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51325
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 217.138.215.102
+Port: 443
+Secret: ee8357954a3df5c26e32a7b8a7978c3f107777772e636974696c696e6b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51324
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: media6.happtg.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51306
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

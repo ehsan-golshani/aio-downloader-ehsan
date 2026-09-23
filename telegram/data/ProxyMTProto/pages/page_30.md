@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 50845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: evo.foriran.co.uk
+Port: 443
+Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50844
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50843
 
@@ -163,24 +181,6 @@ Secret: eed06aa940a556d2187dba3e5a048f5df67374726d2e79616e6465782e6e6574
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50825
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.81.95
-Port: 443
-Secret: eeca9d1ff80c1c1758dc115b7b9a90b7a76d6564626c6f636b2e666974
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50824
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 @ProxyMTProto
 </div>
 

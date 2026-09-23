@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/01 04:00
+📅 آخرین بروزرسانی: 1405/07/01 08:45
 
 ---
+
+## tasiyanc — post 10113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 240.000 هزار تومان
+طلا 24.600.000 هزار تومان
+ریدین تو مملکت و آینده ما مبارکتون باشه
+
+پروکسی | پروکسی  | پروکسی
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10112
+
+<div align="center"><img src="files/post_10112_tasiyanc_10112.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 10 September، روز جهانی آرایش کردنه💄
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10110
+
+<div align="center"><video src="files/post_10110_tasiyanc_10110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10110_tasiyanc_10110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠فیلم وایرال شده عروسی اسرائیلی‌ها با آهنگ ایرانی در کمتر از یک روز ۵ میلیون ویو خورد !
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10109
 
@@ -219,65 +256,6 @@ sa18
 ۴- محاصرهٔ یمن پایان یابد،
 ۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
 ۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-sg18
-ادرس عضویت کانال:👇
-▪️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10089
-
-<div align="center"><img src="files/post_10089_tasiyanc_10089.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:
-✉️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10088
-
-<div align="center"><video src="files/post_10088_tasiyanc_10088.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10088_tasiyanc_10088.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌غیرت مثل رییس دانشگاه سمنان!
-
-رئیس دانشگاه سمنان: از همه دانشجوهای عراقی معذرت میخوام، قول میدیم براشون جبران کنیم!
-
-دانشجوهای عراقی فرزندان ما هستن و نمیذاریم کوچیک‌ترین آسیبی بهشون برسه.
-اگه خدایی نکرده یوقت اذیت شدن معذرت میخوایم و بهترشو براشون جبران میکنم.
-تمام افرادیم که برای دانشجوهای عراقی مزاحمت ایجاد کردن، بازداشت شدن و انداختیم‌شون زندان.
 
 🩸 @Tasiyanc
 </div>

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 51205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sahel.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51204
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s01.neo-trading.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51203
 
@@ -160,24 +178,6 @@ Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51185
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.speed-benz.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto

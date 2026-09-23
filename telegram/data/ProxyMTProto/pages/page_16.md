@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 51125
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51124
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51123
 
@@ -163,24 +181,6 @@ Secret: ee78437f70effbb0fd37b573d600676558617669746f2e7275
 Server: havashenasi.my-moon.co.uk.
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

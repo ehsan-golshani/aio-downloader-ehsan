@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 50945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.kimt.click
+Port: 443
+Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50943
 
@@ -163,24 +181,6 @@ Secret: eeaadd88aa9facd454936d0c42dc128e776d2e6265626f6f2e7275
 Server: Unknown
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ya709.startnetwork.shop
-Port: 443
-Secret: eefc5d33f52ad4d9f04358306ba003d8fc7374726d2e79616e6465782e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50924
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.cheap-ass-domain.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

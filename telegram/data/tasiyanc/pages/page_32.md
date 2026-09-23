@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/01 04:00
+📅 آخرین بروزرسانی: 1405/07/01 08:45
 
 ---
+
+## tasiyanc — post 9677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه درامد دلاری به جیب بزنی ✅
+همین حالا وارد کانال بت ویژن شو👇
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
+
+## tasiyanc — post 9676
+
+<div align="center"><video src="files/post_9676_tasiyanc_9676.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9676_tasiyanc_9676.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶
+🚨
+🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده
+🔥
+
+@Vision_Bet
+@Vision_Bet
+@Vision_Bet
+</div>
+
+## tasiyanc — post 9675
+
+<div align="center"><video src="files/post_9675_tasiyanc_9675.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9675_tasiyanc_9675.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨با اعلام پزشکیان نرخ سوم بنزین ۱۰ هزار تومان شد و به زودی این تغییر قیمت اعمال می‌شود.
+پس از نرخ سوم ۱۰ هزار تومانی نیز نرخ آزاد اعمال خواهد شد که مابین ۴۰ تا ۸۷ هزار تومان خواهد بود
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9674
 
@@ -358,45 +398,5 @@ https://t.me/+J_q7c-COftQzOGM0
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9648
-
-<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: اولین تریلر GTA 6 منتشر شد.
-
-مشاهده 27 دقیقه تریلر کامل GTA 6
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9647
-
-<div align="center"><video src="files/post_9647_tasiyanc_9647.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9647_tasiyanc_9647.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این بادکنک ماهی کوچولو برای خواستگاری از عشقش ، آثار هنری خلق می‌کنه :)
-
-
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9646
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

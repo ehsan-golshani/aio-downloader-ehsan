@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 50725
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50724
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.easyproxy.cfd
+Port: 443
+Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50723
 
@@ -163,24 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: proxtstar.live
 Port: 443
 Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 88.198.197.199
-Port: 4466
-Secret: dd114562821249bd7ac519130220c25d08
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
 @ProxyMTProto
 </div>
 

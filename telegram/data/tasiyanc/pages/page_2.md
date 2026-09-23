@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/01 04:00
+📅 آخرین بروزرسانی: 1405/07/01 08:45
 
 ---
+
+## tasiyanc — post 10469
+
+<div align="center"><video src="files/post_10469_tasiyanc_10469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10469_tasiyanc_10469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گوریل 🦍 بعد دعوا با جفتش رفته یه گوشه نشسته عمیقا بفکر فرو رفته :
+
+«کیوماسا» اسم این گوریل نر که تو یه باغ‌وحش در ژاپن 🇯🇵 زندگی می‌کنه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 30🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
+</div>
+
+## tasiyanc — post 10467
+
+<div align="center"><img src="files/post_10467_tasiyanc_10467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+30🅰
+🛒 ورود به سایت 👇
+✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10466
 
@@ -253,43 +298,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10446
-
-<div align="center"><video src="files/post_10446_tasiyanc_10446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10446_tasiyanc_10446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرنگار حوادث:
-
-آتنا قاسمی ؛ دختر ۱۴ ساله کرجی که ۲۵ مردادماه به بهونه تولد یه پسر که رفیقش بوده از خونه خارج شد و دیگه برنگشت؛ بعد از یک ماه جسـدش در پزشکی قانونی پیدا شد که موهاشو کوتاه کرده بودن و انگار از طبقه پنجم سقوط کرده.
-این دختر ۲۵ مردادماه میگه میرم تولد یکی از دوستای اجتماعی پسرم. که یهو ساعت ۹ شب گوشیش خاموش میشه و دیگه خبری ازش نمیشه. اون پسره رو بازدداشت کردن و مشخص میشه اصلا تولدی درکار نبوده؛ چون تولد پسر ۱۲ شهریور بوده. توی اعترافاتش گفته اون روز آتنا رو سوار کردم و یه ساعت‌ بعد توی همون خیابون پیادش کردم و دیگه خبری ازش نداشتم.
-خلاصه مراقب خودتون باشید و توی روابطتون دقت کنید بخصوص دختر خانومای عزیز
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده « مشاهده »
-</div>
-
-## tasiyanc — post 10444
-
-<div align="center"><video src="files/post_10444_tasiyanc_10444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10444_tasiyanc_10444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک قبیله بومی منزوی در آمازون که از هوا عکاسی شده. آن‌ها نمی‌دانند زندگی دیگری در جهان هست ؛ و ما نمی‌دانیم در ذهن آن‌ها جهان دقیقاً چه معنایی دارد.
-
 
 
 💋 @Tasiyanc

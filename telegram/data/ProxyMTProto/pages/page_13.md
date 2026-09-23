@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 51185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.speed-benz.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51183
 
@@ -163,24 +181,6 @@ Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 Server: 91.107.160.196
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51164
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: l0vie.delroba.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

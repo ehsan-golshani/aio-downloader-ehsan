@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/01 04:00
+📅 آخرین بروزرسانی: 1405/07/01 08:45
 
 ---
+
+## tasiyanc — post 10301
+
+<div align="center"><img src="files/post_10301_tasiyanc_10301.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+1️⃣سایت بین المللی 1xbet1️⃣
+
+🎁اولین واریز توی وان ایکس 2 برابر شارژ میشین💖
+🔔چرا همه وان ایکس را انتخاب میکنند⚠️
+💖شارژ امن از طریق، انواع ووچر ، ارز دیجیتال
+💖 هر شنبه 2 برابر شارژ میشین
+💖تسویه حساب سریع و بدون احراز
+💖بازگشت بخشی از باخت به صورت هفتگی
+💖اسپانسر باشگاه بارسلونا و پاریسن ژرمن
+
+🔔راهنمای کامل سایت وان ایکس بت🔔
+
+🌐آدرس سایت👇
+📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
+
+‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
+</div>
+
+## tasiyanc — post 10299
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
+اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
+خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10298
+
+<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
+
++ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10297
 
@@ -301,34 +344,5 @@ Location
 ✅ Link 🔜 MelBet1.net
 
 ✅‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10265
-
-<div align="center"><img src="files/post_10265_tasiyanc_10265.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴شات های جدید عشقتون بانو سیدنی سویینی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10264
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-Join Join Join
-Join Join Join
-</div>
-
-## tasiyanc — post 10263
-
-<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-میکس عالی برد شد❤️☑️
-✔️@Tipster_Mafiaa
 </div>
 

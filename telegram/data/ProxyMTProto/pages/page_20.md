@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/07/01 01:40
+📅 آخرین بروزرسانی: 1405/07/01 08:43
 
 ---
+
+## ProxyMTProto — post 51045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gamerpr.cfd
+Port: 443
+Secret: ee3cd8b9e99a48486b14d0f6169d0b8d06617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51043
 
@@ -163,24 +181,6 @@ Secret: 7g__UnpackYourGirl__J9N5YS5ydQ
 Server: Hamrah.mci.ir.pugfhtrdyted.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: live.lovely.lat
-Port: 443
-Secret: eeaadd88aa9facd454936d0c42dc128e776c6976652e6c6f76656c792e6c6174
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 
