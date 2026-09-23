@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10180
+
+<div align="center"><img src="files/post_10180_tasiyanc_10180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 10179
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی‌سایت
+
+🟠با این سایت میتونید روزانه ۱۵ ویدیو رایگان تولید محتوا و تبلیغاتی با هوش مصنوعی بسازید
+
+برای تست کردنش کافیه وارد سایت زیر بشید
+https://fal.ai/models/minimax/h3-max/text-to-video
+
+🤖 یه گزینه خوب برای ساخت کلیپ‌های کوتاه، تست ایده‌ها ، تولید محتوای تبلیغاتی و ...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 همسر غلامعلی حدادعادل تعداد کشته شدگان حمله ۹ اسفند در بیت رهبری را اعلام کرد: ۷۶ نفر
+
+همسر حدادعادل:
+هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10176
+
+<div align="center"><img src="files/post_10176_tasiyanc_10176.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت وایرال شده جدید کاپلی
+
+عکس خودتون با پارتنرتون بفرستید نتیجه عالیه
+
+Prompt 🤖🤖
+
+Ultra-photorealistic cinematic couple photograph, vertical 4:5. Use TWO uploaded portraits: Photo 1 for the person beside the car, Photo 2 for the person on the balcony. Preserve each person’s exact facial identity, gender, skin tone and defining features; do not blend or swap faces. Both roles work for any gender.
+
+Rainy night in an old Iranian alley. Person 1 wears an oversized white T-shirt, loose black trousers and light sneakers, standing beside the open driver’s door of a white Peugeot 206, one hand in a pocket, the other forearm resting on the roof edge, looking lovingly up at Person 2. Person 2 wears a light-colored top, leans slightly over the second-floor balcony railing and smiles down.
+
+Rear three-quarter view of the car fills the lower-right frame: wet paint and windows, unlit rear lights, black bumper, PEUGEOT badge and partially cropped Iranian plate. Upper-right balcony: weathered wood, geometric railing, hanging pots, dense ivy and warm amber interior light. Aged walls, closed metal shutters and faded Persian shop signs, their lettering indistinct in the darkness; no invented readable phrases.
+
+Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, intimate nostalgic mood. Slightly upward camera angle, natural 35mm perspective, authentic low-light exposure, realistic skin, fabric and droplets, subtle film grain. Keep both identities recognizable within the composition. No plastic skin, excessive HDR, artificial glow, distorted hands, duplicate people or watermark.
+
+
+آموزش استفاده از پرامپت➡️
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10175
 
@@ -233,82 +344,4 @@ Final result: A believable rediscovered real color photograph from Tehran around
 
 💋 @Tasiyanc
 </div>
-
-## tasiyanc — post 10158
-
-<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
-این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چرا این روزها همه سایت جهانی MelBet رو انتخاب میکنن ⁉️
-
-🎁 شارژ هدیه 130 دلاری اولین واریز
-🎁 شارژ هدیه 100 دلاری در روز های یکشنبه و چهارشنبه
-🎁 و ده ها بانس ارزنده دیگر...
-🥇 متنوع ترین آپشن های ورزشی
-🖥 پخش زنده مسابقات
-🎮 بیش از 80 نوع ورزش مجازی با پخش زنده
-⭐ کاملترین کازینو آنلاین
-🛡 امنیت فوق العاده بالا
-🌐 اسپانسر رسمی جام جهانی
-💵 واریز آنی جوایز با بیش از 30 روش شارژ و برداشت، از جمله کارت بکارت
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 10155
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شروع هفته مد نیویورک با صدای بهشتی بانو هایده و طراح ایرانی لباس یاسمین لاریان بنیانگذار خانه مد «کالت‌گایا»
-
-
-یاسمین لاریان حکمت (Jasmin Larian Hekmat)، طراح آمریکایی-ایرانی‌ و بنیان‌گذار و مدیر هنری خانه مد «کالت گایا»، روز چهارشنبه ۱۸ شهریورماه در هفته مد نیویورک مجموعه بهار ۲۰۲۷ خود با عنوان «بهشت» را به نمایش گذاشت و طنین صدای هایده، خواننده مشهور و فقید ایرانی، در این نمایش شنیده شد.
-
-مجموعه بهار ۲۰۲۷ «بهشت» نیز مانند بخشی از آثار پیشین لاریان حکمت، بازتابی از ریشه‌های ایرانی و فرهنگ پارسی او است. چهره‌های مطرح دنیای مد و سرگرمی آمریکا در نمایش این مجموعه حاضر بودند.
-
-یاسمین لاریان حکمت مجموعه «بهشت» را با الهام از درگذشت مادربزرگش و تجربه سوگ طراحی کرده است. نمایش از لباس‌های تیره و حال‌وهوایی اندوهگین آغاز شد و به تدریج به طراحی‌هایی روشن‌تر و شادتر رسید تا گذار از سوگواری به جشن زندگی را به تصویر بکشد.
-
-این طراح ایرانی-آمریکایی مجموعه پاییز و زمستان ۲۰۲۶-۲۰۲۷ را نیز با عنوان فارسی شیرزن (shirzan) و در ادای احترام میراث زنان ایرانی به بازار روانه کرده بود.
-
-یاسمین لاریان حکمت در سال ۲۰۱۲ نشان کالت گایا را در لس‌آنجلس بنیان گذاشت و این خانه مد را به یک نشان بین‌المللی در حوزه مد و لوازم جانبی تبدیل کرد. او در سال ۲۰۱۷ نیز در فهرست «۳۰ فرد زیر ۳۰ سال» موفق مجله فوربس قرار گرفت.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10154
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40میلیون جایزه برای ۱۰۰ نفر
-همین حالا عضو خانواده وی پاری شو✔️
-</div>
-
-## tasiyanc — post 10153
 

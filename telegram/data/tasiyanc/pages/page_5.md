@@ -1,8 +1,150 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10409
+
+<div align="center"><video src="files/post_10409_tasiyanc_10409.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10409_tasiyanc_10409.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛍 شنبه ۲۸ شهریور؛ انگلستان امروز بدون توقف می‌دود!
+تاتنهام–ویلا ۱۵:۰۰؛ ضربه‌ی اول و شروع فشار.
+اورتون–نیوکاسل ۱۷:۳۰؛ جدالی که وسط روز را سنگین می‌کند.
+برایتون–هال ۱۷:۳۰؛ نبردی که ریتم را دوشاخه می‌کند.
+ایپسویچ–آرسنال ۱۷:۳۰؛ بازی‌ای که همیشه بیشتر از ظاهرش می‌جوشد.
+ناتینگهام–کاونتری ۲۰:۰۰؛ پایانی که روز را کامل می‌بندد.
+پریمیرلیگ امروز پنج ضربه‌ی پشت‌سرهم می‌زند.
+
+
+🥾 بونوس‌های فعال:
+
+0️⃣
+0️⃣
+3️⃣
+🔣 
+3️⃣ اولین واریز
+
+0️⃣
+0️⃣
+2️⃣
+🔣 
+2️⃣ دومین واریز
+
+0️⃣
+0️⃣
+1️⃣
+🔣 
+1️⃣ سومین واریز
+
+
+👾 دانلود مستقیم اپلیکیشن اندروید
+
+
+🌄 آدرس ثابت وبسایت
+
+
+🌐 عضویت کانال تلگرام
+
+
+📱 مشاهده پروفایل اینستاگرام
+
+
+🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
+</div>
+
+## tasiyanc — post 10408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
+
+دریافت کانفیگ‌ها 👉
+
+به هیچ عنوان از دست ندید گادن 💥
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10407
+
+<div align="center"><video src="files/post_10407_tasiyanc_10407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10407_tasiyanc_10407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترفندای خفن ChatGPT که دیگه لازم نیست برای هر ادیت یا ایده، پرامپت کیلویی بنویسی!
+
+بعضی وقتا کافیه به جای توضیح طولانی، یه دستور کوتاه و دقیق بزنی
+
+/retouch → روتوش چهره و تمیز کردن تصویر
+/outfit → عوض کردن لباس با رفرنس
+/rimlight → اضافه کردن نور حاشیه‌ای
+/upscale → افزایش کیفیت و جزئیات
+/frontangle → تبدیل زاویه به نمای روبه‌رو
+/threequarterangle → نمای سه‌رخ حرفه‌ای
+/profileangle → ساخت نمای نیم‌رخ
+/removebg → حذف کامل پس‌زمینه
+/recolor → تغییر رنگ لباس یا فضا
+/cinematic → تبدیل عکس به حال‌وهوای سینمایی
+/poster → ساخت پوستر خفن از روی عکس
+/avatar → تبدیل عکس به آواتار حرفه‌ای
+/productshot → تبدیل عکس ساده به شات تبلیغاتی
+/expand → باز کردن کادر و ساخت فضای بیشتر
+/cleanup → حذف آیتم‌های اضافه از تصویر
+
+اینا فقط چندتا از دستورای خفنشه؛
+بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10406
+
+<div align="center"><video src="files/post_10406_tasiyanc_10406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10406_tasiyanc_10406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10405
+
+<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دستور جادویی برای پرامپت حرفه‌ای‌تر!
+
+🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
+
+Act as a … + تخصص
+
+مثلاً:
+Act as a senior UX designer
+Act as an expert copywriter
+Act as a motivational coach
+
+🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10404
+
+<div align="center"><img src="files/post_10404_tasiyanc_10404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آنی نایت، پورن استار معروف استرالیایی اومد رکورد جهانی تعداد سکس تو ۲۴ ساعتو جابجا کنه اما بعد از شش ساعت و سکس با ۵۸۳ مرد حالش بد شد و الان بیمارستان بستریه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10403
 
@@ -166,79 +308,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 💎ادرس عضویت کانال vip:
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10385
-
-<div align="center"><video src="files/post_10385_tasiyanc_10385.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10385_tasiyanc_10385.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لقمه حرام، شرف را نابود می کند.
-نتیجه اش می شود تبلیغی اینچنین که فقر مردم را به سُخره می گیرد.
-
-تقصیر خودمونه برخی از بلاگرای دوزاریو با دکمه فالو شاخ کردیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10384
-
-<div align="center"><video src="files/post_10384_tasiyanc_10384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10384_tasiyanc_10384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده چند تا دختر توی تهران میرن کافه ، بهشون میگن اماکن گیر میده لطفاً حجابتونو رعایت کنین که این صحنه رو خلق میکنن 😂:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10383
-
-<div align="center"><video src="files/post_10383_tasiyanc_10383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10383_tasiyanc_10383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه کافه تو رشت میخواست افتتاح شه که همه چیش صورتی بود ، از وسایلای داخل کافه تا نما و پوشش کارکنانش
-این وسط بعضی از کصمغزا کیر دادن که اینا منظورشون به چیز دیگه‌س از اینکار.
-و اینطوری بخاطر رنگ کافه جلوی افتتاحشو گرفتن و اعلام کردم فلا افتتاح نمیشن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10382
-
-<div align="center"><img src="files/post_10382_tasiyanc_10382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10381
-
-<div align="center"><img src="files/post_10381_tasiyanc_10381.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 علی ضیا (مجری حکومتی) همراه با همسرش در ایتالیا ...
-
-+ امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
-عکسها با کیفیت شدن✅
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10380
-
-<div align="center"><img src="files/post_10380_tasiyanc_10380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو کشور روسیه تعداد زنان 10 میلیون بیشتر از مرد هاست و بسیاری از اونا به‌دنبال شریك زندگی برای ازدواج هستن که پیدا نمیشه .
-بخاطر جنگ با اوکراین حتی مهاجر هم کم شده و امکان ازدواج ندارن.
-
-⚡ @Tasiyanc
 </div>
 

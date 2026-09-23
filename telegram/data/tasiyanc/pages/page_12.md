@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10218
+
+<div align="center"><img src="files/post_10218_tasiyanc_10218.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رزی عضور گروه بلک پینک بعد از معرفی سری ۱۸ اپل پستی با ایفون ۱۸ پرومکس چری در اینستاگرام منتشر کرد که به نظر میاد فتوشاپ شده باشه و حالا کامنت های زیر این پست مورد توجه رسانه قرار گرفته.
+کامنت اکانت سامسونگ :اگه یه گوشی واقعی می‌خواستی می‌تونستی بهمون بگی.
+کامنت اکانت پیکس ارت :دفعه بعد از پیکس‌ارت استفاده کن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10217
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنظرم خود مدیر همراه اول و کارکناش از اینترنت اپراتورای دیگه استفاده میکنن ،مگه میشه داده اپراتور به این بزرگی انقد کیری ضعیف باشه یا همیشه اختلال داشته باشه ، هزینه بسته‌ میگیرن چند صد هزارتومان اینم خدماتی که به مردم میدن از روز وصلی اینترنت این اپراتور فقط ۲ بامداد تا ۹ صبح خوبه که همه خوابن نمیبینن
+</div>
+
+## tasiyanc — post 10214
+
+<div align="center"><video src="files/post_10214_tasiyanc_10214.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10214_tasiyanc_10214.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10213
+
+<div align="center"><img src="files/post_10213_tasiyanc_10213.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت وایرال‌شده مادر فرزند دهه ۶۰
+
+Prompt 🤖🤖
+
+Create an ultra-realistic vintage photograph of an Iranian mother holding her young child, set in Iran during the 1360s Persian calendar (1980s). The mother and child are standing outdoors on a nostalgic Iranian city street during golden hour, with an authentic old Iranian car parked in the background and softly blurred urban scenery.
+
+The mother has naturally curly dark hair, large vintage sunglasses and classic hoop earrings. She is wearing an authentic colorful 1980s Nike-style retro windbreaker with teal green, purple, pink and white color-block patterns. The child is wearing a matching retro colorful tracksuit jacket, creating a beautiful coordinated mother-and-child look.
+
+The mother is holding the child naturally and affectionately, both facing the camera with calm, natural expressions. Warm sunset light creates a soft golden glow around them. Authentic 1980s Persian/Iranian atmosphere, nostalgic family photography, old analog camera aesthetic, subtle film grain, light dust, tiny scratches, faded vintage colors, slightly soft focus, realistic skin texture, natural facial proportions, candid documentary feeling.
+
+Composition: medium portrait, vertical 4:5 framing, mother positioned slightly to the left while holding the child on the right, eye-level camera angle, shallow depth of field, cinematic warm lighting, realistic background bokeh.
+
+Extremely photorealistic, authentic 1980s family photo, analog film photography, Kodak-style vintage tones, highly detailed, natural imperfections, no modern objects, no smartphones, no contemporary cars, no text, no watermark.
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10212
+
+<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
+که تک‌تیرانداز به هیچ کدومشون رحم نکرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10210
+
+<div align="center"><img src="files/post_10210_tasiyanc_10210.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10208
 
@@ -206,116 +299,5 @@
 🔥 til.ac/PJHVQSm
 
 🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
-</div>
-
-## tasiyanc — post 10184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10181
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 10180
-
-<div align="center"><img src="files/post_10180_tasiyanc_10180.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 10179
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی‌سایت
-
-🟠با این سایت میتونید روزانه ۱۵ ویدیو رایگان تولید محتوا و تبلیغاتی با هوش مصنوعی بسازید
-
-برای تست کردنش کافیه وارد سایت زیر بشید
-https://fal.ai/models/minimax/h3-max/text-to-video
-
-🤖 یه گزینه خوب برای ساخت کلیپ‌های کوتاه، تست ایده‌ها ، تولید محتوای تبلیغاتی و ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10177
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 همسر غلامعلی حدادعادل تعداد کشته شدگان حمله ۹ اسفند در بیت رهبری را اعلام کرد: ۷۶ نفر
-
-همسر حدادعادل:
-هفتاد و شش نفر در حمله ۹ اسفند در بیت رهبری شهید شدند شبیه واقعه کربلا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10176
-
-<div align="center"><img src="files/post_10176_tasiyanc_10176.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت وایرال شده جدید کاپلی
-
-عکس خودتون با پارتنرتون بفرستید نتیجه عالیه
-
-Prompt 🤖🤖
-
-Ultra-photorealistic cinematic couple photograph, vertical 4:5. Use TWO uploaded portraits: Photo 1 for the person beside the car, Photo 2 for the person on the balcony. Preserve each person’s exact facial identity, gender, skin tone and defining features; do not blend or swap faces. Both roles work for any gender.
-
-Rainy night in an old Iranian alley. Person 1 wears an oversized white T-shirt, loose black trousers and light sneakers, standing beside the open driver’s door of a white Peugeot 206, one hand in a pocket, the other forearm resting on the roof edge, looking lovingly up at Person 2. Person 2 wears a light-colored top, leans slightly over the second-floor balcony railing and smiles down.
-
-Rear three-quarter view of the car fills the lower-right frame: wet paint and windows, unlit rear lights, black bumper, PEUGEOT badge and partially cropped Iranian plate. Upper-right balcony: weathered wood, geometric railing, hanging pots, dense ivy and warm amber interior light. Aged walls, closed metal shutters and faded Persian shop signs, their lettering indistinct in the darkness; no invented readable phrases.
-
-Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, intimate nostalgic mood. Slightly upward camera angle, natural 35mm perspective, authentic low-light exposure, realistic skin, fabric and droplets, subtle film grain. Keep both identities recognizable within the composition. No plastic skin, excessive HDR, artificial glow, distorted hands, duplicate people or watermark.
-
-
-آموزش استفاده از پرامپت➡️
-
-💋 @Tasiyanc
 </div>
 

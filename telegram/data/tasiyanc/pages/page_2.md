@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت ✔️دو شرط رایگان در روز⭐️ 🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز ⭐مجهز…
+</div>
+
+## tasiyanc — post 10477
+
+<div align="center"><video src="files/post_10477_tasiyanc_10477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10477_tasiyanc_10477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت
+✔️دو شرط رایگان در روز⭐️
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️
+
+🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
+🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
+💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز
+⭐مجهز به سیستم پی اس ووچر👑
+
+😀ورود به سایت:😀g31🅰
+📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+❤️کانال تلگرام 😀
+📎 https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10476
+
+<div align="center"><video src="files/post_10476_tasiyanc_10476.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10476_tasiyanc_10476.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
+
+گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10475
+
+<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10474
+
+<div align="center"><img src="files/post_10474_tasiyanc_10474.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 جدیدترین آمار نسبت دختران به پسران در دنیا منتشر شد، بر اساس این آمار کشورای:
+
+•روسیه🇷🇺
+•لتونی 🇱🇻
+•مولداوی 🇲🇩
+
+•بیشترین دخترای دنیا رو دارن، به حدی در این کشورها نسبت دخترا به پسرا بیشتره، که دخترا حاضرن پول، طلا، ماشین خرج کنن تا یه پسر گیرشون بیاد!
+•اکثر دخترای این کشورا، بور، سفید، چشم رنگی و بسیار زیبا هستن و گاها برای رفع نیازشون، دوس پسر اجاره میکنن
+•همچنین توی ایران ، نسبت پسرا به دخترا بیشتره و کشورای عربی مثل قطر، عربستان و... نزدیک ۷۰ درصد جمعیتشون پسرن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
+</div>
 
 ## tasiyanc — post 10472
 
@@ -222,85 +299,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10458
-
-<div align="center"><video src="files/post_10458_tasiyanc_10458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10458_tasiyanc_10458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی شهری در جمهوری‌چک به جای آب ، شراب از پله ها سرازیر میشود 🍷🇨🇿
-
-هر سال در جشن برداشت انگور Vinobraní na Kuksu در جمهوری چک، یک اتفاق جالب رخ می‌دهد؛ به‌جای آب، شراب از پلکان باروک تاریخی Kuks جاری می‌شود.
-این پلکان که در قرن هجدهم ساخته شده، در طول جشن به‌طور موقت به یک آبشار شراب تبدیل می‌شود. مردم هم برای تماشای این مراسم و چشیدن شراب‌های محلی در آنجا جمع می‌شوند.\nاین رسم بخشی از جشن‌های سنتی برداشت انگور در منطقه بوهمیاست و ترکیبی از فرهنگ شراب، موسیقی و تاریخ معماری Kuks به شمار می‌رود
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10457
-
-<div align="center"><img src="files/post_10457_tasiyanc_10457.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اینجا شهرک امیردشت مازندران 🇮🇷
-
-این شهرک تو سال 1351 افتتاح شد و ویلاهاش معمولا به سبک ایتالیایی و انگلیسی ساخته شده.
-تو شهرک همه امکاناتی تفریحی مثل زمین تنیس، زمین فوتبال و پلاژ اختصاصی وجود داره. اکثر ساکنینش هم دیپلمات‌ها و ...هستن.
-برای ورود به شهرک حتما باید با یکی از مالکینی که ویلا دارن هماهنگ کرده باشی و معمولا روزانه 34 نگهبان تو شهرک گشت میزنن.
-+ این ویلایی هم که تو عکس مشاهده میکنید اسمش کاخ گوتیکه و قیمتش 2 هزار میلیارده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
-</div>
-
-## tasiyanc — post 10455
-
-<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 بلژیک - جمهوری چک
-⏰ ساعت ۱۷:۳۰ 🌎
-
-📲 اسلوونی - صربستان
-😀 ساعت ۲۲:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R30
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10453
-
-<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
-
-مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
 </div>
 

@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10458
+
+<div align="center"><video src="files/post_10458_tasiyanc_10458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10458_tasiyanc_10458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی شهری در جمهوری‌چک به جای آب ، شراب از پله ها سرازیر میشود 🍷🇨🇿
+
+هر سال در جشن برداشت انگور Vinobraní na Kuksu در جمهوری چک، یک اتفاق جالب رخ می‌دهد؛ به‌جای آب، شراب از پلکان باروک تاریخی Kuks جاری می‌شود.
+این پلکان که در قرن هجدهم ساخته شده، در طول جشن به‌طور موقت به یک آبشار شراب تبدیل می‌شود. مردم هم برای تماشای این مراسم و چشیدن شراب‌های محلی در آنجا جمع می‌شوند.\nاین رسم بخشی از جشن‌های سنتی برداشت انگور در منطقه بوهمیاست و ترکیبی از فرهنگ شراب، موسیقی و تاریخ معماری Kuks به شمار می‌رود
+﻿
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10457
+
+<div align="center"><img src="files/post_10457_tasiyanc_10457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اینجا شهرک امیردشت مازندران 🇮🇷
+
+این شهرک تو سال 1351 افتتاح شد و ویلاهاش معمولا به سبک ایتالیایی و انگلیسی ساخته شده.
+تو شهرک همه امکاناتی تفریحی مثل زمین تنیس، زمین فوتبال و پلاژ اختصاصی وجود داره. اکثر ساکنینش هم دیپلمات‌ها و ...هستن.
+برای ورود به شهرک حتما باید با یکی از مالکینی که ویلا دارن هماهنگ کرده باشی و معمولا روزانه 34 نگهبان تو شهرک گشت میزنن.
++ این ویلایی هم که تو عکس مشاهده میکنید اسمش کاخ گوتیکه و قیمتش 2 هزار میلیارده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
+</div>
+
+## tasiyanc — post 10455
+
+<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 بلژیک - جمهوری چک
+⏰ ساعت ۱۷:۳۰ 🌎
+
+📲 اسلوونی - صربستان
+😀 ساعت ۲۲:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R30
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10453
+
+<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
+
+مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
+</div>
 
 ## tasiyanc — post 10449
 
@@ -195,134 +275,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
 آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10432
-
-<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
-😀 
-📆 بورنموث - لیورپول 
-⏰ ساعت ۱۶:۳۰ 
-🌎 
-📲 آث میلان - لچه 
-😀 ساعت ۲۲:۱۵ 
-🌎   
-📺بونوس خوش آمدگویی ورزشی
-🎁 
-🎁 بالاترین حد مبلغ شرط
-🎁 
-🏆واریز جوایز در کمتر از 24 ساعت
-⭐️ 
-👩‍💻پشتیبانی از طریق چت زنده
-⌨️ 
-✈️ https://t.me/BerryBetOfficial…
-</div>
-
-## tasiyanc — post 10431
-
-<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
-😀
-
-
-📆 بورنموث - لیورپول
-
-⏰ ساعت ۱۶:۳۰ 
-🌎
-
-
-📲 آث میلان - لچه
-
-😀 ساعت ۲۲:۱۵ 
-🌎
-
- 
-
-📺بونوس خوش آمدگویی ورزشی
-🎁
-
-🎁 بالاترین حد مبلغ شرط
-🎁
-
-🏆واریز جوایز در کمتر از 24 ساعت
-⭐️
-
-👩‍💻پشتیبانی از طریق چت زنده
-⌨️
-
-
-✈️ https://t.me/BerryBetOfficial
-R29
-
-🔗 ثبت نام و ورود به بخش پیشبینی
-💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10430
-
-<div align="center"><img src="files/post_10430_tasiyanc_10430.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینجا جزایره فارو در دانمارکه
-🇩🇰 که مهاجر می‌پذیره
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10427
-
-<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10426
-
-<div align="center"><video src="files/post_10426_tasiyanc_10426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10426_tasiyanc_10426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴‌ویدیو های وایرال شده نسل جدید سینماهای 4DX توی توکیو ژاپن، حتما ببینید
-
-مرز بین تماشاگر و فیلم رو رسما دارن برمیدارن.. 🇯🇵 📺
 
 
 💋 @Tasiyanc

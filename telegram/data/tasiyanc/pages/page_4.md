@@ -1,8 +1,136 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10432
+
+<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀 
+📆 بورنموث - لیورپول 
+⏰ ساعت ۱۶:۳۰ 
+🌎 
+📲 آث میلان - لچه 
+😀 ساعت ۲۲:۱۵ 
+🌎   
+📺بونوس خوش آمدگویی ورزشی
+🎁 
+🎁 بالاترین حد مبلغ شرط
+🎁 
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️ 
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️ 
+✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10431
+
+<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀
+
+
+📆 بورنموث - لیورپول
+
+⏰ ساعت ۱۶:۳۰ 
+🌎
+
+
+📲 آث میلان - لچه
+
+😀 ساعت ۲۲:۱۵ 
+🌎
+
+ 
+
+📺بونوس خوش آمدگویی ورزشی
+🎁
+
+🎁 بالاترین حد مبلغ شرط
+🎁
+
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️
+
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️
+
+
+✈️ https://t.me/BerryBetOfficial
+R29
+
+🔗 ثبت نام و ورود به بخش پیشبینی
+💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10430
+
+<div align="center"><img src="files/post_10430_tasiyanc_10430.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینجا جزایره فارو در دانمارکه
+🇩🇰 که مهاجر می‌پذیره
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
+</div>
+
+## tasiyanc — post 10427
+
+<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+28🅰
+🛒 ورود به سایت 👇
+✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10426
+
+<div align="center"><video src="files/post_10426_tasiyanc_10426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10426_tasiyanc_10426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴‌ویدیو های وایرال شده نسل جدید سینماهای 4DX توی توکیو ژاپن، حتما ببینید
+
+مرز بین تماشاگر و فیلم رو رسما دارن برمیدارن.. 🇯🇵 📺
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10425
 
@@ -213,147 +341,5 @@ https://AmitisBet.com/
 سریع، آسان و آنی
 👑
 https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10409
-
-<div align="center"><video src="files/post_10409_tasiyanc_10409.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10409_tasiyanc_10409.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 شنبه ۲۸ شهریور؛ انگلستان امروز بدون توقف می‌دود!
-تاتنهام–ویلا ۱۵:۰۰؛ ضربه‌ی اول و شروع فشار.
-اورتون–نیوکاسل ۱۷:۳۰؛ جدالی که وسط روز را سنگین می‌کند.
-برایتون–هال ۱۷:۳۰؛ نبردی که ریتم را دوشاخه می‌کند.
-ایپسویچ–آرسنال ۱۷:۳۰؛ بازی‌ای که همیشه بیشتر از ظاهرش می‌جوشد.
-ناتینگهام–کاونتری ۲۰:۰۰؛ پایانی که روز را کامل می‌بندد.
-پریمیرلیگ امروز پنج ضربه‌ی پشت‌سرهم می‌زند.
-
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 
-3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-
-🌄 آدرس ثابت وبسایت
-
-
-🌐 عضویت کانال تلگرام
-
-
-📱 مشاهده پروفایل اینستاگرام
-
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
-</div>
-
-## tasiyanc — post 10408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
-
-دریافت کانفیگ‌ها 👉
-
-به هیچ عنوان از دست ندید گادن 💥
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10407
-
-<div align="center"><video src="files/post_10407_tasiyanc_10407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10407_tasiyanc_10407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترفندای خفن ChatGPT که دیگه لازم نیست برای هر ادیت یا ایده، پرامپت کیلویی بنویسی!
-
-بعضی وقتا کافیه به جای توضیح طولانی، یه دستور کوتاه و دقیق بزنی
-
-/retouch → روتوش چهره و تمیز کردن تصویر
-/outfit → عوض کردن لباس با رفرنس
-/rimlight → اضافه کردن نور حاشیه‌ای
-/upscale → افزایش کیفیت و جزئیات
-/frontangle → تبدیل زاویه به نمای روبه‌رو
-/threequarterangle → نمای سه‌رخ حرفه‌ای
-/profileangle → ساخت نمای نیم‌رخ
-/removebg → حذف کامل پس‌زمینه
-/recolor → تغییر رنگ لباس یا فضا
-/cinematic → تبدیل عکس به حال‌وهوای سینمایی
-/poster → ساخت پوستر خفن از روی عکس
-/avatar → تبدیل عکس به آواتار حرفه‌ای
-/productshot → تبدیل عکس ساده به شات تبلیغاتی
-/expand → باز کردن کادر و ساخت فضای بیشتر
-/cleanup → حذف آیتم‌های اضافه از تصویر
-
-اینا فقط چندتا از دستورای خفنشه؛
-بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10406
-
-<div align="center"><video src="files/post_10406_tasiyanc_10406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10406_tasiyanc_10406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10405
-
-<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دستور جادویی برای پرامپت حرفه‌ای‌تر!
-
-🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
-
-Act as a … + تخصص
-
-مثلاً:
-Act as a senior UX designer
-Act as an expert copywriter
-Act as a motivational coach
-
-🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10404
-
-<div align="center"><img src="files/post_10404_tasiyanc_10404.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 آنی نایت، پورن استار معروف استرالیایی اومد رکورد جهانی تعداد سکس تو ۲۴ ساعتو جابجا کنه اما بعد از شش ساعت و سکس با ۵۸۳ مرد حالش بد شد و الان بیمارستان بستریه.
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/01 13:44
+📅 آخرین بروزرسانی: 1405/07/01 18:46
 
 ---
+
+## tasiyanc — post 10385
+
+<div align="center"><video src="files/post_10385_tasiyanc_10385.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10385_tasiyanc_10385.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لقمه حرام، شرف را نابود می کند.
+نتیجه اش می شود تبلیغی اینچنین که فقر مردم را به سُخره می گیرد.
+
+تقصیر خودمونه برخی از بلاگرای دوزاریو با دکمه فالو شاخ کردیم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10384
+
+<div align="center"><video src="files/post_10384_tasiyanc_10384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10384_tasiyanc_10384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده چند تا دختر توی تهران میرن کافه ، بهشون میگن اماکن گیر میده لطفاً حجابتونو رعایت کنین که این صحنه رو خلق میکنن 😂:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10383
+
+<div align="center"><video src="files/post_10383_tasiyanc_10383.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10383_tasiyanc_10383.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه کافه تو رشت میخواست افتتاح شه که همه چیش صورتی بود ، از وسایلای داخل کافه تا نما و پوشش کارکنانش
+این وسط بعضی از کصمغزا کیر دادن که اینا منظورشون به چیز دیگه‌س از اینکار.
+و اینطوری بخاطر رنگ کافه جلوی افتتاحشو گرفتن و اعلام کردم فلا افتتاح نمیشن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10382
+
+<div align="center"><img src="files/post_10382_tasiyanc_10382.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10381
+
+<div align="center"><img src="files/post_10381_tasiyanc_10381.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 علی ضیا (مجری حکومتی) همراه با همسرش در ایتالیا ...
+
++ امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
+عکسها با کیفیت شدن✅
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10380
+
+<div align="center"><img src="files/post_10380_tasiyanc_10380.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تو کشور روسیه تعداد زنان 10 میلیون بیشتر از مرد هاست و بسیاری از اونا به‌دنبال شریك زندگی برای ازدواج هستن که پیدا نمیشه .
+بخاطر جنگ با اوکراین حتی مهاجر هم کم شده و امکان ازدواج ندارن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10379
 
@@ -211,89 +285,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 این کانال از نون شب واجب تر✔️
 همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
 https://t.me/+72lhaZgfJ2oxMjdk
-</div>
-
-## tasiyanc — post 10363
-
-<div align="center"><img src="files/post_10363_tasiyanc_10363.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰25
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10362
-
-<div align="center"><video src="files/post_10362_tasiyanc_10362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10362_tasiyanc_10362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی تهران طرف کارگر افغانی استخدام کرده کافش یک ماه هم حقوقشون جلو داده ،
-افغانی مست کرده و کل وسایل مغازه اش رو زده شکونده صد ها میلیون خسارت بهش زده و فرار کرده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10360
-
-<div align="center"><video src="files/post_10360_tasiyanc_10360.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10360_tasiyanc_10360.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 شاید باورش براتون سخت باشه ولی ایشون دختر نیست و ی فمبوی(پسر) ایرانیه که بخاطر زیباییش حسابی وایرال شده :
-
-+پسرا خیلی روش کراش زدن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10358
-
-<div align="center"><img src="files/post_10358_tasiyanc_10358.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طبق تحقیقات دانشمندان «نهنگ آبی»
-دارای بزرگ‌ترین آلت تناسلی در کل قلمرو حیوانات از نظر اندازه است. آلت تناسلی این پستاندار عظیم‌الجثه به ۳ متر می‌رسد با قطر ۳۰ سانتی‌متری.
-نکته جالب توجه «حلزون لیسک موزی» طول آلتش برابر با اندازه کل بدنش (حدود ۱۵ تا ۲۰ سانتی‌متر) هستش
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10357
-
-<div align="center"><video src="files/post_10357_tasiyanc_10357.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10357_tasiyanc_10357.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بازیگر ایرانی معروف ( فیلمای پو*رن) : ایرانی با پرچم اسرائیل بیناموسه!
-ـ بنظرم اینم میخواد بیاد ایران و بره صداسیما بگه توبه کردیم مشتی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10356
-
-<div align="center"><video src="files/post_10356_tasiyanc_10356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10356_tasiyanc_10356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مدرسه پسرونه وقتی یه دختر میاد تو حیاط :
-
-
-💋 @Tasiyanc
 </div>
 
