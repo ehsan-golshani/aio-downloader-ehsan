@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/01 22:48
+📅 آخرین بروزرسانی: 1405/07/02 02:01
 
 ---
+
+## tasiyanc — post 10105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای انفجار سیریک ، میناب
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10103
+
+<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
+بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10101
 
@@ -229,48 +256,5 @@ Tasiyan | تاسیان pinned a photo
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دلار 232 هزار تومن
-🟠 سکه 240 میلیون تومن
-🟠 طلا 24میلیون تومن
-🟠 نفت 100 دلار
-
-وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10082
-
-<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
-
-خراب شه سقفی که زن خونه‌اش امثال توء …
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/01 22:48
+📅 آخرین بروزرسانی: 1405/07/02 02:01
 
 ---
+
+## tasiyanc — post 10345
+
+<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
+
+سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
+ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10344
+
+<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
+
+Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
+Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10343
+
+<div align="center"><video src="files/post_10343_tasiyanc_10343.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10343_tasiyanc_10343.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده
+✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی
+⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10342
 
@@ -264,49 +312,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10323
-
-<div align="center"><video src="files/post_10323_tasiyanc_10323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10323_tasiyanc_10323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز هواپیمای مشهد به کرمانشاه نقص فنی پیدا می‌کنه تو آسمون و نزدیک بود سقوط کنه .
-
-یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10321
-
-<div align="center"><video src="files/post_10321_tasiyanc_10321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10321_tasiyanc_10321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده مسابقات جهانی اسپنک زنی زنان که حسابی این مسابقات طرفدار پیدا کرده :
-
-از دیدگاه افراد جقی این مسابقات جذابیت بیشتری نسبت به فوتبال دارد.
-
-💧 مشاهده ویدیو کامل مسابقات
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10320
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 

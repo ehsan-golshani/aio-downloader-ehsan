@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/01 22:48
+📅 آخرین بروزرسانی: 1405/07/02 02:01
 
 ---
+
+## tasiyanc — post 10250
+
+<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون 
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10249
+
+<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10247
+
+<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
+
+اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
+
+« اطلاع رسانی کنین به آشناهاتون »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10246
 
@@ -300,33 +358,6 @@
 🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
 
 شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Mix_Safe @miix_viip
-هر هفته قرعه کشی داریم 😏👆👆
-
-فرم های شرطبندی با آنالیز های حرفه ای📊
-#VIP #رایگان 🛡️
-</div>
-
-## tasiyanc — post 10224
-
-## tasiyanc — post 10223
-
-<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
-
-آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
-این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
-و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
 💋 @Tasiyanc
 </div>
 

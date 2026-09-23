@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/01 22:48
+📅 آخرین بروزرسانی: 1405/07/02 02:01
 
 ---
+
+## tasiyanc — post 10138
+
+<div align="center"><video src="files/post_10138_tasiyanc_10138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10138_tasiyanc_10138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨در این ویدیو موتور یه پیک آتیش گرفته نکته جالب این ویدیو اینه که یه نفر داره شماره کارت پیک رو بلند میخونه و مردم عزیز دارن همونجا به حسابش پول میزنن تا بتونه یه موتور برا خودش بگیره « درود به غیرت و شرف ایرانی »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10137
+
+<div align="center"><img src="files/post_10137_tasiyanc_10137.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧩 ‏ تعدادی DNS پیشنهادی برای گیم‌های مختلف آنلاین مخصوص کاهش پینگ و لگ که هیچ جا نمیتونید پیدا کنید
+
+🔴 اگر در اجرای بازی‌ها مشکل پینگ و اتصال دارید میتوانید با این DNS ها بازی خودتون بهبود ببخشید
+
+📎 برای لیست DNS ها کلیک کنید
+
+نکته : در PS4 و PS5 بخش تنظیمات شبکه
+در PC بخش DNS
+
+دانلود Dns Changer 🕹
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10136
+
+<div align="center"><img src="files/post_10136_tasiyanc_10136.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه مرده تو تهران زنشو ۴ قلو حامله کرده و حالا ۶ تا بچه داره برگشته گفته با اینکه تو یه خونه چهل متری زندگی می‌کنیم اما شادترین پدر دنیا هستم
+
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 10131
 
@@ -330,32 +372,5 @@ sa18
 به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای انفجار سیریک ، میناب
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10103
-
-<div align="center"><img src="files/post_10103_tasiyanc_10103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مادر روانی تو آمریکا پسر 11 ماهشو کشته ...
-بهش گفتن جیندا این چکاری بود کردی، گفته نمی‌خواستم حضانت پسرم به پدرش برسه چون پیش اون در خطر بود
-
-💋 @Tasiyanc
 </div>
 

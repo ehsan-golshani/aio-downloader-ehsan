@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/01 22:48
+📅 آخرین بروزرسانی: 1405/07/02 02:01
 
 ---
+
+## tasiyanc — post 10413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10412
+
+<div align="center"><video src="files/post_10412_tasiyanc_10412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10412_tasiyanc_10412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁بعضی موقع ها، سخت‌ترین رقابت دنیا…
+همونیه که توی ذهن خودت اتفاق می‌افته. 🧠💡⚡️
+
+یکی می‌گه «بی‌خیال، بخواب»
+یکی می‌گه «یه کم هیجان لازم داری» 🚬
+
+کدوم شخصیتِ ذهنت برنده می‌شه؟
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+📱🤖 دانلود مستقیم اپلیکیشن اندروید
+
+😀 آدرس ثابت وبسایت
+
+✈️ عضویت کانال تلگرام
+
+📷مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
+۱۸+ | مسئولانه بازی کن
+</div>
+
+## tasiyanc — post 10411
+
+<div align="center"><video src="files/post_10411_tasiyanc_10411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10411_tasiyanc_10411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 تاثیر قهوه بر بدن
+
+تاثیر قهوه بر بدن به ژنتیک‌مون بستگی داره. بعضی از افراد ژن‌هایی دارن که باعث می‌شه سریع‌تر کافئین رو متابولیزه کنن و انرژی زیادی ازش بگیرن…
+
+در حالی که بعضی‌ها به دلیل داشتن ژن‌های خاص، کافئین رو دیرتر تجزیه می‌ کنن و ممکنه دچار بی‌خوابی یا حتی اضطراب بشن.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10410
 
@@ -266,40 +324,4 @@ Act as a motivational coach
 ## tasiyanc — post 10393
 
 ## tasiyanc — post 10392
-
-## tasiyanc — post 10390
-
-<div align="center"><video src="files/post_10390_tasiyanc_10390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10390_tasiyanc_10390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴استایل بانو سیدنی سویینی دیشب در اکران سریالش :
-
-حالا که به چشم خریدار نگاه میکنم میبینم سیدنی سویینی خیلی بدم نیست و من داشتم کفران نعمت میکردم 🤣
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10389
-
-<div align="center"><video src="files/post_10389_tasiyanc_10389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10389_tasiyanc_10389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این روزا سر مرد ایرانی تو دنیا دعواس!
-
-صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
-مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر✔️
-همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
-https://t.me/+72lhaZgfJ2oxMjdk
-</div>
 
