@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 10093
+
+<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاوی صحنه شاید دلخراش
+
+🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10092
+
+<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
+
+تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
+بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
+دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
+مهریه کم میگیریم، ذلت نمی پذیریم.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شروط جمهوری اسلامی برای پایان جنگ توسط سخنگوی سپاه اعلام شد:
+
+۱-ضمن توقف کامل جنگ،
+۲- از تهدید مجدد دست بکشد،
+۳- ارتش اسرائیل از لبنان عقب‌نشینی کند،
+۴- محاصرهٔ یمن پایان یابد،
+۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
+۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10090
 
@@ -259,34 +304,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
-نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
-آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
 
 💋 @Tasiyanc
 </div>

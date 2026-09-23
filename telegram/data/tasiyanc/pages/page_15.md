@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 10116
+
+<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
+
+
+🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
+
+
+•چرخاندن مدل بدن از زوایای مختلف
+
+•بزرگ‌نمایی و بررسی جزئیات
+
+•مشاهده جداگانه استخوان‌ها و اندام‌ها
+
+•حالت Explode برای تفکیک لایه‌های مختلف بدن
+
+•نمایش نام بخش‌های مختلف آناتومی
+﻿
+🌐 یه جورایی Google Maps، ولی برای بدن انسان!
+
+🔗https://human-atlas-seven.vercel.app
+
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10114
+
+<div align="center"><img src="files/post_10114_tasiyanc_10114.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاااااب لیگ قهرمانان اروپا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🆕
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
 
 ## tasiyanc — post 10113
 
@@ -213,50 +275,5 @@ sa18
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10093
-
-<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاوی صحنه شاید دلخراش
-
-🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10092
-
-<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
-
-تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
-بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
-دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
-مهریه کم میگیریم، ذلت نمی پذیریم.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10091
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 شروط جمهوری اسلامی برای پایان جنگ توسط سخنگوی سپاه اعلام شد:
-
-۱-ضمن توقف کامل جنگ،
-۲- از تهدید مجدد دست بکشد،
-۳- ارتش اسرائیل از لبنان عقب‌نشینی کند،
-۴- محاصرهٔ یمن پایان یابد،
-۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
-۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
-
-🩸 @Tasiyanc
 </div>
 

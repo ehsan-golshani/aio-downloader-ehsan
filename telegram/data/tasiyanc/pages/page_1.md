@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 10492
+
+<div align="center"><img src="files/post_10492_tasiyanc_10492.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨«فاطمه سادات طباطبایی» اهل بم استان کرمان؛ که ۳ سال از شوهرش‌ که توی تصادف قطع نخاع شده بود نگهداری کرده بود؛ در نهایت توسط شوهرش به قتل رسید.
+
+فاطمه ۷ سال بود ازدواج کرده بود ‌و از همون اول با شوهرش اختلاف داشت تا یهو ۴ سال بعد از ازدواج شوهرش تصادف میکنه و قطع نخاع میشه ولی فاطمه بازم میمونه و ازش نگهداری میکنه ولی مرده به فاطمه مشکوک میشه و دوباره دعواشون میشه و این بار فاطمه میره خونه پدرش و درخواست طلاق میده. مرده احساس ندامت میکنه و هر طور شده راضی می‌کنه تا برگرده فاطمه، ولی وقتی فاطمه برمیگرده شب که میخوابه؛ مرده باهمکاری یکی از دوستاش در ۱۵ شهریور تو خواب فاطمه رو خفه میکنن و بعد در ۱۶ شهریور با کمک پدر و مادرش میندازنش تو چاه ۷۰ متری.
+درس زندگی : به هر مادر*نده ای نباید محبت کرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10491
+
+<div align="center"><video src="files/post_10491_tasiyanc_10491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10491_tasiyanc_10491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اولین روز مدرسه در ایران :
+
+لباساتونو اتو کردید؟🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10490
+
+<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به زیباترین فصل سال خوش اومدید. 🍁🧡
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10489
 
@@ -222,57 +260,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
-</div>
-
-## tasiyanc — post 10472
-
-<div align="center"><img src="files/post_10472_tasiyanc_10472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 فرانسه - رومانی
-⏰ ساعت ۱۶:۳۰ 🌎
-
-📲 آلمان - لهستان
-😀 ساعت ۱۹:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R31
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10471
-
-<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
-
-این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
-
-مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
-
-تست شده روی تمام نت‌ها
-
-👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
-
-
-💋 @Tasiyanc
 </div>
 

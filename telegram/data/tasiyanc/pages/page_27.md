@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 9825
+
+<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ادعای ترامپ:
+
+حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺هلال احمر : شمار شهدای حمله به مراسم عروسی به ۴ شهید و ۵۰ زخمی رسیده است ، یک کودک ۴ ساله نیز بین فوتی ها قرار دارد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی: هر چه سریعتر اینترنت رو قطع کنید
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9821
 
@@ -250,47 +283,5 @@ sg10
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9795
-
-<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
-نظر شما چیه طبیعیه یا غیرطبیعی؟
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9794
-
-<div align="center"><img src="files/post_9794_tasiyanc_9794.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پریروز توی کرمانشاه یه پدر وقتی دخترش خواب بود با شلیک گلوله به سر دخترش اونو کشت
-
-+ هانا فقط 16 سال سن داشت :)
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
 </div>
 

@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 9546
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇮🇳 @Tasiyanc.ovpn
+</div>
+
+## tasiyanc — post 9545
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+⭕️ در صورت ارور چند بار بزنید
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9544
+
+<div align="center"><video src="files/post_9544_tasiyanc_9544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9544_tasiyanc_9544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواننده عربستانی الاصل جشن ۲۰۰ کایی گرفت ! ۹۹٪ فالورای این خواننده دندان کی*ی عربستانی ایرانی ها می‌باشند .
+
+تو کشوری که دنیا جهان‌بخت ۱۰ میلیون فالور داره اینم باید ۱ میلیون فالور بگیره ، ایران درست نمیشه.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9543
 
@@ -254,86 +295,5 @@ sr1
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9524
-
-<div align="center"><img src="files/post_9524_tasiyanc_9524.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-(دارای محدودیت حجمی ⭕️ )
-
-اتصال امن برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-
-تست شده تمام نت‌ها 
-🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
 </div>
 

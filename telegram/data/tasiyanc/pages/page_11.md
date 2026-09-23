@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 10238
+
+<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
+
+جرمش چی بوده؟
+چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10236
+
+<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
+
+👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
+</div>
 
 ## tasiyanc — post 10234
 
@@ -222,26 +257,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
-مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
-</div>
-
-## tasiyanc — post 10206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
 </div>
 

@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/01 08:45
+📅 آخرین بروزرسانی: 1405/07/01 13:44
 
 ---
+
+## tasiyanc — post 9567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
+
+🚨 آموزش فعال سازی IPv6 
+⛓
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 9565
+
+<div align="center"><img src="files/post_9565_tasiyanc_9565.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو:
+
+جمهوری اسلامی تلاش کرد تا یکی از پسران من (یائیر نتانیاهو) را ترور کند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9564
 
@@ -283,47 +333,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇳 @Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 9545
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9544
-
-<div align="center"><video src="files/post_9544_tasiyanc_9544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9544_tasiyanc_9544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خواننده عربستانی الاصل جشن ۲۰۰ کایی گرفت ! ۹۹٪ فالورای این خواننده دندان کی*ی عربستانی ایرانی ها می‌باشند .
-
-تو کشوری که دنیا جهان‌بخت ۱۰ میلیون فالور داره اینم باید ۱ میلیون فالور بگیره ، ایران درست نمیشه.
 
 🩸 @Tasiyanc
 </div>
