@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/03 00:07
+📅 آخرین بروزرسانی: 1405/07/03 03:06
 
 ---
+
+## tasiyanc — post 10194
+
+<div align="center"><video src="files/post_10194_tasiyanc_10194.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10194_tasiyanc_10194.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مردشور این طرز سوپرایز کردنتو ببرن بچه مردم مرد زنده شد تو همین چند دقیقه کاش یکم از عقلتون استفاده کنین
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10193
+
+<div align="center"><video src="files/post_10193_tasiyanc_10193.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10193_tasiyanc_10193.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10190
 
@@ -336,41 +368,5 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 ‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳🇹🇷
 
             🚨 امنیت مالی در 1xbet🚨
-</div>
-
-## tasiyanc — post 10165
-
-<div align="center"><video src="files/post_10165_tasiyanc_10165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10165_tasiyanc_10165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨اولین ویدیو منتشر شده از آزار و اذیت دختران ایران‌زمین توسط بیناموس‌های عراقی در سمنان که ساعتی بعد منجر به درگیری شدید بین جوانان وطن پرست و عراقی‌های حرامزاده در این شهر شد
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10164
-
-<div align="center"><img src="files/post_10164_tasiyanc_10164.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم نامحدود OpenVpn 📶
-
-مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
-
-جهت دریافت کانفیگ ها کلیک کنید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛ ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار! تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی . 
-💋 @Tasiyanc
 </div>
 

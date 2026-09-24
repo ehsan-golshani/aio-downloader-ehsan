@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/03 00:07
+📅 آخرین بروزرسانی: 1405/07/03 03:06
 
 ---
+
+## tasiyanc — post 10165
+
+<div align="center"><video src="files/post_10165_tasiyanc_10165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10165_tasiyanc_10165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اولین ویدیو منتشر شده از آزار و اذیت دختران ایران‌زمین توسط بیناموس‌های عراقی در سمنان که ساعتی بعد منجر به درگیری شدید بین جوانان وطن پرست و عراقی‌های حرامزاده در این شهر شد
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10164
+
+<div align="center"><img src="files/post_10164_tasiyanc_10164.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم نامحدود OpenVpn 📶
+
+مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
+
+جهت دریافت کانفیگ ها کلیک کنید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛ ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار! تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی . 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10161
 
@@ -222,40 +258,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند. پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد. 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10140
-
-<div align="center"><video src="files/post_10140_tasiyanc_10140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10140_tasiyanc_10140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند.
-پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨/ترامپ به نیشن:
-اتش بس با این رژیم برای من تمام شده انها آشغال و تفاله هستند پایان رژیم ایران نزدیک است.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10138
-
-<div align="center"><video src="files/post_10138_tasiyanc_10138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10138_tasiyanc_10138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨در این ویدیو موتور یه پیک آتیش گرفته نکته جالب این ویدیو اینه که یه نفر داره شماره کارت پیک رو بلند میخونه و مردم عزیز دارن همونجا به حسابش پول میزنن تا بتونه یه موتور برا خودش بگیره « درود به غیرت و شرف ایرانی »
-
-💋 @Tasiyanc
 </div>
 

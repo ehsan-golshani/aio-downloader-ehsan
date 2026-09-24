@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/03 00:07
+📅 آخرین بروزرسانی: 1405/07/03 03:06
 
 ---
+
+## tasiyanc — post 10484
+
+<div align="center"><img src="files/post_10484_tasiyanc_10484.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به تازگی بعضی پسرا قبل اینکه به یه قرار و جلسه مهم کاری برن، ناخن‌هاشون رو فرنچ میکنن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خواستگاری به سبک اماراتی‌ها؛
+دوماد رفته برا همه اعضای خانواده عروس، حتی برا خدمتکارشون هم آیفون ۱۸ خریده!!!
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10482
+
+<div align="center"><video src="files/post_10482_tasiyanc_10482.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10482_tasiyanc_10482.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨همزمان با تهدید‌های ترامپ در سازمان ملل علیه جمهوری اسلامی؛ این ویدیو از آزمایش بمب اتمی در روبیکا و شبکه های مجازی داخلی وایرال شده
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10481
 
@@ -242,49 +276,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10464
-
-<div align="center"><video src="files/post_10464_tasiyanc_10464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10464_tasiyanc_10464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴معجزه‌ای به نام نورالینک
-
-بیماری که نمیتونست حرف بزنه، با تراشه مغزی نورالینک (شرکت ایلان ماسک) دوباره صحبت کرد!
-
-این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
-این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10463
-
-<div align="center"><img src="files/post_10463_tasiyanc_10463.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما زیبایی دریاچه مرداب سراوان - رشت 🇮🇷 را می‌بینید تکه ای از بهشت!
-
-لذت قایقرانی توی دریاچه سراوان رو نمیشه با قایق سواری توی دریاچه های دیگه مقایسه کرد!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10462
-
-<div align="center"><video src="files/post_10462_tasiyanc_10462.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10462_tasiyanc_10462.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣
-🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
-🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 
-‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
 </div>
 

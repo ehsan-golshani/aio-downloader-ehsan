@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/03 00:07
+📅 آخرین بروزرسانی: 1405/07/03 03:06
 
 ---
+
+## tasiyanc — post 10140
+
+<div align="center"><video src="files/post_10140_tasiyanc_10140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10140_tasiyanc_10140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند.
+پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨/ترامپ به نیشن:
+اتش بس با این رژیم برای من تمام شده انها آشغال و تفاله هستند پایان رژیم ایران نزدیک است.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10138
+
+<div align="center"><video src="files/post_10138_tasiyanc_10138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10138_tasiyanc_10138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨در این ویدیو موتور یه پیک آتیش گرفته نکته جالب این ویدیو اینه که یه نفر داره شماره کارت پیک رو بلند میخونه و مردم عزیز دارن همونجا به حسابش پول میزنن تا بتونه یه موتور برا خودش بگیره « درود به غیرت و شرف ایرانی »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10137
 
@@ -335,38 +370,5 @@ sa18
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 10107
-
-<div align="center"><video src="files/post_10107_tasiyanc_10107.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10107_tasiyanc_10107.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست ترامپ در تروث‌سوشال:
-
-این رژیم به‌زودی می‌فهمد که هیچ‌کس نباید قدرت آمریکا را به چالش بکشد.
-ای مردم سربلند ایران، ساعت آزادی شما نزدیک است. وقتی کار ما تمام شد، حکومت خود را به دست بگیرید. این حکومت از آنِ شما خواهد بود.
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو
-به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
-
-💋 @Tasiyanc
 </div>
 
