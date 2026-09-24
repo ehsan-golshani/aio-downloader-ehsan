@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/02 09:45
+📅 آخرین بروزرسانی: 1405/07/02 15:35
 
 ---
+
+## tasiyanc — post 10400
+
+<div align="center"><img src="files/post_10400_tasiyanc_10400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید🔥
+
+🥇سایت شماره یک اروپا حالا در ایران🥇
+😀😃😄😁
+
+🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز سوم💖75% بونوس هدیه
+🎁واریز چهارم💖50% بونوس هدیه
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+🤔http://til.ac/z5jcpGT
+
+💎کانال اطلاع رسانی ایران:g27🅰
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10399
+
+<div align="center"><img src="files/post_10399_tasiyanc_10399.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز ـ رژه بانوان جانفدا در تهران
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10397
+
+<div align="center"><img src="files/post_10397_tasiyanc_10397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10396
 
@@ -210,48 +254,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 آژانس‌های امنیتی انگلیس🏴󠁧󠁢󠁥󠁮󠁧󠁿 (NCSC)، آمریکا 🇺🇸 (FBI) و هلند 🇳🇱 با هم هشدار دادن که این کار برای سرکوب منتقدان رژیمه و از سال 2025 (یا حتی زودتر) داره انجام میشه، مخصوصا روی دستگاه‌های ویندوزی.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-جهت دریافت کلیک کنید ☝
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10374
-
-<div align="center"><img src="files/post_10374_tasiyanc_10374.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بهداد اقبالی ( ایرانی الاصل ) که مالک شرکت Clearlake Capital است با خرید سهام تادبولی رسما 100 درصد مالکیت باشگاه چلسی رو در اختیار گرفت
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10372
-
-<div align="center"><video src="files/post_10372_tasiyanc_10372.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10372_tasiyanc_10372.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-⭕️ حتما برنامه Npv Tunnel رو آپدیت کنید
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 
-📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 

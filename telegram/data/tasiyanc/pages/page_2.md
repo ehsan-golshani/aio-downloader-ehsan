@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/02 09:45
+📅 آخرین بروزرسانی: 1405/07/02 15:35
 
 ---
+
+## tasiyanc — post 10489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بعد از گرمای شدید هفته اول مهر ماه، اواخر هفته دوم سرمای شدید داریم و به عنوان مثال هوای مشهد بیشتر از ۲۰ درجه سرد میشه و سیستم‌های گرمایشی و بخاری‌ ها باید روشن بشه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - اسلوونی ⏰ ساعت ۱۷:۳۰ 🌎 📲 ایتالیا - فنلاند 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10487
+
+<div align="center"><img src="files/post_10487_tasiyanc_10487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 بلژیک - اسلوونی
+⏰ ساعت ۱۷:۳۰ 🌎
+
+📲 ایتالیا - فنلاند
+😀 ساعت ۲۲:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R1
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10486
 
@@ -235,50 +274,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10469
-
-<div align="center"><video src="files/post_10469_tasiyanc_10469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10469_tasiyanc_10469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گوریل 🦍 بعد دعوا با جفتش رفته یه گوشه نشسته عمیقا بفکر فرو رفته :
-
-«کیوماسا» اسم این گوریل نر که تو یه باغ‌وحش در ژاپن 🇯🇵 زندگی می‌کنه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 30🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10467
-
-<div align="center"><img src="files/post_10467_tasiyanc_10467.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-30🅰
-🛒 ورود به سایت 👇
-✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

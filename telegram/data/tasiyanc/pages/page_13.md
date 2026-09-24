@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/02 09:45
+📅 آخرین بروزرسانی: 1405/07/02 15:35
 
 ---
+
+## tasiyanc — post 10205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان
+
+منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان این درگیری‌ها دست‌کم سه دستگاه خودروی نظامی و زرهی نیروهای امنیتی هدف قرار گرفته‌اند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10204
+
+<div align="center"><img src="files/post_10204_tasiyanc_10204.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیشب تو تهران ی عروس و داماد بعد از مراسم داشتن از تالار میرفتن سمت خونشون تا زندگیشونو شروع کنن که تو اتوبان آزادگان ماشینشون چپ میشه، عروس درجا جونشو از دست میده و داماد هم به شدت زخمی شده و الان بستریه.
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10202
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزیر نیرو : ممکن است بارش‌های سهمگین داشته باشیم، همه آماده باشند؛ نباید غافلگیر شویم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10201
 
@@ -312,52 +342,6 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
 فکر کنم دستشم تمیز باشه
 بعد به دست مشتری میرسونه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10171
-
-<div align="center"><video src="files/post_10171_tasiyanc_10171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10171_tasiyanc_10171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه پسره جو گیر که 369 سکه ، 1382 رز سفید ، طلافروشی و سهام کافه خودشو برای مهریه به نام دختر زده بود
-
-یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10170
-
-<div align="center"><img src="files/post_10170_tasiyanc_10170.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت پرتره ادیتوریال سینمایی و سیاه-سفید
-
-Prompt 🤖🤖
-
-« Man 😊 »
-
-A cinematic black-and-white editorial portrait of a young man sitting indoors against a textured wall, wearing an oversized dark wool coat and dark tailored trousers. He has short dark hair styled with natural texture and soft strands framing his face. He is sitting in a relaxed, confident pose with one knee raised, his right hand gently resting near his lips and chin, showing subtle hands structure. Calm, resolute, slightly melancholic facial expression, strong jawline, defined eyebrows, sharp facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and his face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
-
-« Woman 😊 »
-
-A cinematic black-and-white editorial portrait of a young woman sitting indoors against a textured wall, wearing an oversized dark wool coat and dark pants. She has long dark hair styled in a loose, slightly messy low bun with soft strands framing her face. She is sitting in a relaxed, elegant pose with one knee raised, her right hand gently resting near her lips and chin. Calm, confident, slightly melancholic facial expression, defined eyebrows, soft full lips, subtle natural makeup, delicate facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and her face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
-
-آموزش استفاده از پرامپت و ساخت تصویر➡️
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10169
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون بریزه ؛ روستایی در چین که همه فارسی صحبت میکنند و نامش پارسیان هست
-
-
-روستای «پارسیان» در منطقه «یانگژو» در استان «جیانگسو» هست ویدیو توسط بلاگر چینی بنام فلافل توضیح داده است
 
 💋 @Tasiyanc
 </div>

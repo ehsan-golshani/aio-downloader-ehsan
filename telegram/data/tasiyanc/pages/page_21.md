@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/02 09:45
+📅 آخرین بروزرسانی: 1405/07/02 15:35
 
 ---
+
+## tasiyanc — post 9986
+
+<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
+
+سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9984
+
+<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۶ کانفیگ پرمیوم سرعتی OpenVpn 
+📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
+
+
+👈 دریافت کانفیگ ها 
+➡️
+
+
+لوکیشن : 
+🇩🇰
+🇪🇸
+🇫🇮
+🇮🇪
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9983
 
@@ -268,31 +319,5 @@ til.ac/0L4vyJf
 + به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9961
-
-<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت برگ ریزان گوشی ۱۴ شهریور
-
-یه موبایل میان رده هم شد آرزو!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
 </div>
 
