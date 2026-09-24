@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/02 15:35
+📅 آخرین بروزرسانی: 1405/07/02 20:51
 
 ---
+
+## tasiyanc — post 10498
+
+<div align="center"><video src="files/post_10498_tasiyanc_10498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10498_tasiyanc_10498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت
+
+✔️دو شرط رایگان در روز
+⭐️
+
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
+⭐️
+
+🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
+🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
+
+💱
+0️⃣
+1️⃣
+🔣شارژ بیشتر برای شارژ با روش رمزارز
+
+⭐مجهز به سیستم پی اس ووچر
+👑
+
+
+😀ورود به سایت:
+😀g1🅰
+
+📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+❤️کانال تلگرام 
+😀
+
+📎 https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10494
+
+<div align="center"><video src="files/post_10494_tasiyanc_10494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10494_tasiyanc_10494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴به تازگی فشن شو دیزل توی ایتالیا برگزار شده که پشمای همه فرفری شده!
+
+تماشاگرا اون وسط خودارضایی میکردن، تریسام میزدن، لز میکردن، میک لاو میکردن که در نهایت باعث شد نصف سالن ارضا بشن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10493
+
+<div align="center"><video src="files/post_10493_tasiyanc_10493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10493_tasiyanc_10493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توی یکی از کشورای عربی این خانم جن‌زده شده بود که برای خارج کردن جنه این این مرده رو میارن و اونم با یه روش ابداعی این شاهکار رو پیاده می‌کنه تا پشمای ملت فر بخوره:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10492
+
+<div align="center"><img src="files/post_10492_tasiyanc_10492.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨«فاطمه سادات طباطبایی» اهل بم استان کرمان؛ که ۳ سال از شوهرش‌ که توی تصادف قطع نخاع شده بود نگهداری کرده بود؛ در نهایت توسط شوهرش به قتل رسید.
+
+فاطمه ۷ سال بود ازدواج کرده بود ‌و از همون اول با شوهرش اختلاف داشت تا یهو ۴ سال بعد از ازدواج شوهرش تصادف میکنه و قطع نخاع میشه ولی فاطمه بازم میمونه و ازش نگهداری میکنه ولی مرده به فاطمه مشکوک میشه و دوباره دعواشون میشه و این بار فاطمه میره خونه پدرش و درخواست طلاق میده. مرده احساس ندامت میکنه و هر طور شده راضی می‌کنه تا برگرده فاطمه، ولی وقتی فاطمه برمیگرده شب که میخوابه؛ مرده باهمکاری یکی از دوستاش در ۱۵ شهریور تو خواب فاطمه رو خفه میکنن و بعد در ۱۶ شهریور با کمک پدر و مادرش میندازنش تو چاه ۷۰ متری.
+درس زندگی : به هر مادر*نده ای نباید محبت کرد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10491
+
+<div align="center"><video src="files/post_10491_tasiyanc_10491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10491_tasiyanc_10491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اولین روز مدرسه در ایران :
+
+لباساتونو اتو کردید؟🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10490
+
+<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به زیباترین فصل سال خوش اومدید. 🍁🧡
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10489
 
@@ -185,94 +289,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
 
 گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10475
-
-<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10474
-
-<div align="center"><img src="files/post_10474_tasiyanc_10474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔔 جدیدترین آمار نسبت دختران به پسران در دنیا منتشر شد، بر اساس این آمار کشورای:
-
-•روسیه🇷🇺
-•لتونی 🇱🇻
-•مولداوی 🇲🇩
-
-•بیشترین دخترای دنیا رو دارن، به حدی در این کشورها نسبت دخترا به پسرا بیشتره، که دخترا حاضرن پول، طلا، ماشین خرج کنن تا یه پسر گیرشون بیاد!
-•اکثر دخترای این کشورا، بور، سفید، چشم رنگی و بسیار زیبا هستن و گاها برای رفع نیازشون، دوس پسر اجاره میکنن
-•همچنین توی ایران ، نسبت پسرا به دخترا بیشتره و کشورای عربی مثل قطر، عربستان و... نزدیک ۷۰ درصد جمعیتشون پسرن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
-</div>
-
-## tasiyanc — post 10472
-
-<div align="center"><img src="files/post_10472_tasiyanc_10472.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 فرانسه - رومانی
-⏰ ساعت ۱۶:۳۰ 🌎
-
-📲 آلمان - لهستان
-😀 ساعت ۱۹:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R31
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10471
-
-<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
-
-این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
-
-مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
-
-تست شده روی تمام نت‌ها
-
-👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
-
-
 💋 @Tasiyanc
 </div>
 

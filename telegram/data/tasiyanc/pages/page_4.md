@@ -1,8 +1,103 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/02 15:35
+📅 آخرین بروزرسانی: 1405/07/02 20:51
 
 ---
+
+## tasiyanc — post 10455
+
+<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 بلژیک - جمهوری چک
+⏰ ساعت ۱۷:۳۰ 🌎
+
+📲 اسلوونی - صربستان
+😀 ساعت ۲۲:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R30
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10453
+
+<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
+
+مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
+</div>
+
+## tasiyanc — post 10449
+
+<div align="center"><img src="files/post_10449_tasiyanc_10449.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+29🅰
+🛒 ورود به سایت 👇
+✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10448
+
+<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
+این کشور اولین کشور درجهانه که اینکارو میکنه.
+یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10447
+
+<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10446
 
@@ -228,91 +323,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 🔴اینجا جزایره فارو در دانمارکه
 🇩🇰 که مهاجر می‌پذیره
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10427
-
-<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10426
-
-<div align="center"><video src="files/post_10426_tasiyanc_10426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10426_tasiyanc_10426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴‌ویدیو های وایرال شده نسل جدید سینماهای 4DX توی توکیو ژاپن، حتما ببینید
-
-مرز بین تماشاگر و فیلم رو رسما دارن برمیدارن.. 🇯🇵 📺
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10425
-
-<div align="center"><video src="files/post_10425_tasiyanc_10425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10425_tasiyanc_10425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تو فضای مجازی خوب دارن لاشی بازی و بی غیرتی رو عادی سازی میکنن
-
-دختره تو ماشین دوس‌پسرش نشسته داره به دوس‌پسر دومش پیام میده پسره هم هار هار مثل خر می‌خنده
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10423
-
-<div align="center"><img src="files/post_10423_tasiyanc_10423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توییت اکانت رسمی تلگرام در توییتر
-
-خطاب به ایلان ماسک نوشته ثروت واقعی به پول و... نیست به ممه های گنده‌س
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10422
-
-<div align="center"><img src="files/post_10422_tasiyanc_10422.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترفند
-
-اگه ویدیویی تو اکسپلور اینستاگرامت مدام تکرار میشه و دوستش نداری، روی سه‌نقطه یا سه‌خط پست بزن و Not interested رو انتخاب کن.
-
-این کار به الگوریتم می‌فهمونه محتوای مشابه رو کمتر بهت پیشنهاد بده.
 
 💋 @Tasiyanc
 </div>
