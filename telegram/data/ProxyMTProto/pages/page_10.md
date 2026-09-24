@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/02 02:00
+📅 آخرین بروزرسانی: 1405/07/02 09:43
 
 ---
+
+## ProxyMTProto — post 51279
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s5.assetflux.org
+Port: 443
+Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51278
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51277
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media9.happtg.org
+Port: 443
+Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51276
 
@@ -155,31 +182,5 @@ Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relay.surfvpn.app
-Port: 443
-Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51258
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌐 Have a Telegram Web Proxy and want to share it? Submit via @SProxyRobot and get featured on @ProxyMTProto 🚀
-
-🌐 Есть Telegram Web Proxy? Добавьте его через @SProxyRobot и разместите в @ProxyMTProto 🚀
 </div>
 

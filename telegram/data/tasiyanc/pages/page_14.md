@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/02 02:01
+📅 آخرین بروزرسانی: 1405/07/02 09:45
 
 ---
+
+## tasiyanc — post 10168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 اپلیشیکن بدون فیلتر1xbet 3️⃣2️⃣1️⃣
+🤝 اسپانسر لالیگا🇪🇸
+🤝 اسپانسر سری آ🇮🇹
+🤝اسپانسر باشگاه یوونتوس🇮🇹 sg20
+🤩 آموزش ثبت نام در 1 دقیقه
+💀 https://t.me/+mneyQS4mfqNjNjBk
+</div>
+
+## tasiyanc — post 10167
+
+<div align="center"><img src="files/post_10167_tasiyanc_10167.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+▪️ سایت بین المللی و معتبر 1xbet
+⚽️⚽️⚽️
+🔠دارای مجوز بین المللی CURACAO
+تسویه حساب کمتر از 2دقیقه
+
+🤑شارژ حساب از طریق یو ووچر و پی اس ووچر ،تمام ارزها
+┅━━━━━━━━━━━
+🎁 واریز اول و هر شنبه دو برابر شارژ شوید(بونوس ۱۰۰٪)
+💡کد هدیه ثبت نام: S5670
+👽ثبت نام کنید.     👇
+📲 نصب اپلیکیشن اندرید کلیک کنید👉
+
+🌐آدرس سایت ▫️
+
+‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳🇹🇷
+
+            🚨 امنیت مالی در 1xbet🚨
+</div>
+
+## tasiyanc — post 10165
+
+<div align="center"><video src="files/post_10165_tasiyanc_10165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10165_tasiyanc_10165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اولین ویدیو منتشر شده از آزار و اذیت دختران ایران‌زمین توسط بیناموس‌های عراقی در سمنان که ساعتی بعد منجر به درگیری شدید بین جوانان وطن پرست و عراقی‌های حرامزاده در این شهر شد
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10164
+
+<div align="center"><img src="files/post_10164_tasiyanc_10164.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم نامحدود OpenVpn 📶
+
+مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
+
+جهت دریافت کانفیگ ها کلیک کنید
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10163
 
@@ -215,42 +280,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
-</div>
-
-## tasiyanc — post 10142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بی‌بی نتانیاهو: نیروهای ما عملیات خود را در تپه علی الطاهر در جنوب لبنان آغاز کرده‌اند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند. پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد. 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10140
-
-<div align="center"><video src="files/post_10140_tasiyanc_10140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10140_tasiyanc_10140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند.
-پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨/ترامپ به نیشن:
-اتش بس با این رژیم برای من تمام شده انها آشغال و تفاله هستند پایان رژیم ایران نزدیک است.
-
-💋 @Tasiyanc
 </div>
 

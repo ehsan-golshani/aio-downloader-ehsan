@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/02 02:01
+📅 آخرین بروزرسانی: 1405/07/02 09:45
 
 ---
+
+## tasiyanc — post 10418
+
+<div align="center"><video src="files/post_10418_tasiyanc_10418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10418_tasiyanc_10418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده از سوفیا ترنر تیک‌تاکر در مورد مردای ایرانی
+
+این خانم خارجی میگه مرد های ایرانی خوش تیپن، خانواده دوستن، وفادارن، کادو میخرن و مثل یک هدیه الهی هستند. بیشتر به مرد های ایرانی در کشورمون نیاز داریم. جالبی قضیه میدونید کجاست؟ در نظرات، خانم های خارجی همه تایید کردند ولی کامنت زنان ایرانی همه منفی بود
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
+</div>
+
+## tasiyanc — post 10416
+
+<div align="center"><img src="files/post_10416_tasiyanc_10416.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت
+
+🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که تو بیای فقط اسم کردستان بیاری و پرچم بارزانی رو بزاری  ، کردستان مال ایرانه نفهم
+
+حیف جاویدنام مهسا امینی ..... که تو پدرشی امجد امینی 
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10414
+
+<div align="center"><video src="files/post_10414_tasiyanc_10414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10414_tasiyanc_10414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لیلی فلیپس پور*ن استار آمریکایی، موقع انجام کار نیک راهی بیمارستان شد.
+
+بانو در حین تلاش برای شکستن رکورد بیشترین تعداد سکس تو ۲۴ ساعت، دقایقی بعد از آغاز عملیات یکی از مردایی که باهاش رابطه داشت پاشید تو صورتش و بیناییش بشدت به مشکل خورد و راهی بیمارستان شد.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10413
 
@@ -296,32 +344,4 @@ Act as a motivational coach
 
 💋 @Tasiyanc
 </div>
-
-## tasiyanc — post 10396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇸🇪
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10394
-
-<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
-
-خب لامصب یه بار لخت شو بیا 😐
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10393
-
-## tasiyanc — post 10392
 

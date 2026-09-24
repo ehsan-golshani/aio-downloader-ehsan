@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/07/02 02:00
+📅 آخرین بروزرسانی: 1405/07/02 09:43
 
 ---
+
+## ProxyMTProto — post 50435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: data.utkanos.life
+Port: 2443
+Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50433
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.meow-network.com
+Port: 443
+Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50432
 
@@ -154,33 +181,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
 Server: Unknown
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.41
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 14443
-Secret: ee9e28cf588967add684c5e759fea036d47777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

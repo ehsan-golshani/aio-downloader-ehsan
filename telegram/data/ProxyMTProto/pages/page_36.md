@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/02 02:00
+📅 آخرین بروزرسانی: 1405/07/02 09:43
 
 ---
+
+## ProxyMTProto — post 50759
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lazeyka-2-5.getvelora.space
+Port: 443
+Secret: ee32ee4962951c5b2bb70bc767751761a36f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: node.easyproxy.cfd
+Port: 443
+Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50756
 
@@ -154,33 +181,6 @@ Secret: ee3f72634c46d320aaa30d8bb2682e9b49617669746f2e7275
 Server: ssh.meow0.co.uk
 Port: 22
 Secret: dd79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxtstar.live
-Port: 443
-Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.140.144
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee96671dab2ecd8b178da5371b6081550b6265616d2e77686974656c6973742e63796f75
 @ProxyMTProto
 </div>
 

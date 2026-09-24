@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/02 02:00
+📅 آخرین بروزرسانی: 1405/07/02 09:43
 
 ---
+
+## ProxyMTProto — post 50839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50837
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50836
 
@@ -154,33 +181,6 @@ Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
 Server: Unknown
 Port: 443
 Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50819
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relay.rknsosi.shop
-Port: 443
-Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50818
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.makkers.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 4o.vechnostnet.study
-Port: 443
-Secret: ee007976c9b1dd0de967bbab8ab6d85f127374726d2e79616e6465782e6e6574
 @ProxyMTProto
 </div>
 

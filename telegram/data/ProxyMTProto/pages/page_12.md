@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/02 02:00
+📅 آخرین بروزرسانی: 1405/07/02 09:43
 
 ---
+
+## ProxyMTProto — post 51239
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51238
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn8.cdnwave.org
+Port: 443
+Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51237
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51236
 
@@ -154,33 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 Server: Unknown
 Port: 443
 Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 2443
-Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51217
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 
