@@ -1,8 +1,108 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/03 16:44
+📅 آخرین بروزرسانی: 1405/07/03 21:43
 
 ---
+
+## tasiyanc — post 10308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 OpenVPN - کانفیگ نامحدود
+
+🇦🇪
+🇩🇪
+🇳🇱
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10306
+
+<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10305
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10304
+
+<div align="center"><img src="files/post_10304_tasiyanc_10304.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇دنبال سایت معتبر و بین المللی برای شرط بندی می گردی⁉️
+
+🔥کمپانی بین المللی We pari همون انتخاب🔥
+
+            👑سایتی برای حرفه ای ها👑
+
+🎁اولین واریز توی وی پاری 2 برابر شارژ میشی💖
+
+🔔چرا این روزا همه وی پاری انتخاب میکنند⚠️
+💖شارژ امن از طریق کارت بانکی،ارزدیجیتال،ووچر
+💖تسویه حساب سریع و بدون احراز
+💖دارای مجوز رسمی Anjuan و curacao
+😃😃😃😃
+👑کد هدیه ثبت نام:GG007
+👑ادرس سایت:
+http://til.ac/z5jcpGT
+😢سرور فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا،کشورهای اسیایی
+
+👑دانلود اپلیکیشن اندروید➡️
+
+🔥کانال اطلاع رسانی ایران:👇🅰r2‌4
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10303
+
+<div align="center"><img src="files/post_10303_tasiyanc_10303.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی‌سایت
+🚨 چندین هوش مصنوعی قدرتمند، فقط در یک سایت!
+
+با Arena AI می‌تونی به مدل‌های مختلف هوش مصنوعی دسترسی داشته باشی و حتی مدل‌هایی مثل GPT، Gemini، Grok و... رو با هم مقایسه کنی!
+
+🚨 تولید و ویرایش عکس با مدل‌های مختلف
+
+🚨 ساخت ویدیو با AI
+
+🚨 چت و حل مسائل با مدل‌های قدرتمند
+
+
+مقایسه مدل‌ها و رأی دادن به بهترین پاسخ
+و جذاب‌تر اینکه رتبه‌بندی مدل‌ها بر اساس رأی و مقایسه واقعی کاربران ساخته می‌شه.
+🌐 https://arena.ai
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10302
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ اپلیکیشن رسمی 1XBET▪️
+🟢مخصوص کاربران ایرانی
+❕ورود به اپلیکیشن بدون نیاز به فیلتر شکن📱
+اسپانسر رسمی لالیگا و سری آ😀😀
+😀شارژ اکانت با یو ووچر، پی اس ووچر، ترون، و ارزهای دیجیتال 💵💳💲
+
+🎈وقتی اپلیکیشن رو دانلود کردید موقع ثبت‌نام، کد هدیه FA80 رو وارد کن و تا سقف0️⃣2️⃣ میلیون هدیه بگیر 🎁
+
+🎁 بونوس 100% اولین واریز
+🎁 بونوس 100% روز های شنبه
+</div>
 
 ## tasiyanc — post 10301
 
@@ -247,102 +347,5 @@ Location
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
-</div>
-
-## tasiyanc — post 10272
-
-<div align="center"><video src="files/post_10272_tasiyanc_10272.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10272_tasiyanc_10272.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوری میشه انقد حرومزاده باشی؟
-
-🚨 این پسر تیک تاکر حرومزاده به اسم آران‌ به یه دختر بچه ۶ ساله تجاوز کرده طبق چت‌هاش
-
-ماجرا از این قراره که یه دختر بچه ۶ ساله که فامیلشون بود اومد خونشون. بعد این بی همه چیز به دوستاش تو گروه میگه:
-این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10271
-
-<div align="center"><video src="files/post_10271_tasiyanc_10271.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10271_tasiyanc_10271.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا برای اولین بار منتشر کرد لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران : آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن…
-</div>
-
-## tasiyanc — post 10269
-
-<div align="center"><video src="files/post_10269_tasiyanc_10269.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10269_tasiyanc_10269.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا برای اولین بار منتشر کرد
-لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران :
-
-آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن کامل چتر نجات، با سرعت حدود ۱۶۰ کیلومتر بر ساعت به زمین برخورد کرد و در این حادثه کمر، دست و شانه‌اش شکست که گویا الان حالش خوب هست .
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 
-🥇
-
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10267
-
-<div align="center"><video src="files/post_10267_tasiyanc_10267.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10267_tasiyanc_10267.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوق حسااااس استقلال و السد رو با آپشن های تخصصی در MelBet پیشبینی کنید! 
-🔥
-
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-
-🌐 دانلود مستقیم اپلیکیشن اندروید
-
-🤝 اسپانسر رسمی لالیگا
-
-🇮🇷 پشتیبانی از زبان فارسی
-
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌
-✅ Link 🔜 MelBet1.net
-
-✅‌ Link 🔜 MelBet1.net
 </div>
 

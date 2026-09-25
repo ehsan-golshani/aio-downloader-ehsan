@@ -1,8 +1,92 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/03 16:44
+📅 آخرین بروزرسانی: 1405/07/03 21:43
 
 ---
+
+## tasiyanc — post 10096
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 🔩 فوری٬ ترامپ :
+
+حملات بیشتری علیه ایران انجام خواهیم داد. جنگ ایران بلافاصله پس از انتخابات میان‌دوره‌ای پایان خواهد یافت!
+
+پی‌نوشت : انتخابات میان‌دوره‌ای ۱۲ آبان هست
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10095
+
+<div align="center"><video src="files/post_10095_tasiyanc_10095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10095_tasiyanc_10095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تو میدان راه‌آهن تهران ، دوتا بچه با هماهنگی میچسبن به طرف یکیشون حواسشون پرت می‌کنه دیگری جیب شخص رو میزنه ، جیب دست کم ۱۰ نفرو اینطوری زده بودن که توسط پلیس دستگیر شدن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10094
+
+<div align="center"><video src="files/post_10094_tasiyanc_10094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10094_tasiyanc_10094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛
+
+ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار!
+تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10093
+
+<div align="center"><video src="files/post_10093_tasiyanc_10093.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10093_tasiyanc_10093.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حاوی صحنه شاید دلخراش
+
+🚨 تو یکی از کافه‌های اسرائیل یه مسلمون به یه سرباز ارتش اسرائیل حمله کرد و میخواست با چاقو شاهرگشو بزنه که نمی‌دونم چی شد وسط دعوا خوابش برد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10092
+
+<div align="center"><video src="files/post_10092_tasiyanc_10092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10092_tasiyanc_10092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 حامیان حکومت دیشب موافقت خودشون رو با قطعی برق و افزایش قیمت بنزین، دلار، طلا و گوشت نشون دادن:
+
+تو تاریکی می‌نشینیم، ذلت نمی‌پذیریم.
+بنزین رو کم میگیریم، ذلت نمی‌پذیریم.
+دلاری گوشت میگیریم، ذلت نمی‌پذیریم.
+مهریه کم میگیریم، ذلت نمی پذیریم.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10091
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شروط جمهوری اسلامی برای پایان جنگ توسط سخنگوی سپاه اعلام شد:
+
+۱-ضمن توقف کامل جنگ،
+۲- از تهدید مجدد دست بکشد،
+۳- ارتش اسرائیل از لبنان عقب‌نشینی کند،
+۴- محاصرهٔ یمن پایان یابد،
+۵- ۲۴ میلیارد دلار دارایی مسدودشدهٔ ایران آزاد شود
+۶- و از هرگونه مداخله در توان هسته‌ای و موشکی کشور دست بردارد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10090
 
@@ -206,88 +290,5 @@ What would i have looked like in the 80’s
 sa17
 ادرس عضویت کانال:👇
 ▪️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10076
-
-<div align="center"><img src="files/post_10076_tasiyanc_10076.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:
-✉️https://t.me/+sjy90Yl3Bg41MzEy
-</div>
-
-## tasiyanc — post 10064
-
-<div align="center"><video src="files/post_10064_tasiyanc_10064.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10064_tasiyanc_10064.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری / در حملات امشب از موشک‌های بارشی استفاده شده
-
-•موشک‌های بارشی (یا دارای کلاهک بارانی و خوشه‌ای)
-موشک‌هایی هستند که به جای داشتن یک سرجنگی یکپارچه و بزرگ
-، از تعداد زیادی ریزبمب یا بمب‌های کوچک تشکیل شده‌اند
-﻿
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
-نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
-آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
-
-💋 @Tasiyanc
 </div>
 

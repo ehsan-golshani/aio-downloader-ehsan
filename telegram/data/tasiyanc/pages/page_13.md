@@ -1,8 +1,157 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/03 16:44
+📅 آخرین بروزرسانی: 1405/07/03 21:43
 
 ---
+
+## tasiyanc — post 10241
+
+<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 جدیدترین آپدیت اپلیکیشن Wepari 
+📱
+
+
+✅ امکان شارژ درگاه ریالی کاربران ایران
+
+💖بونوس 100% واریز اول
+
+💖بونوس 100% واریز دوم
+
+💖بونوس 75% | 50% واریز سوم و چهارم
+
+💖بونوس 200% ویژه کازینو
+
+
+🔥کد هدیه برای بونوس ها: wepari200
+
+
+🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
+
+
+🔥 کانال تلگرام وی پاری:
+
+✅ @wepari_irann
+</div>
+
+## tasiyanc — post 10240
+
+<div align="center"><video src="files/post_10240_tasiyanc_10240.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10240_tasiyanc_10240.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+              
+😃
+😃
+😃
+😃                
+
+
+🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
+🤝
+
+
+🔥 سایت شماره 1 حال حاضر اروپا
+
+🔥 بازگشت 25% باخت به صورت هفتگی
+
+🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
+
+
+✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: wepari200
+
+💳  آموزش شارژ با کارت بانکی
+
+📱 نصب اپلیکیشن اندروید سایت
+
+🍏 آموزش برای کاربران iOS
+
+
+🌐 لینک ورود به سایت
+👇
+
+🔥 til.ac/PJHVQSm
+
+🔥 til.ac/PJHVQSm
+
+
+🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
+</div>
+
+## tasiyanc — post 10239
+
+<div align="center"><video src="files/post_10239_tasiyanc_10239.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10239_tasiyanc_10239.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10238
+
+<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
+
+جرمش چی بوده؟
+چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10236
+
+<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10235
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
+
+👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
+</div>
 
 ## tasiyanc — post 10234
 
@@ -176,72 +325,5 @@
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10213
-
-<div align="center"><img src="files/post_10213_tasiyanc_10213.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت وایرال‌شده مادر فرزند دهه ۶۰
-
-Prompt 🤖🤖
-
-Create an ultra-realistic vintage photograph of an Iranian mother holding her young child, set in Iran during the 1360s Persian calendar (1980s). The mother and child are standing outdoors on a nostalgic Iranian city street during golden hour, with an authentic old Iranian car parked in the background and softly blurred urban scenery.
-
-The mother has naturally curly dark hair, large vintage sunglasses and classic hoop earrings. She is wearing an authentic colorful 1980s Nike-style retro windbreaker with teal green, purple, pink and white color-block patterns. The child is wearing a matching retro colorful tracksuit jacket, creating a beautiful coordinated mother-and-child look.
-
-The mother is holding the child naturally and affectionately, both facing the camera with calm, natural expressions. Warm sunset light creates a soft golden glow around them. Authentic 1980s Persian/Iranian atmosphere, nostalgic family photography, old analog camera aesthetic, subtle film grain, light dust, tiny scratches, faded vintage colors, slightly soft focus, realistic skin texture, natural facial proportions, candid documentary feeling.
-
-Composition: medium portrait, vertical 4:5 framing, mother positioned slightly to the left while holding the child on the right, eye-level camera angle, shallow depth of field, cinematic warm lighting, realistic background bokeh.
-
-Extremely photorealistic, authentic 1980s family photo, analog film photography, Kodak-style vintage tones, highly detailed, natural imperfections, no modern objects, no smartphones, no contemporary cars, no text, no watermark.
-
-آموزش استفاده ➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10212
-
-<div align="center"><video src="files/post_10212_tasiyanc_10212.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10212_tasiyanc_10212.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو جالب که چند تروریست حوثی در شب که فکر می کنند خیلی زرنگند و بدو بدو میکنند.
-که تک‌تیرانداز به هیچ کدومشون رحم نکرد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10210
-
-<div align="center"><img src="files/post_10210_tasiyanc_10210.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
-مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
-</div>
-
-## tasiyanc — post 10206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
 </div>
 
