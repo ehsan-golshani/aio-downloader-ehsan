@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/03 03:06
+📅 آخرین بروزرسانی: 1405/07/03 11:19
 
 ---
+
+## tasiyanc — post 10445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده « مشاهده »
+</div>
+
+## tasiyanc — post 10444
+
+<div align="center"><video src="files/post_10444_tasiyanc_10444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10444_tasiyanc_10444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک قبیله بومی منزوی در آمازون که از هوا عکاسی شده. آن‌ها نمی‌دانند زندگی دیگری در جهان هست ؛ و ما نمی‌دانیم در ذهن آن‌ها جهان دقیقاً چه معنایی دارد.
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 ‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
+</div>
+
+## tasiyanc — post 10442
+
+<div align="center"><img src="files/post_10442_tasiyanc_10442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝
+0️⃣2️⃣🔤سود برد برای اولین واریز روزانه👀
+
+😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید🥹
+💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌
+
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه نمایید.😀
+
+🤖 ادرس سایت: 🅰g29
+👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+📨 کانال تلگرام :
+👍 https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10441
 
@@ -268,65 +313,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 ✅کانال تلگرام:👇
 💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10420
-
-<div align="center"><img src="files/post_10420_tasiyanc_10420.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g28🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10419
-
-<div align="center"><video src="files/post_10419_tasiyanc_10419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10419_tasiyanc_10419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رودخانه گنگ هند جزو آلوده‌ترین رودخانه های دنیاست چون نه تنها همه فاضلاب ها بهش ختم میشن بلکه سوخته اجساد شون رو هم این تو میریزن
-
-ولی ببین معده یک هندی چی هست که باکتری ای‌کولای در مقابلش عاجزه
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10418
-
-<div align="center"><video src="files/post_10418_tasiyanc_10418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10418_tasiyanc_10418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده از سوفیا ترنر تیک‌تاکر در مورد مردای ایرانی
-
-این خانم خارجی میگه مرد های ایرانی خوش تیپن، خانواده دوستن، وفادارن، کادو میخرن و مثل یک هدیه الهی هستند. بیشتر به مرد های ایرانی در کشورمون نیاز داریم. جالبی قضیه میدونید کجاست؟ در نظرات، خانم های خارجی همه تایید کردند ولی کامنت زنان ایرانی همه منفی بود
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10417
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
 </div>
 

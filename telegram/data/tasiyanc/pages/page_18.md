@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/03 03:06
+📅 آخرین بروزرسانی: 1405/07/03 11:19
 
 ---
+
+## tasiyanc — post 10089
+
+<div align="center"><img src="files/post_10089_tasiyanc_10089.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
+🔹
+✅وان ایکس رتبه یک دنیاس ✔️
+
+⏬چرا انتخاب همه 1xbet هست:
+⬅️واریز اول دو برابر شارژ میشی
+⬅️هفتگی کلی هدیه میده
+⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
+⬅️پر اپشن ترین سایت دنیاس
+⬅️اسپانسر تیم های مختلف اروپاس
+⬅️حرفه ای ترین اپلیکیشن داره
+⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
+پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
+
+😴ادرس سایت:
+https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
+🎁کد هدیه ثبت نام:1xuu
+
+💖برای دانلود اپلیکیشن کلیک کنید➡️
+کانال اطلاع رسانی سایت:
+✉️https://t.me/+sjy90Yl3Bg41MzEy
+</div>
+
+## tasiyanc — post 10088
+
+<div align="center"><video src="files/post_10088_tasiyanc_10088.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10088_tasiyanc_10088.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بی‌غیرت مثل رییس دانشگاه سمنان!
+
+رئیس دانشگاه سمنان: از همه دانشجوهای عراقی معذرت میخوام، قول میدیم براشون جبران کنیم!
+
+دانشجوهای عراقی فرزندان ما هستن و نمیذاریم کوچیک‌ترین آسیبی بهشون برسه.
+اگه خدایی نکرده یوقت اذیت شدن معذرت میخوایم و بهترشو براشون جبران میکنم.
+تمام افرادیم که برای دانشجوهای عراقی مزاحمت ایجاد کردن، بازداشت شدن و انداختیم‌شون زندان.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a photo
+</div>
+
+## tasiyanc — post 10086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️ چندین مورد عجیب درباره فیلترشکن JumpJump که قبلاً هم بهش پرداخته بودم متاسفانه ایرانیا اکثرا نصبش دارن فیلترشکن JumpJumpVPN تاکنون بیش از ۵۰ میلیون بار از گوگل‌پلی دانلود شده است. بررسی‌های پس‌کوچه نشان می‌دهد که پشت این ویترین جذاب و آمار دانلود…
+</div>
 
 ## tasiyanc — post 10085
 
@@ -226,52 +284,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 🚨🚨 حمله آمریکا به نفتکش ایرانی در ۴ مایلی خارک ( تسنیم)
 
 آمریکا امشب دستور تخلیه فوری داده به نفتکش‌های ایرانی و میخواد بفرستتشون قعر دریا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴هادی چوپون:
-
-دوست داشتم تو المپیا امسال مدال طلا میگرفتم و اونو به رهبرمون تقدیم میکردم
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10051
-
-<div align="center"><img src="files/post_10051_tasiyanc_10051.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 فردا اپل رسما از سری 18 رونمایی میکنه:
-
-کدوم رنگش خوشگله؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران. جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست. فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10049
-
-<div align="center"><video src="files/post_10049_tasiyanc_10049.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10049_tasiyanc_10049.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده یکی‌ از مراسم‌های تولد در بالاشهر تهران.
-
-جدیداً رقصنده هم به مراسم‌ها اضافه شده که بهش میگن «فرشته». این‌طوری دیگه اسم رقاص هم روش نیست.
-
-فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن
-
 
 💋 @Tasiyanc
 </div>

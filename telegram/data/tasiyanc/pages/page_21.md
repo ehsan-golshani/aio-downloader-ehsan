@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/03 03:06
+📅 آخرین بروزرسانی: 1405/07/03 11:19
 
 ---
+
+## tasiyanc — post 10005
+
+<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ سرعتی وایرگارد 
+🔓
+
+حجم و کاربر نامحدود 
+⚡️
+
+
+دانلود 
+📱Android
+🕹  iOS
+
+
+آموزش اتصال با WgTunnel 
+🔗
+
+آموزش اتصال با windscribe
+🔗
+
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10004
+
+<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
+امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10003
+
+<div align="center"><video src="files/post_10003_tasiyanc_10003.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10003_tasiyanc_10003.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10002
+
+<div align="center"><video src="files/post_10002_tasiyanc_10002.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10002_tasiyanc_10002.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ حاوی تصاویر دلخراش 
+🚨جوان همدانی خودشو چندساعت پیش تو شهر جلوی بقیه آتیش زد هنوز اطلاعات دقیقی از علت این خودسوزی بیرون نيومده ولی دادستان همدان گفته این جوون دارای مشکلات روحی و روانی بوده و درحال حاضر هم تو بیمارستان بستریه... 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10001
 
@@ -259,68 +330,6 @@ sg15
 
 سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9984
-
-<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۶ کانفیگ پرمیوم سرعتی OpenVpn 
-📶
-
-مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
-
-
-👈 دریافت کانفیگ ها 
-➡️
-
-
-لوکیشن : 
-🇩🇰
-🇪🇸
-🇫🇮
-🇮🇪
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9983
-
-<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9982
-
-<div align="center"><video src="files/post_9982_tasiyanc_9982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9982_tasiyanc_9982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک تک‌تیرانداز از شبه‌نظامیان یمنی طرفدار عربستان، وقتی که یک جنگجوی حوثی داشته قضای حاجت میکرده، از فرصت استفاده میکنه و به "شمبول" او شلیک میکنه 😂
 
 💋 @Tasiyanc
 </div>
