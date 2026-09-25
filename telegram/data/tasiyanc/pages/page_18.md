@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/03 21:43
+📅 آخرین بروزرسانی: 1405/07/04 01:12
 
 ---
+
+## tasiyanc — post 10097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🔩 ترامپ:
+
+مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10096
 
@@ -277,18 +287,5 @@ What would i have looked like in the 80’s
 آموزش استفاده ➡️
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10077
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-sa17
-ادرس عضویت کانال:👇
-▪️https://t.me/+sjy90Yl3Bg41MzEy
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/03 21:43
+📅 آخرین بروزرسانی: 1405/07/04 01:12
 
 ---
+
+## tasiyanc — post 9921
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دختری که در X خودکشی کرد: متاسفانه نمردم و معدمو شستشو دادن
+
++ خوشبختانه حالش خوبه❤️
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9920
 
@@ -280,16 +289,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9901
-
-<div align="center"><img src="files/post_9901_tasiyanc_9901.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بدن هر انسانی به ۷ نوع استراحت جسمی و روانی نیاز داره :
-
-
-💋 @Tasiyanc
 </div>
 

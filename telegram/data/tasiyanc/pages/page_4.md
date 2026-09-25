@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/03 21:43
+📅 آخرین بروزرسانی: 1405/07/04 01:12
 
 ---
+
+## tasiyanc — post 10476
+
+<div align="center"><video src="files/post_10476_tasiyanc_10476.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10476_tasiyanc_10476.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
+
+گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10475
 
@@ -288,11 +301,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 + این ویلایی هم که تو عکس مشاهده میکنید اسمش کاخ گوتیکه و قیمتش 2 هزار میلیارده.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
 </div>
 

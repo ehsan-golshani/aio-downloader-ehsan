@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/07/03 21:43
+📅 آخرین بروزرسانی: 1405/07/04 01:12
 
 ---
+
+## tasiyanc — post 6174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+دانلود  Wg tunnel 🕹
+آموزش⏩
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6173
 
@@ -192,11 +201,5 @@ Vip⚡💚fast.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium 💙BLUE.npvt
-</div>
-
-## tasiyanc — post 6150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-New🚀@Tasiyanc.conf
 </div>
 

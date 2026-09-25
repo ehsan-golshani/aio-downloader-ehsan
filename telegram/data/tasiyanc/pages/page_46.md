@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/07/03 21:43
+📅 آخرین بروزرسانی: 1405/07/04 01:12
 
 ---
+
+## tasiyanc — post 9386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9384
 
@@ -226,21 +232,5 @@ Cinematic studio portrait of a young man with messy textured hair, wearing a bla
 🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9361
-
-<div align="center"><img src="files/post_9361_tasiyanc_9361.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت پرمیوم تاسیان 🆕
-
-اسم : " Golden Hour Storyboard 🌅″
-
-آموزش استفاده 👉
-
-دریافت پرامپت👉
-
-@TASIYANC ⭐️
 </div>
 
