@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 10517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+
+•آموزش اتصال ⚡️
+
+
+
+•اتصال امن برای همه 🇮🇷
+
+ @TASIYANC
+</div>
 
 ## tasiyanc — post 10516
 
@@ -317,14 +334,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 به زیباترین فصل سال خوش اومدید. 🍁🧡
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بعد از گرمای شدید هفته اول مهر ماه، اواخر هفته دوم سرمای شدید داریم و به عنوان مثال هوای مشهد بیشتر از ۲۰ درجه سرد میشه و سیستم‌های گرمایشی و بخاری‌ ها باید روشن بشه
 
 💋 @Tasiyanc
 </div>

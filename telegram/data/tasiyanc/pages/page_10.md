@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 10331
+
+<div align="center"><img src="files/post_10331_tasiyanc_10331.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10329
 
@@ -280,28 +291,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 
 🎁 بونوس 100% اولین واریز
 🎁 بونوس 100% روز های شنبه
-</div>
-
-## tasiyanc — post 10301
-
-<div align="center"><img src="files/post_10301_tasiyanc_10301.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-1️⃣سایت بین المللی 1xbet1️⃣
-
-🎁اولین واریز توی وان ایکس 2 برابر شارژ میشین💖
-🔔چرا همه وان ایکس را انتخاب میکنند⚠️
-💖شارژ امن از طریق، انواع ووچر ، ارز دیجیتال
-💖 هر شنبه 2 برابر شارژ میشین
-💖تسویه حساب سریع و بدون احراز
-💖بازگشت بخشی از باخت به صورت هفتگی
-💖اسپانسر باشگاه بارسلونا و پاریسن ژرمن
-
-🔔راهنمای کامل سایت وان ایکس بت🔔
-
-🌐آدرس سایت👇
-📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
-
-‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
 </div>
 

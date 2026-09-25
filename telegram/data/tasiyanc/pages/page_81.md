@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 8419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چی به کنار خوب این عربارو گاییدن🤣
+بی خایه های کودن
+</div>
 
 ## tasiyanc — post 8418
 
@@ -204,11 +211,5 @@ IP
 🚨💪 گزارش انفجار شدید در بوشهر
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
 </div>
 

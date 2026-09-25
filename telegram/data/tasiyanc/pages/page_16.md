@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 10145
+
+<div align="center"><img src="files/post_10145_tasiyanc_10145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑
+
+
+اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰
+
+Prompt 🤖🤖
+
+Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress me as an elegant Iranian aristocratic woman in a luxurious vintage evening gown with refined jewelry. Place me inside a grand Tehran palace with Persian carpets, crystal chandeliers and warm golden lighting. Sophisticated, feminine, wealthy, cinematic 35mm film photography, realistic vintage aesthetic. No modern objects .
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10144
 
@@ -327,18 +346,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌🌐 Link 🔜 MelBet1.net
 🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 240.000 هزار تومان
-طلا 24.600.000 هزار تومان
-ریدین تو مملکت و آینده ما مبارکتون باشه
-
-پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
 </div>
 

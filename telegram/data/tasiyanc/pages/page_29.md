@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 9821
+
+<div align="center"><video src="files/post_9821_tasiyanc_9821.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9821_tasiyanc_9821.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+پدافند شرق تهران فعال شده.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9820
 
@@ -278,18 +292,5 @@ sg10
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9792
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پروفسور همتی بدون اینکه خندش بگیره :
-
-دشمنان هر هفته تحریم جدیدی علیه ایران اعمال می‌کنند، اما سیستم اقتصادی کشور همچنان به کار خود ادامه می‌دهد.
-آمادگی داریم تا ۲ میلیارد دلار ارز در بازار عرضه کنیم.
-گرد و خاک ایجادشده در بازار ارز فروخواهد نشست و افزایش اخیر نرخ ارز نیز بیش از آنکه ناشی از عوامل واقعی باشد، تحت تأثیر فضای روانی است.
-+قیمت هر دلار امروز ۱۰ شهریور از ۲۱۱ هم عبور کرد ولی شما ها از اراجیفتون خسته نشدید
-
-🩸 @Tasiyanc
 </div>
 

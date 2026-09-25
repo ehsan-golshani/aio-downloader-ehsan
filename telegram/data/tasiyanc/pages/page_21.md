@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 10010
+
+<div align="center"><video src="files/post_10010_tasiyanc_10010.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10010_tasiyanc_10010.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 10005
 
@@ -315,21 +369,6 @@ sg15
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9986
-
-<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
-
-سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
-
 
 💋 @Tasiyanc
 </div>

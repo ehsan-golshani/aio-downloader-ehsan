@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 171
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 5559
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری | تابناک:
+
+🚨باند پروازی فرودگاه بندرعباس مورد اصابت موشک قرار گرفت
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5558
 
@@ -446,14 +455,5 @@ Join @Tasiyanc ✅
 برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5527
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همزمان با نسخه جدید شیر و خورشید، یه ربات درست شده IP های سفید رو لیست میکنه
-سرعتش عاالیه و اکثرا متصله ( تست کردیم )
-
-ورود به ربات و دریافت لیست
 </div>
 

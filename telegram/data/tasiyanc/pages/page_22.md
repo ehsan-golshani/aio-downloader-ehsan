@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 9986
+
+<div align="center"><video src="files/post_9986_tasiyanc_9986.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9986_tasiyanc_9986.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
+
+سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9985
 
@@ -302,14 +317,6 @@ til.ac/0L4vyJf
 🔴روایت یه خیانت پشم ریزان از سمت یک مشتری آقا در طلافروشی
 
 + به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9962
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
 
 💋 @Tasiyanc
 </div>

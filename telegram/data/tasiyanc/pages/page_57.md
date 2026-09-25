@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 9094
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+90% پرامپتا VIP و بیشتر کانالها بابتش پول میگیرن ، براتون رایگان میزاریم ، استفاده کنین
+</div>
 
 ## tasiyanc — post 9093
 
@@ -304,11 +310,5 @@ https://t.me/+5fvta-uF4QA3ZDY0
 +بفرست برا کسی که میخوای بت شیر بده 😞
 
 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9073
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پست جدید ترامپ در تروث سوشیال : "دونالد ترامپ در جنگ با ایران پیروز شد." @TASIYANC ✅
 </div>
 

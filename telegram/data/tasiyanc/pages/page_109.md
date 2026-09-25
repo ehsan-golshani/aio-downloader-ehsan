@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 7414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پنالتی رو خراب می‌کنه طارمی
+</div>
 
 ## tasiyanc — post 7413
 
@@ -211,16 +217,5 @@ T.me/Tasiyanc ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پروفایل چنل عوض شد
 مرسی از آرمان موسس بانک خاورمیانه
-</div>
-
-## tasiyanc — post 7357
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ نپسترنت 
-🔐
-
-۴ سرور نامحدود سرعتی ⚡️
-
-آموزش اتصال 💘
 </div>
 

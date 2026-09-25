@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/07/03 11:19
+📅 آخرین بروزرسانی: 1405/07/03 16:44
 
 ---
+
+## tasiyanc — post 6955
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ Dark Tunnel 🌟 میزارم براتون اول از همه برنامه دارک تونل رو نصب کنین از پلی استور https://play.google.com/store/apps/details?id=net.darktunnel.app @Tasiyanc
+</div>
 
 ## tasiyanc — post 6954
 
@@ -189,14 +195,5 @@ T.me/Tasiyanc ✅
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تسنیم
-لحظاتی دیگر مقامات راجب توافق با مردم صحبت خواهند کرد
-@Tasiyanc 
-✅
 </div>
 
