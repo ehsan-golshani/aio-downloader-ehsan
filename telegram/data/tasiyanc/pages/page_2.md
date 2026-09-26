@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/04 08:49
+📅 آخرین بروزرسانی: 1405/07/04 13:39
 
 ---
+
+## tasiyanc — post 10532
+
+<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
+
+📢 در سایت بری بت وارد حساب کاربری خود شوید.
+
+💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
+
+🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
+
+✅ ورود به سایت:👇🅰g2
+⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+
+🌟 کانال رسمی ما در تلگرام: 👇
+🔗 https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10531
+
+<div align="center"><img src="files/post_10531_tasiyanc_10531.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون فر بخوره از حرومزادگی یه بلاگر
+
+🚨چند وقت پیش امیر سلیمانی - بلاگرِ طنز بعد یه مدت دوری از فضای مجازی، با یه ویدئوی گریه زاری برگشت و گفت که سرطان گرفتم!
+دیگه از همون روز به بعد، مردمِ دلسوز ایران حمایت عجیبی از ایشون کردن و پیجش میلیونی شد و دوباره به رونق رسید.
+حالا پلیس پیگیر شده و فهمیده اون حرومزاده خوشبختانه اصلا سرطان نداشته، همه اون ظاهر هم گریم بوده!
+الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10530
+
+<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده
+
+غروب، پاییزی .
+🍃
+
+
+A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
+
+
+وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10529
+
+<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نتانیاهو:
+می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
+قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
+می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
+این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
+این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10527
 
@@ -212,63 +282,5 @@ G2🅰
 R2
 🔗 ثبت نام و ورود به بخش پیشبینی💵
 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اگه تا حالا رابطه جنسی نداشتی، حتماً این پست رو ببین.
-
-تو این ویدیو به شما دختر و پسرِ بالای سن قانونی، کاملا واضح آموزش داده میشه که برای اولین رابطه، از چه نوع کاندوم و محصولات ديگه‌ای باید استفاده کنید.
-
-+ این پست رو یه جا سیو کنید، بکارتون میاد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10508
-
-<div align="center"><img src="files/post_10508_tasiyanc_10508.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-1🅰
-🛒 ورود به سایت 👇
-✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10507
-
-<div align="center"><img src="files/post_10507_tasiyanc_10507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 2 آپدیت خفن جدید تلگرام
-
-تو آپدیت جدید تلگرام اینجوریه که مثلا وقتی وارد پروفایل یک شخص میشید اون قسمت بالا شمارش میزنه بطور میانگین، چقدر سریع به پیام‌ها پاسخ میده مثلا ۵ دقیقه، ۲ ساعت یا ۳ روز!
-
-تو اپدیت بعدی تلگرام اگر اکانتی دیلیت بشه
-این پروفایل براش تنظیم میشه
-
-
-💋 @Tasiyanc
 </div>
 

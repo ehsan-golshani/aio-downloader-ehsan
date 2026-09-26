@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/04 08:49
+📅 آخرین بروزرسانی: 1405/07/04 13:39
 
 ---
+
+## tasiyanc — post 10226
+
+<div align="center"><img src="files/post_10226_tasiyanc_10226.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اسرا بیلگیچ یه بازیگر ترکیه که بخاطر اینکه شوهرش ۱۷ بار بهش خیانت کرده ازش طلاق گرفته.
+
+شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Mix_Safe @miix_viip
+هر هفته قرعه کشی داریم 😏👆👆
+
+فرم های شرطبندی با آنالیز های حرفه ای📊
+#VIP #رایگان 🛡️
+</div>
+
+## tasiyanc — post 10224
+
+## tasiyanc — post 10223
+
+<div align="center"><video src="files/post_10223_tasiyanc_10223.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10223_tasiyanc_10223.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحبت‌های مهم یه شخص درباره تورهای کویرگردی و کوهپیمایی :
+
+آقایان محترم به هیچ عنوان نزارید دختر یا همسرتون عضو این گروه‌ها بشن
+این تورها کثیفن و لیدر یکی از اینا بهم گفت هر دختری بیاد زمینش میزنیم
+و اینکه با کسی که تو اینجور تورها هست اصن ازدواج نکنین
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10220
 
@@ -196,71 +234,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 مردشور این طرز سوپرایز کردنتو ببرن بچه مردم مرد زنده شد تو همین چند دقیقه کاش یکم از عقلتون استفاده کنین
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10193
-
-<div align="center"><video src="files/post_10193_tasiyanc_10193.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10193_tasiyanc_10193.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10190
-
-<div align="center"><img src="files/post_10190_tasiyanc_10190.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی فیلترشکن رایگان GoFly VPN
-
-یکی از فیلترشکن‌های محبوب و کاملاً رایگان که بیش از ۱ میلیون نصب در گوگل‌پلی داره و با تمام اپراتور های ایران وصله
-
-
-• کاملاً رایگان (بدون اشتراک و خرید درون‌برنامه‌ای)
-• پهنای باند نامحدود
-• اتصال یک‌کلیکی و ساده
-• پشتیبانی از V2ray / Trojan / SOCKS5
-• مناسب برای اینستاگرام، یوتیوب و شبکه‌های اجتماعی و هوش مصنوعی
-دارای دو نسخه اندروید و ویندوز 🪟👽
-
-🔗 https://goflyvpn.com/
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10189
-
-<div align="center"><video src="files/post_10189_tasiyanc_10189.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10189_tasiyanc_10189.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-💖بونوس 100% واریز اول
-💖بونوس 100% واریز دوم
-💖بونوس 75% | 50% واریز سوم و چهارم
-💖بونوس 200% ویژه کازینو
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-🔥 کانال تلگرام وی پاری:
-✅ @wepari_irann
 </div>
 

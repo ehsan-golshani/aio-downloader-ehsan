@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/04 08:49
+📅 آخرین بروزرسانی: 1405/07/04 13:39
 
 ---
+
+## tasiyanc — post 10553
+
+<div align="center"><video src="files/post_10553_tasiyanc_10553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10553_tasiyanc_10553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت آیفون 16 پرومکس توسط سارق در محله منیریه تهران
+
+دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10552
+
+<div align="center"><video src="files/post_10552_tasiyanc_10552.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10552_tasiyanc_10552.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت اختصاصی جدید
+
+«گنگ‌ترین عکسی که میتونی با پدر و مادرت داشته باشی»
+
+
+STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual blueprint; do not redesign or reinterpret. Use the 3 uploaded portraits ONLY for identity: Face 1 → seated older man LEFT, Face 2 → seated older woman RIGHT, Face 3 → younger man standing CENTER BACK. EXACTLY 3 people. 9:16 full-body portrait. Match reference camera, crop, framing, proportions, poses and spacing. Two older subjects sit together on ONE large ornate dark antique leather armchair; younger man stands directly behind them, centered, head between theirs. Show entire chair, both seated subjects head-to-shoes, standing man to mid-thigh. Preserve cane, prayer beads, hands, legs and shoe positions exactly. All wear black. Man: black suit, shirt, trousers, polished shoes, holding vertical black decorative cane with prayer beads. Woman: elegant black formal outfit, gloves, vintage black hat, pointed shoes. Younger man: fitted black suit and shirt, no tie. Dark textured charcoal studio background and floor, subtle vignette. Dramatic low-key black-and-white lighting, soft upper front-left key, deep shadows, gentle rim light, fine film grain. ABSOLUTE IDENTITY LOCK: preserve each reference face exactly—geometry, eyes, nose, lips, jaw, hairline, facial hair, age and natural skin texture. No beautification, blending or identity drift. Ultra-photorealistic professional 85mm photography, natural anatomy, realistic skin/fabric/leather/wood. No CGI, painting, 3D, HDR, extra people, limbs, fingers, text, watermark or UI. 250
+
+
+🟢وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10551
+
+<div align="center"><a href="files/post_10551_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10550
+
+<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 10549
 
@@ -222,75 +291,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
-</div>
-
-## tasiyanc — post 10532
-
-<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
-
-📢 در سایت بری بت وارد حساب کاربری خود شوید.
-
-💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
-
-🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
-
-✅ ورود به سایت:👇🅰g2
-⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-🌟 کانال رسمی ما در تلگرام: 👇
-🔗 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10531
-
-<div align="center"><img src="files/post_10531_tasiyanc_10531.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون فر بخوره از حرومزادگی یه بلاگر
-
-🚨چند وقت پیش امیر سلیمانی - بلاگرِ طنز بعد یه مدت دوری از فضای مجازی، با یه ویدئوی گریه زاری برگشت و گفت که سرطان گرفتم!
-دیگه از همون روز به بعد، مردمِ دلسوز ایران حمایت عجیبی از ایشون کردن و پیجش میلیونی شد و دوباره به رونق رسید.
-حالا پلیس پیگیر شده و فهمیده اون حرومزاده خوشبختانه اصلا سرطان نداشته، همه اون ظاهر هم گریم بوده!
-الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10530
-
-<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده
-
-غروب، پاییزی .
-🍃
-
-
-A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
-
-
-وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10529
-
-<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
-قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
-می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
-این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
-این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
-@Tasiyanc
 </div>
 
