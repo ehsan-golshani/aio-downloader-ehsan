@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 10410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت
+📱
+سریع، آسان و آنی
+👑
+https://AmitisBet.com/
+</div>
 
 ## tasiyanc — post 10409
 
@@ -291,22 +301,5 @@ Act as a motivational coach
 این کانال از نون شب واجب تر✔️
 همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
 https://t.me/+72lhaZgfJ2oxMjdk
-</div>
-
-## tasiyanc — post 10387
-
-<div align="center"><img src="files/post_10387_tasiyanc_10387.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰26
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 </div>
 

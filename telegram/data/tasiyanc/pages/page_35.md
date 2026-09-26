@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 9663
+
+<div align="center"><video src="files/post_9663_tasiyanc_9663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9663_tasiyanc_9663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پشت پرده ی تلخ داستان کارتون پلنگ صورتی 💔
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9661
 
@@ -391,15 +405,5 @@ til.ac/0L4vyJf
 - از هیچ شخص یا حزب سیاسی حمایت نمیکنم
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

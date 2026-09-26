@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 10527
+
+<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
+
+#N @Tasiyanc
+</div>
 
 ## tasiyanc — post 10526
 
@@ -255,18 +267,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 تو اپدیت بعدی تلگرام اگر اکانتی دیلیت بشه
 این پروفایل براش تنظیم میشه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10503
-
-<div align="center"><img src="files/post_10503_tasiyanc_10503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تمام این عکسا مربوط به ایرانه و بچه پولدارا از اینکه تابستون رو چطوری گذروندن، منتشر کردن!
-
 
 
 💋 @Tasiyanc

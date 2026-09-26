@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 9904
+
+<div align="center"><img src="files/post_9904_tasiyanc_9904.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ۴ سپتامبر روز جهانی سرطان خون است
+🎗
+
+هدف از این پست افزایش آگاهی و پیشگیری از بیماری هست ، امیدوارم تن همتون سالم باشه تا آخر عمر ❤️
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9903
 
@@ -299,15 +313,5 @@ sg12
 ⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9879
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠طبق گزارش ها؛
-روز به روز مراکز ماساژ که توش خانوما آقایون رو ماساژ میدن بیشتر میشه و یکی دیگه از این مراکز به اسم «کلبه ماساژ» پلمب شد.
-+ دلیلشم انجام برخی کارهای +۱۸ بوده
-
-💋 @Tasiyanc
 </div>
 

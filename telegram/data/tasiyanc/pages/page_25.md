@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 9924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2 کانفیگ  پرمیوم OpenVpn 📶
+
+مناسب برای گیم - دانلود - Gemini  اینستاگرام 📸 یوتوب 🎥
+
+دریافت کانفیگ ها 👉
+
+💋 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9923
 
@@ -233,20 +245,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨فوری / ‌به دنبال تهدید ترامپ مبنی بر کاهش همکاری نظامی: دفتر ریاست جمهوری کره جنوبی اعلام کرد که این کشور در حال آماده شدن برای اعزام نیروهای نظامی به تنگه هرمز است تا به تضمین عبور آزاد کشتی‌ها در این منطقه کمک کند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9904
-
-<div align="center"><img src="files/post_9904_tasiyanc_9904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ۴ سپتامبر روز جهانی سرطان خون است
-🎗
-
-هدف از این پست افزایش آگاهی و پیشگیری از بیماری هست ، امیدوارم تن همتون سالم باشه تا آخر عمر ❤️
 
 
 💋 @Tasiyanc

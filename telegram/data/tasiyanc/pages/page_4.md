@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 10479
+
+<div align="center"><video src="files/post_10479_tasiyanc_10479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10479_tasiyanc_10479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10478
 
@@ -286,18 +296,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋‎ @Tasiyanc
-</div>
-
-## tasiyanc — post 10459
-
-<div align="center"><video src="files/post_10459_tasiyanc_10459.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10459_tasiyanc_10459.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مراسم انتخاب همسر توسط قبیلهٔ وودابه در سواحل آفریقا ؛ که مراسم «گرول» نام دارد و یکی از جالب‌ترین آیین‌های خواستگاری در جهان است.
-
-
-💋 @Tasiyanc
 </div>
 

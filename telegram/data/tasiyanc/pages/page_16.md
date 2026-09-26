@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/04 03:50
+📅 آخرین بروزرسانی: 1405/07/04 08:49
 
 ---
+
+## tasiyanc — post 10159
+
+<div align="center"><img src="files/post_10159_tasiyanc_10159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✝️حکم دستگیری دختر و پسر تو ماشین
+احتمالا به دردتون بخوره بدونید
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10158
 
@@ -223,22 +234,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 🔴 یه مرده تو تهران زنشو ۴ قلو حامله کرده و حالا ۶ تا بچه داره برگشته گفته با اینکه تو یه خونه چهل متری زندگی می‌کنیم اما شادترین پدر دنیا هستم
 
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10131
-
-<div align="center"><img src="files/post_10131_tasiyanc_10131.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عجیب‌ترین مسابقه مُد و فشن (ISIS FASHION AWARDS AMSTERDAM 2026) تو هلند🇳🇱 برگزار شد؛
-
-قانون اصلی این فشن‌شو اینه که فقط و فقط اکسسوری‌ها باید دیده بشن، یعنی چیزایی مثل کیف، کفش، عینک، جواهرات، کلاه و کمربند.
-
-مدل‌ها نباید هیچ لباسی بپوشن و فقط همون اکسسوری‌های طراح رو روی بدنشون دارن تا تمرکز کامل روی طراحی‌ها باشه.
-
-‌
-مشاهده ویدیو مسابقات بدون سانسور 🖤
-
-💋 @Tasiyanc
 </div>
 
