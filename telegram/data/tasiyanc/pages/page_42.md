@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9484
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتش شد یادی کنیم از ساک زدن دنیا خانوم جهانبخت برای تتلو :)) 
+😞
+
+مشاهده فیلم 👉
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9483
+
+<div align="center"><video src="files/post_9483_tasiyanc_9483.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9483_tasiyanc_9483.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت
+🔐
+سرور سرعتی مولتی لوکیشن⚡️
+تست شده روی همه نت ها 
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 
+📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
+
+
+اتصال امن برای همه 
+🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9482
 
@@ -438,20 +484,5 @@ https://t.me/+Mcyp10mcfFA2MTM0
 
 
 ✔️ @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9459
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
 </div>
 

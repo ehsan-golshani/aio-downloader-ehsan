@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 10158
+
+<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
+این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10156
 
@@ -212,41 +240,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 مشاهده ویدیو مسابقات بدون سانسور 🖤
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10129
-
-<div align="center"><video src="files/post_10129_tasiyanc_10129.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10129_tasiyanc_10129.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 استایل وایرال شده ریما رامین‌فر و لاله مرزبان در جشنواره فرش قرمز ونیز ایتالیا‌
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10128
-
-<div align="center"><video src="files/post_10128_tasiyanc_10128.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10128_tasiyanc_10128.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔔 اپلیشیکن بدون فیلتر1xbet 
-3️⃣
-2️⃣
-1️⃣
-
-🤝 اسپانسر لالیگا🇪🇸
-
-🤝 اسپانسر سری آ
-🇮🇹
-
-🤝اسپانسر باشگاه یوونتوس🇮🇹
-🤩 آموزش ثبت نام در 1 دقیقه
-
-💀 https://t.me/+mneyQS4mfqNjNjBk
 </div>
 

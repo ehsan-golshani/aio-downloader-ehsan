@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 10184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10180
 
@@ -317,33 +343,5 @@ Final result: A believable rediscovered real color photograph from Tehran around
 احتمالا به دردتون بخوره بدونید
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10158
-
-<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
-این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

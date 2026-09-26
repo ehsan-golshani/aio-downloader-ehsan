@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نرخ هر دلار کف طهران 205000
+</div>
+
+## tasiyanc — post 9579
+
+<div align="center"><video src="files/post_9579_tasiyanc_9579.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9579_tasiyanc_9579.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی برنامه زیگیل ابدی آمریکا یک شرکت کننده ایرانی به نام پارمیدا حضور داشت یه دور بغل همه مردا رفت بقیشو خودتون ببینید .
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9578
 
@@ -309,28 +328,5 @@ sr2
 🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
 
 ✔️ آموزش کامل و جامع شرطبندی👉
-</div>
-
-## tasiyanc — post 9552
-
-<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
-
-اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

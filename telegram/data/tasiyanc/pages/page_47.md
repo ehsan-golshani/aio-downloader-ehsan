@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9363
+
+<div align="center"><img src="files/post_9363_tasiyanc_9363.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت پرمیوم جدید 🆕
+
+" Cyberpunk Redline Portrait "
+
+تبدیل به پرامپت دخترانه کافیه woman رو جایگزین man کنید
+
+Prompt 🤖🤖
+
+Cinematic studio portrait of a young man with messy textured hair, wearing a black turtleneck, centered composition, dark minimal background, dramatic low-key lighting, a horizontal red neon light strip cutting across his eyes, strong contrast shadows covering lower face, intense gaze, moody atmosphere, cyberpunk aesthetic, ultra-realistic, sharp focus, 85mm lens, shallow depth of field, high detail, editorial photography style.
+
+آموزش استفاده 👉
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 9362
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فاکس نیوز: تفاهم‌نامه آتش بس ۶٠ روزه بین ایران ، آمریکا فردا تمام میشود
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9361
 
@@ -227,31 +256,5 @@ g25
 
 ⭐کانال اطلاع رسانی سایت:👇 sr25
 💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9342
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساب لینک اختصاصی تاسیان 🚀
-
-🔻https://raw.githubusercontent.com/navidtasiyan-debug/Tasiyanc/main/@Tasiyanc.txt
-
-پروتکل Trojan سرعتی
-( هر ۸ ساعت آپدیت خواهد شد )
-
-
-آموزش ویدیویی اضافه کردن ساب
-
-
-@Tasiyanc 💠 | اتصال امن
 </div>
 

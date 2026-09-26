@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 8283
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+JAVID SHAH 👑
+</div>
+
+## tasiyanc — post 8281
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+JAVID SHAH 👑
+</div>
 
 ## tasiyanc — post 8280
 
@@ -155,19 +167,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8257
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو یزد یه زوج که با هم دیگه تو porn hub فیلم اپلود میکردن توسط پلیس فتا دستگیر شدن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت تون چطوره؟
 </div>
 

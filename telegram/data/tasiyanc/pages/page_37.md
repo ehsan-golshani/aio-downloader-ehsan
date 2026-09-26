@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9610
+
+<div align="center"><img src="files/post_9610_tasiyanc_9610.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9607
 
@@ -289,25 +344,6 @@ til.ac/0L4vyJf
 
 
 ﻿
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9580
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نرخ هر دلار کف طهران 205000
-</div>
-
-## tasiyanc — post 9579
-
-<div align="center"><video src="files/post_9579_tasiyanc_9579.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9579_tasiyanc_9579.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی برنامه زیگیل ابدی آمریکا یک شرکت کننده ایرانی به نام پارمیدا حضور داشت یه دور بغل همه مردا رفت بقیشو خودتون ببینید .
-
 
 🩸 @Tasiyanc
 </div>

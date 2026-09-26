@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 10432
+
+<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀 
+📆 بورنموث - لیورپول 
+⏰ ساعت ۱۶:۳۰ 
+🌎 
+📲 آث میلان - لچه 
+😀 ساعت ۲۲:۱۵ 
+🌎   
+📺بونوس خوش آمدگویی ورزشی
+🎁 
+🎁 بالاترین حد مبلغ شرط
+🎁 
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️ 
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️ 
+✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10431
+
+<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀
+
+
+📆 بورنموث - لیورپول
+
+⏰ ساعت ۱۶:۳۰ 
+🌎
+
+
+📲 آث میلان - لچه
+
+😀 ساعت ۲۲:۱۵ 
+🌎
+
+ 
+
+📺بونوس خوش آمدگویی ورزشی
+🎁
+
+🎁 بالاترین حد مبلغ شرط
+🎁
+
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️
+
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️
+
+
+✈️ https://t.me/BerryBetOfficial
+R29
+
+🔗 ثبت نام و ورود به بخش پیشبینی
+💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10430
 
@@ -270,71 +341,5 @@ https://AmitisBet.com/
 سریع، آسان و آنی
 👑
 https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10409
-
-<div align="center"><video src="files/post_10409_tasiyanc_10409.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10409_tasiyanc_10409.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 شنبه ۲۸ شهریور؛ انگلستان امروز بدون توقف می‌دود!
-تاتنهام–ویلا ۱۵:۰۰؛ ضربه‌ی اول و شروع فشار.
-اورتون–نیوکاسل ۱۷:۳۰؛ جدالی که وسط روز را سنگین می‌کند.
-برایتون–هال ۱۷:۳۰؛ نبردی که ریتم را دوشاخه می‌کند.
-ایپسویچ–آرسنال ۱۷:۳۰؛ بازی‌ای که همیشه بیشتر از ظاهرش می‌جوشد.
-ناتینگهام–کاونتری ۲۰:۰۰؛ پایانی که روز را کامل می‌بندد.
-پریمیرلیگ امروز پنج ضربه‌ی پشت‌سرهم می‌زند.
-
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 
-3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-
-🌄 آدرس ثابت وبسایت
-
-
-🌐 عضویت کانال تلگرام
-
-
-📱 مشاهده پروفایل اینستاگرام
-
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
-</div>
-
-## tasiyanc — post 10408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
-
-دریافت کانفیگ‌ها 👉
-
-به هیچ عنوان از دست ندید گادن 💥
-
-@Tasiyanc
 </div>
 

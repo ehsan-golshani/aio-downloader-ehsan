@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9716
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی وایرگارد 
+
+حجم و کاربر نامحدود
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel 🔗
+
+آموزش اتصال با windscribe🔗
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9714
 
@@ -282,22 +311,5 @@ https://Winamit.com/fa
 📲 کانال تلگرامی #وینامیت :
 
 ✅@Winamit_fa
-</div>
-
-## tasiyanc — post 9687
-
-<div align="center"><img src="files/post_9687_tasiyanc_9687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨لیست جدید قیمت‌های موبایل در ایران؛ پایین‌رده‌ترین گوشی سامسونگ، A07 نزدیک به ۵۰ میلیون تومن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار 206 هزار تومان .
 </div>
 

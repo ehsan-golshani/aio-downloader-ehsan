@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
+
+## tasiyanc — post 8451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه اسپانیا از کون اورد
+</div>
 
 ## tasiyanc — post 8450
 
@@ -132,17 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
-</div>
-
-## tasiyanc — post 8429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانوووووو شکیرا اومد
 </div>
 

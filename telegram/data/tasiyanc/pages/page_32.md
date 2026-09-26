@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
+</div>
+
+## tasiyanc — post 9745
+
+<div align="center"><img src="files/post_9745_tasiyanc_9745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧠معرفی هوش مصنوعی های ساخت ویدیو با دسترسی رایگان
+
+⚡️ برای ساخت ویدیو با هوش مصنوعی میتونید از سرویس های زیر استفاده کنید که هرکدومشون تعداد محدودی کردیت رایگان برای ساخت میدن!
+
+•Gemini Omni : https://flow.google
+
+•Veo 3.1 : https://flow.google
+
+•Wan 2.7 : https://wan.video
+
+•Grok : https://grok.com/imagine
+
+•LTX 2.3 : https://ltx.io/studio
+
+•Kling 3.0 : https://kling.ai/
+
+•Seedance 2.0 : https://dola.com
+﻿
+
+پیشنهادم اینه از Gemini Omini استفاده کنید چون ویدیو های طبیعی میسازه و فارسیو بهتر پشتیبانی میکنه!
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9744
 
@@ -180,34 +215,5 @@
 تو کپشنشم نوشته هزاران ایرانی برای خرید ٬ خوردن الکل ٬ تفریحات مختلط که توی کشور خودشون ممنوعه میان شهر وان که 1.5 ساعت با مرزشون فاصله داره!
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد 
-
-حجم و کاربر نامحدود
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel 🔗
-
-آموزش اتصال با windscribe🔗
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

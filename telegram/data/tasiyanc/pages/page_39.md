@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9552
+
+<div align="center"><img src="files/post_9552_tasiyanc_9552.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 10 تا از بهترین سایتهای کاریابی آنلاین ایرانیان
+
+اگر جویای کار هستید ۱۰۰٪ میتونید کار مناسب حرفه خودتون پیدا کنید تو شهر مورد نظر خودتون !
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9550
 
@@ -263,37 +286,6 @@ IPv4 Location 🇩🇪
 
 کجا داریم میریم ؟
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 حکم اعدام مجید آدینه، از بازداشت‌شدگان اعتراضات دی‌ماه ۱۴۰۴، اجرا شد.
-
-قوه قضاییه اتهام او را «اقدام عملیاتی به نفع اسرائیل و آمریکا و همکاری با گروه‌های متخاصم علیه امنیت و منافع ملی» اعلام کرده.
 
 🩸 @Tasiyanc
 </div>

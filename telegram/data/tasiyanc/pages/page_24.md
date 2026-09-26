@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9949
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اگه هنوز به آینده امید داری این پیام رو لایک کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9948
+
+<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
+
+مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9947
 
@@ -290,31 +313,5 @@ til.ac/0L4vyJf
 دریافت کانفیگ ها 👉
 
 💋 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9923
-
-<div align="center"><video src="files/post_9923_tasiyanc_9923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9923_tasiyanc_9923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو ایتا و روبیکا برای اولین بار از یه چیزی رونمایی کردن که حتی خودشونم نمیدونن چیه :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9922
-
-<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه نصیحت
-اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
-چون اگه منصرف بشی پلیس میکشتت 🤣
-
-💋 @Tasiyanc
 </div>
 

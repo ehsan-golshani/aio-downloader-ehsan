@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9661
+
+<div align="center"><video src="files/post_9661_tasiyanc_9661.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9661_tasiyanc_9661.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐 کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید نسخه جدید
+
+دانلود آیفون نسخه جدید
+
+دانلود نسخه 123.1 اندروید
+
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمنای 
+🤖
+
+
+
+
+🩸 @TASIYANC
+</div>
+
+## tasiyanc — post 9659
 
 ## tasiyanc — post 9658
 
@@ -368,79 +401,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9632
-
-<div align="center"><img src="files/post_9632_tasiyanc_9632.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         
-😃
-😃😃
-😃
-         
-😃
-😃😃
-😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9631
-
-<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آپدیت جدید برنامه نپستر را دانلود کنید
-
-کانفیگ حجم نامحدود نپسترنت
-سرور سرعتی مولتی لوکیشن
-
-تست شده روی همه نت ها ⚡️
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید 
-🕹
-
-دانلود آیفون 
-📱
-
-
-
-
-🩸 @Tasiyanc
 </div>
 

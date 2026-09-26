@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/07/04 01:12
+📅 آخرین بروزرسانی: 1405/07/04 03:50
 
 ---
+
+## tasiyanc — post 9460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تو صداسیما جایزه جمع کردن برای کسی که ترامپ بکشه، ۱۸۱ میلیون جمع شده، بعد بلیط هواپیما تا امریکا ۴۰۰ میلیونه 😂
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9459
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
 
 ## tasiyanc — post 9458
 
@@ -287,31 +302,5 @@ Decarys 🔥.ovpn
 بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
 
 نفری یه بیت بگید تو کامنت
-</div>
-
-## tasiyanc — post 9438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال 
-⛓
-
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ :
-
-دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
-
-محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
-
-@Tasiyanc ⭐️
 </div>
 
