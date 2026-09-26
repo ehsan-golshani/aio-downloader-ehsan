@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/04 13:39
+📅 آخرین بروزرسانی: 1405/07/04 18:05
 
 ---
+
+## tasiyanc — post 10469
+
+<div align="center"><video src="files/post_10469_tasiyanc_10469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10469_tasiyanc_10469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گوریل 🦍 بعد دعوا با جفتش رفته یه گوشه نشسته عمیقا بفکر فرو رفته :
+
+«کیوماسا» اسم این گوریل نر که تو یه باغ‌وحش در ژاپن 🇯🇵 زندگی می‌کنه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 30🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
+</div>
+
+## tasiyanc — post 10467
+
+<div align="center"><img src="files/post_10467_tasiyanc_10467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+30🅰
+🛒 ورود به سایت 👇
+✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10466
+
+<div align="center"><video src="files/post_10466_tasiyanc_10466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10466_tasiyanc_10466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دختره چندین دوس پسر داشته ده ها بار باهاشون رابطه ی جنسی داشته حالا اومده پیش متخصص زنان تا نامه بگیره به نامزدش نشون بده پردش ارتجاعی بوده تا سر پسر کلاه بزاره
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10465
+
+<div align="center"><video src="files/post_10465_tasiyanc_10465.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10465_tasiyanc_10465.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔
+
+پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10464
+
+<div align="center"><video src="files/post_10464_tasiyanc_10464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10464_tasiyanc_10464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴معجزه‌ای به نام نورالینک
+
+بیماری که نمیتونست حرف بزنه، با تراشه مغزی نورالینک (شرکت ایلان ماسک) دوباره صحبت کرد!
+
+این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
+این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10463
 
@@ -209,83 +298,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10446
-
-<div align="center"><video src="files/post_10446_tasiyanc_10446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10446_tasiyanc_10446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرنگار حوادث:
-
-آتنا قاسمی ؛ دختر ۱۴ ساله کرجی که ۲۵ مردادماه به بهونه تولد یه پسر که رفیقش بوده از خونه خارج شد و دیگه برنگشت؛ بعد از یک ماه جسـدش در پزشکی قانونی پیدا شد که موهاشو کوتاه کرده بودن و انگار از طبقه پنجم سقوط کرده.
-این دختر ۲۵ مردادماه میگه میرم تولد یکی از دوستای اجتماعی پسرم. که یهو ساعت ۹ شب گوشیش خاموش میشه و دیگه خبری ازش نمیشه. اون پسره رو بازدداشت کردن و مشخص میشه اصلا تولدی درکار نبوده؛ چون تولد پسر ۱۲ شهریور بوده. توی اعترافاتش گفته اون روز آتنا رو سوار کردم و یه ساعت‌ بعد توی همون خیابون پیادش کردم و دیگه خبری ازش نداشتم.
-خلاصه مراقب خودتون باشید و توی روابطتون دقت کنید بخصوص دختر خانومای عزیز
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده « مشاهده »
-</div>
-
-## tasiyanc — post 10444
-
-<div align="center"><video src="files/post_10444_tasiyanc_10444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10444_tasiyanc_10444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک قبیله بومی منزوی در آمازون که از هوا عکاسی شده. آن‌ها نمی‌دانند زندگی دیگری در جهان هست ؛ و ما نمی‌دانیم در ذهن آن‌ها جهان دقیقاً چه معنایی دارد.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 ‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
-</div>
-
-## tasiyanc — post 10442
-
-<div align="center"><img src="files/post_10442_tasiyanc_10442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁سود روزانه میخوای؟بیا بری بت💝
-0️⃣2️⃣🔤سود برد برای اولین واریز روزانه👀
-
-😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید🥹
-💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌
-
-‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه نمایید.😀
-
-🤖 ادرس سایت: 🅰g29
-👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-📨 کانال تلگرام :
-👍 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10441
-
-<div align="center"><video src="files/post_10441_tasiyanc_10441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10441_tasiyanc_10441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پارتی وایرال شده ی مختلط اروپایی تو تهران :
-
-برای این مرحله شما باید نسخه پرمیوم ایرانُ نصب کنین
 
 
 💋 @Tasiyanc

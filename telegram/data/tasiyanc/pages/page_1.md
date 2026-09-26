@@ -1,8 +1,93 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/04 13:39
+📅 آخرین بروزرسانی: 1405/07/04 18:05
 
 ---
+
+## tasiyanc — post 10559
+
+<div align="center"><video src="files/post_10559_tasiyanc_10559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10559_tasiyanc_10559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💸ترامپ :
+
+من توافقی که ایرانی‌ها پیشنهاد دادن رو رد کردم، اونا می‌خوان به توافقی برسن که طبقش تنگه هرمز فوراً باز بشه، چون دارن به‌شدت ضرر می‌کنن؛
+البته این چیزا رو تو اخبار جعلی نمی‌خونید و نمی‌بینید، ولی ما داریم به‌شدت پیروز می‌شیم. ما کنترل کامل تنگه هرمز رو داریم و حجم عظیمی از نفت داره از اونجا عبور می‌کنه. فقط دیشب 29 کشتی از تنگه رد شدن.
+اونا دنبال توافقن و منم با توافق کردن مشکلی ندارم؛ خودمم دوست دارم توافق کنم، ولی توافقی که پیشنهاد دادن قابل قبول نیست.
+کاری که می‌خوان بکنن اینه که فوراً تنگه هرمز رو باز کنن. می‌دونید چرا؟ چون دارن نابود میشن؛ پولی دیگه وارد کشورشون نمیشه، پولشون از تنگه هرمز میاد و در واقع خودشون سر خودشون کلاه گذاشتن. گفتن تنگه رو می‌بندیم تا برای دنیا مشکل درست کنیم؛ بعد من اومدم و بزرگ‌ترین محاصره نظامی تاریخ رو ایجاد کردیم؛ یه دیوار فولادی.
+حالا چی شده؟ دیگه پولی ندارن، چون خودشون می‌خواستن تنگه رو ببندن. منم گفتم خیلی خب، ما تنگه رو روی خودتون می‌بندیم، ولی بقیه می‌تونن ازش استفاده کنن.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10558
+
+<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
+
+دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10557
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️عضویت کانال آنالیز محدوده رفقا؛ اگه اهل بتی ، خودتو برسون 👇🔥
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+</div>
+
+## tasiyanc — post 10556
+
+<div align="center"><img src="files/post_10556_tasiyanc_10556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰g4
+</div>
+
+## tasiyanc — post 10555
+
+<div align="center"><video src="files/post_10555_tasiyanc_10555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10555_tasiyanc_10555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ایلان ماسک مجوزهای مهمی برای اتصال مستقیم گوشی‌‌ها به ماهواره استارلینک گرفته؛
+
+فناوری‌ای که در صورت فراهم شدن دسترسی تو ایران، می‌تونه وابستگی به اینترنت و زیرساخت‌های ارتباطی داخلی رو خیلی خیلی کمتر کنه.
+اینترنت ماهواره‌ای حالا یه قدم دیگه به گوشی‌های معمولی نزدیک‌تر شده؛
+فناوری Starlink Direct to Cell قراره کاری کنه که گوشی‌های سازگار، تو جاهایی که آنتن موبایل وجود نداره، مستقیماً به ماهواره استارلینک وصل بشن؛ یعنی دیگه لزوماً نیازی به دیش استارلینک نیست.
+اسپیس ایکس هم داره این فناوری رو با همکاری اپراتورهای کشورهای مختلف گسترش میده.
+برای ایران هم اگه این فناوری قابل استفاده بشه، می‌تونه قطع کامل ارتباطات رو خیلی سخت‌تر یا عملا غیرممکن کنه.
+@TaSiyanc
+</div>
+
+## tasiyanc — post 10554
+
+<div align="center"><video src="files/post_10554_tasiyanc_10554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10554_tasiyanc_10554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر تو دبی خونه خریده و داره از کص‌و کونش 🍑 تشکر میکنه که باعث شدن خونه بخره.
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10553
 
@@ -39,8 +124,6 @@ STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual bluepri
 </div>
 
 ## tasiyanc — post 10551
-
-<div align="center"><a href="files/post_10551_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -213,83 +296,5 @@ https://t.me/+aeze7JXKVfU2NmNk
 https://t.me/+aeze7JXKVfU2NmNk
 
 🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
-</div>
-
-## tasiyanc — post 10538
-
-<div align="center"><video src="files/post_10538_tasiyanc_10538.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10538_tasiyanc_10538.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جدیدا بین بعضی از دخترا یه چیزی مد شده که زیر ناف‌شون جمله «Gate of heaven» رو که به معنی «دروازه بهشت هست» رو تتو میکنن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10537
-
-<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
-
-پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10536
-
-<div align="center"><video src="files/post_10536_tasiyanc_10536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10536_tasiyanc_10536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10534
-
-<div align="center"><img src="files/post_10534_tasiyanc_10534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r3🅰
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
 </div>
 

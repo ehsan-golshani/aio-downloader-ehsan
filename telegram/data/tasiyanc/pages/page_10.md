@@ -1,8 +1,125 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/04 13:39
+📅 آخرین بروزرسانی: 1405/07/04 18:05
 
 ---
+
+## tasiyanc — post 10352
+
+<div align="center"><img src="files/post_10352_tasiyanc_10352.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید
+🔥
+
+
+🥇سایت شماره یک اروپا حالا در ایران
+🥇
+
+😀
+😃
+😄
+😁
+
+
+🎁واریز اول
+💖100% بونوس هدیه(2برابر شارژ می شوید)
+
+🎁واریز دوم
+💖100% بونوس هدیه(2برابر شارژ می شوید)
+
+🎁واریز سوم
+💖75% بونوس هدیه
+
+🎁واریز چهارم
+💖50% بونوس هدیه
+
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+
+🤔http://til.ac/z5jcpGT
+
+
+💎کانال اطلاع رسانی ایران:g25🅰
+
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10351
+
+<div align="center"><video src="files/post_10351_tasiyanc_10351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10351_tasiyanc_10351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صحبت های یه آخوند:
+
+ـ تجاوز رو آزاد کنین!!! چرا به کسی که میخواد مزاحم دخترا بشه و بهشون تجاوز بکنه آزادی نمیدید؟!
+دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10350
+
+<div align="center"><video src="files/post_10350_tasiyanc_10350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10350_tasiyanc_10350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گزارش‌های غیررسمی از حمله‌ اسرائیل که در آخرین لحظه لغو شد!
+
+طبق ادعاهایی که بعضی رسانه‌ها و منابع غیررسمی مطرح کردن، قرار بوده دیروز  حمله‌ای به ایران انجام بشه؛
+حتی گفته شده جنگنده‌ها وارد آسمان ایران شدن و در بخش‌هایی از غرب کشور و جنوب‌غرب تهران دیده شدن، اما بدون انجام حمله برگشتن.
+همزمان اومدن گفتن صبح دیروز به بعضی مکان‌های حساس دولتی تو تهران دستور تخلیه دادن
+اما فعلاً مشخص نیست واقعاً حمله‌ای قرار بود صورت بگیره یا نه. البته ادعای «درز اطلاعات و لو رفتن عملیات» هم مطرح شد...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10348
+
+<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
+
+22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
+روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
+
+مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10347
+
+<div align="center"><video src="files/post_10347_tasiyanc_10347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10347_tasiyanc_10347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تبلیغ عجیب شرکت سونی در سال ۲۰۰۵ صحنه های زیبایی در خیابانهای آمریکا خلق کرد اما ؛
+
+جولای ۲۰۰۵ سونی ۲۵۰هزار توپ رنگارنگ را در خیابان‌های سن‌فرانسیسکو انداخت تا تلویزیون LCD براویا را تبلیغ کند.
+علیرغم پاکسازی گسترده با تورهای غول‌پیکر، تیم‌های پاکسازی، جاروبرقی‌های صنعتی، و جایزه نقدی به کودکان هزاران عدد از آنها به گوشه و کنار محله گریختند و سال‌ها پیدا می‌شدند
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10346
 
@@ -259,74 +376,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 10331
-
-<div align="center"><img src="files/post_10331_tasiyanc_10331.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10329
-
-<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10327
-
-<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
-
-نیرویی خواستید مشتاق همکاری هستیم 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10326
-
-<div align="center"><img src="files/post_10326_tasiyanc_10326.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلترشکن جامپ‌جامپ حواشی های اخیر که میگفتن اطلاعات کاربران به سرقت رفته رو گردن نگرفت و تکذیب کرد
-
-من بودمم تکذیب میکردم 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10325
-
-<div align="center"><img src="files/post_10325_tasiyanc_10325.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جمعی از ستارگان هالیوود در مراسم امی ۲۰۲۶ که دیشب برگزار شد :
-
-پ‌ن کراشاتون لایک نداره؟
-
-@Tasiyanc
 </div>
 

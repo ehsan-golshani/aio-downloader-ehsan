@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/04 13:39
+📅 آخرین بروزرسانی: 1405/07/04 18:05
 
 ---
+
+## tasiyanc — post 10265
+
+<div align="center"><img src="files/post_10265_tasiyanc_10265.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شات های جدید عشقتون بانو سیدنی سویینی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+Join Join Join
+Join Join Join
+</div>
+
+## tasiyanc — post 10263
+
+<div align="center"><img src="files/post_10263_tasiyanc_10263.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+میکس عالی برد شد❤️☑️
+✔️@Tipster_Mafiaa
+</div>
+
+## tasiyanc — post 10260
+
+<div align="center"><video src="files/post_10260_tasiyanc_10260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10260_tasiyanc_10260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10257
+
+<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 خبرگزاری فارس :
+احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
+</div>
 
 ## tasiyanc — post 10255
 
@@ -285,84 +346,5 @@
 👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
 
 👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
-</div>
-
-## tasiyanc — post 10234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیگه تنهایی و بدون استراتژی فرم نبند!
-دنیای پیش‌بینی فوتبال یعنی «دیتای دقیق» به‌علاوه «همفکری با افراد حرفه‌ای». مجموعه ما هر دو رو برات آماده کرده:
-📢 در کانال ما چه خبره؟
-▫️ فرم‌ها و تیپ‌های روزانه بر اساس آمار (BTTS، Over/Under و لاین‌های ارزشمند)
-▫️ تحلیل ترکیب، مصدومان و انگیزه تیم‌ها قبل از بازی
-▫️ آموزش مدیریت سرمایه برای سوددهی بلندمدت
-💬 در گروه (سوپرگپ) چه خبره؟
-▫️ تحلیل زنده بازی‌ها و لایو تیپ در حین تماشای فوتبال
-▫️ تبادل نظر و اشتراک فرم‌ها بین اعضای باسابقه
-▫️ پاسخ به سوالات و استراتژی‌های پیش‌بینی
-━━━━━━━━━━━━━━━
-📌 همین حالا به خانواده ما اضافه شو:
-📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
-💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
-</div>
-
-## tasiyanc — post 10233
-
-<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق تحقیقات جدید، از نظر ثبات مالی و ...
-65 سالگی بهترین سن برای ازدواج آقایونه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10232
-
-<div align="center"><video src="files/post_10232_tasiyanc_10232.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10232_tasiyanc_10232.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت هول بون این شکلی میشه، لطفا درس عبرت بگیرید؛
-
-مرده تو بانک نوبت خودشو میده به یه خانوم ، طرف برنده جایزه بانک میشه با شماره نوبتی که گرفته بود 🤣
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10231
-
-<div align="center"><img src="files/post_10231_tasiyanc_10231.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موندم کیلیان امباپه چجوری میخواد فیلم دوست دخترشو نگاه کنه « مشاهده فیلم 🔞»
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10229
-
-<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10227
-
-<div align="center"><video src="files/post_10227_tasiyanc_10227.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10227_tasiyanc_10227.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو کیش یه کنسرت ده هزار نفری برگزار شد که دخترا و پسرای ایران‌زمین کنار هم رقصیدن بدون اینکه کسی تحریک شه
-
-💋 @Tasiyanc
 </div>
 
