@@ -1,8 +1,14 @@
 # آرشیو کانال MehdiBudam - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/04 21:38
+📅 آخرین بروزرسانی: 1405/07/05 00:44
 
 ---
+
+## MehdiBudam — post 8100
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق گفته یکی از دوستان تور رو با لینوکس و ترموکس تست کردن با اپدیت خود لینوکس راحت وصل شدن.
+</div>
 
 ## MehdiBudam — post 8099
 
@@ -195,11 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بالاخره اینا هم میگذره ولی برخورد آدما تو این روزا فراموش نمیشه.
-</div>
-
-## MehdiBudam — post 8072
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از دوستانی که میگفتن گیگی ۶۰۰ نمیصرفه ولی الان ۵ میصرفه چخبر.
 </div>
 
