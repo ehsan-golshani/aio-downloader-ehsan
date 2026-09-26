@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/04 18:05
+📅 آخرین بروزرسانی: 1405/07/04 21:39
 
 ---
+
+## tasiyanc — post 10404
+
+<div align="center"><img src="files/post_10404_tasiyanc_10404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آنی نایت، پورن استار معروف استرالیایی اومد رکورد جهانی تعداد سکس تو ۲۴ ساعتو جابجا کنه اما بعد از شش ساعت و سکس با ۵۸۳ مرد حالش بد شد و الان بیمارستان بستریه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10403
+
+<div align="center"><video src="files/post_10403_tasiyanc_10403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10403_tasiyanc_10403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴این ویدیو از استایل دخترای تهران خیلی وایرال شده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10402
+
+<div align="center"><video src="files/post_10402_tasiyanc_10402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10402_tasiyanc_10402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 لباس فرماندهان ترور شده امروز در رزمایش جانفدا تهران
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
+
+💖امکان شارژ از طریق کارت بانکی
+💖تسویه حساب سریع بدون احراز
+💖دارای مجوز رسمی Anjuan وcuracao
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+✅کانال تلگرام:👇
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10400
 
@@ -189,70 +238,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 + امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
 عکسها با کیفیت شدن✅
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10380
-
-<div align="center"><img src="files/post_10380_tasiyanc_10380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو کشور روسیه تعداد زنان 10 میلیون بیشتر از مرد هاست و بسیاری از اونا به‌دنبال شریك زندگی برای ازدواج هستن که پیدا نمیشه .
-بخاطر جنگ با اوکراین حتی مهاجر هم کم شده و امکان ازدواج ندارن.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10378
-
-<div align="center"><img src="files/post_10378_tasiyanc_10378.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g26🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10377
-
-<div align="center"><img src="files/post_10377_tasiyanc_10377.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خبرگزاری تلگراف :
-هکرهای وابسته به حکومت‌ایران 🇮🇷 ، با یه بدافزار به اسم «Chosen Brick» (یا Heavygram) دارن مخالفان، فعالان و خبرنگارا رو هدف می‌گیرن؛
-هکرها اول تو واتساپ یا تلگرام باهاشون تماس میگیرن، خودشونو جای یکی از آشناها یا پشتیبانی فنی جا میزنن، چند وقت باهاشون گپ می‌زنن تا اعتماد جلب کنن. بعد یه فایل می‌فرستن که ظاهراً چیز بی‌ضرری مثل نتیجه MRI (عکس‌برداری از مغز یا کمر) یا برنامه‌های معتبر (مثل آنتی‌ویروس نورتون، تلگرام، کی‌پس و اینا) هستش.
-وقتی طرف فایل رو باز میکنه، بدافزار نصب میشه و شروع میکنه به دزدیدن مخاطبین، ایمیل‌ها، پیام‌ها، اسکرین‌شات گرفتن و حتی روشن کردن میکروفون گوشی یا لپ‌تاپ.
-آژانس‌های امنیتی انگلیس🏴󠁧󠁢󠁥󠁮󠁧󠁿 (NCSC)، آمریکا 🇺🇸 (FBI) و هلند 🇳🇱 با هم هشدار دادن که این کار برای سرکوب منتقدان رژیمه و از سال 2025 (یا حتی زودتر) داره انجام میشه، مخصوصا روی دستگاه‌های ویندوزی.
-
 💋 @Tasiyanc
 </div>
 

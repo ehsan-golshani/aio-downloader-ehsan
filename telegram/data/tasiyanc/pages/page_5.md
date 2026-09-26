@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/04 18:05
+📅 آخرین بروزرسانی: 1405/07/04 21:39
 
 ---
+
+## tasiyanc — post 10473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10472
+
+<div align="center"><img src="files/post_10472_tasiyanc_10472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 فرانسه - رومانی
+⏰ ساعت ۱۶:۳۰ 🌎
+
+📲 آلمان - لهستان
+😀 ساعت ۱۹:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R31
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10471
+
+<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
+
+این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
+
+مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
+
+تست شده روی تمام نت‌ها
+
+👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10469
 
@@ -241,63 +299,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
 
 مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10449
-
-<div align="center"><img src="files/post_10449_tasiyanc_10449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-29🅰
-🛒 ورود به سایت 👇
-✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10448
-
-<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
-این کشور اولین کشور درجهانه که اینکارو میکنه.
-یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10447
-
-<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
 
 
 💋 @Tasiyanc

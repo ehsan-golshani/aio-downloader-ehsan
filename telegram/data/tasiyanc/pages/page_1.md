@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/04 18:05
+📅 آخرین بروزرسانی: 1405/07/04 21:39
 
 ---
+
+## tasiyanc — post 10563
+
+<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
+
++ دوست پسرش همون موقع :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10562
+
+<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این بانو قهرمان میس المپیا 2026 شد
+
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10561
+
+<div align="center"><video src="files/post_10561_tasiyanc_10561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10561_tasiyanc_10561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای آدم فر میخوره رسما !
+
+تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10560
+
+<div align="center"><video src="files/post_10560_tasiyanc_10560.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10560_tasiyanc_10560.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده از محمدحسین قیاسی ببینید چطوری از همسرش دلبری می‌کنه..
+
+از قیاسی یاد بگیریم 😂😂😂
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10559
 
@@ -243,58 +298,5 @@ https://jhet0n.online/fa/?btag=2786270
 🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10543
-
-<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران نصب کنین عالیه
-
-🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10541
-
-<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
-
-حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
-</div>
-
-## tasiyanc — post 10539
-
-<div align="center"><img src="files/post_10539_tasiyanc_10539.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
 </div>
 

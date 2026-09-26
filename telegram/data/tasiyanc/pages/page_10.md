@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/04 18:05
+📅 آخرین بروزرسانی: 1405/07/04 21:39
 
 ---
+
+## tasiyanc — post 10356
+
+<div align="center"><video src="files/post_10356_tasiyanc_10356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10356_tasiyanc_10356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدرسه پسرونه وقتی یه دختر میاد تو حیاط :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10355
+
+<div align="center"><video src="files/post_10355_tasiyanc_10355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10355_tasiyanc_10355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وزیر نیرو:
+مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10354
+
+<div align="center"><video src="files/post_10354_tasiyanc_10354.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10354_tasiyanc_10354.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری / شرکتای هواپیمایی بزرگ جهان به دلیل تحریم و هم چنین احتمال بالای حمله ی آمریکا و اسرائیل به ایران تمامی پروازهاشون به ایران رو لغو کردن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری
+🔥
+
+
+💖امکان شارژ از طریق کارت بانکی
+
+💖تسویه حساب سریع بدون احراز
+
+💖دارای مجوز رسمی Anjuan وcuracao
+
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+
+✅کانال تلگرام:
+👇
+
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10352
 
@@ -320,61 +383,5 @@ https://osirisai.live
 به پول یه خونه و ماشین می‌رسی راحت 💲
 
 https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10335
-
-<div align="center"><img src="files/post_10335_tasiyanc_10335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
-
-https://t.me/+ArmBt6ZWMF84ZDlk
-https://t.me/+ArmBt6ZWMF84ZDlk
-https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یکی از بهترین ربات‌های دانلودر که بکارتون میاد
-
-مناسب اینستاگرام 📸 ایکس 💬 پینترست 📍
-
-👉 @wsavebot
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10332
-
-<div align="center"><img src="files/post_10332_tasiyanc_10332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت تحریم کاربران ایرانی
-
-🚨 صرافی چینی کوینکس (CoinEx) که عمده مشتری‌هاش ایرانی بودند ورشکسته شد!
-صرافی کوینکس اعلام‌کرد‌ تعطیل شده است و پول‌هایتان را خارج کنید.
-
-
-💋@Tasiyanc
 </div>
 
