@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10571
+
+<div align="center"><img src="files/post_10571_tasiyanc_10571.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: گوگل ایرانیا رو تحریم کرده و از این به بعد مردم ایران دیگه نمیتونن حساب جدید جیمیل بسازن!
+
+« فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10570
 
@@ -19,8 +31,6 @@
 </div>
 
 ## tasiyanc — post 10569
-
-<div align="center"><a href="files/post_10569_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپلیکیشن اختصاصی آمیتیس‌بت📱
@@ -273,17 +283,5 @@ STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual bluepri
 🟢وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
 
 #N @Tasiyanc
-</div>
-
-## tasiyanc — post 10551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

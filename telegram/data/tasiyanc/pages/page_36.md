@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9665
+
+<div align="center"><img src="files/post_9665_tasiyanc_9665.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دولینگو (معروفترین برنامه آموزش زبان جهان) اعلام کرد آزمون‌های این برنامه از ۱ سپتامبر (۱۰ شهریور) برای ایرانیا متوقف خواهد شد و دیگه از ایرانیا آزمون نمیگیره.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9664
 
@@ -399,11 +410,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
 </div>
 

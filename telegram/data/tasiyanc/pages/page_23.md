@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9997
 
@@ -313,20 +323,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ساده‌ترین گوشی شیائومی ۵۰ میلیون تومان شد!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9978
-
-<div align="center"><img src="files/post_9978_tasiyanc_9978.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بابک زنجانی برای استخدام راننده در شرکت دات‌وان آگهی زده؛ بعد یکی از شرایط استخدام را گذاشته:
-«عدم سوءپیشینه»! 😐
-
-مشتی تو خودت ۳ ماهه آزاد شدی 😐
-
 
 💋 @Tasiyanc
 </div>

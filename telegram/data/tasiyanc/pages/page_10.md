@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴حمید رسایی:
+
+بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
+
++ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10365
 
@@ -316,25 +328,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
 ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10344
-
-<div align="center"><video src="files/post_10344_tasiyanc_10344.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10344_tasiyanc_10344.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قبل از اینکه موهاتو رنگ کنی این پرامپت رو بده به هوش مصنوعی ببین کدوم بهت میاد!
-
-Generate a hyper-realistic 3x4 grid collage featuring 12 portraits of the person in the attached reference photo.
-Goal: Showcase 12 different hair colors while strictly keeping the user's facial identity, current haircut shape, and hair length unchan...
-
-آموزش استفاده 
-➡️
-
 
 💋 @Tasiyanc
 </div>

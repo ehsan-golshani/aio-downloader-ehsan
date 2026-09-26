@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوررری
+
+حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9804
 
@@ -342,19 +352,5 @@ til.ac/0L4vyJf
 @HUNTTER_BET @HUNTTER_BET
 @HUNTTER_BET @HUNTTER_BET
 @HUNTTER_BET @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9782
-
-<div align="center"><video src="files/post_9782_tasiyanc_9782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9782_tasiyanc_9782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره عکس نودشو گذاشته والپیپر گوشی بعد گوشیو داده تعمیرکار🐸
-
-+احتمالا میخواسته جور دیگه حساب کنه
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9723
 
@@ -291,17 +309,5 @@ til.ac/0L4vyJf
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9690
-
-<div align="center"><video src="files/post_9690_tasiyanc_9690.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9690_tasiyanc_9690.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 چند روز پیش توی باشگاه انقلاب تهران مسابقات و ایونت تنیس برگزار شد که حسابی سر و صدا کرده:
-
-💋@Tasiyanc
 </div>
 

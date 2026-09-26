@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 7659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خودتون خوبین قربونتون برم؟
+</div>
 
 ## tasiyanc — post 7658
 
@@ -152,11 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گلللللل
-</div>
-
-## tasiyanc — post 7624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمد صلاح پشت توپ
 </div>
 

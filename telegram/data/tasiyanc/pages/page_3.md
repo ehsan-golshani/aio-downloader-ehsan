@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10530
+
+<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده
+
+غروب، پاییزی .
+🍃
+
+
+A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
+
+
+وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
+
+#N @Tasiyanc
+</div>
 
 ## tasiyanc — post 10529
 
@@ -246,29 +265,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10508
-
-<div align="center"><img src="files/post_10508_tasiyanc_10508.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-1🅰
-🛒 ورود به سایت 👇
-✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

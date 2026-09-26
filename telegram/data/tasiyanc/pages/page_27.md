@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9906
+
+<div align="center"><video src="files/post_9906_tasiyanc_9906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9906_tasiyanc_9906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون بریزه از خیانت
+
+تو کانادا یه زن به نام اشلی شوهرش با GPS میوفته دنبالش ببینه کجا رفته سر از خونه دوس پسر زنه درمیاره و پسره به شوهر طرف میگه من اصن نمیدونستم این شوهر داره تو مجازی باهم اوکی شده بودیم بعدش مچ زنشو میگیره ، با پسره هم میرن دو شات ودکا میخورن میگن کو*ن لق طرف
+😞
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9905
 
@@ -288,18 +304,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 🚨گوشی اقتصادی A17 سامسونگ از ۱۵ میلیون پارسال، شد ۹۷ میلیون
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

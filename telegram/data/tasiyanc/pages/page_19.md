@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10104
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨صدای انفجار سیریک ، میناب
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10103
 
@@ -251,20 +259,6 @@ Tasiyan | تاسیان pinned a photo
 🟠 نفت 100 دلار
 
 وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10082
-
-<div align="center"><video src="files/post_10082_tasiyanc_10082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10082_tasiyanc_10082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه؛ ۰/۱ درصد احتمال بدیم این موضوع واقعی باشه فقط می‌شه گفت تو چقدر «بی‌شــرف و بی‌حیایـــی» زن!
-
-خراب شه سقفی که زن خونه‌اش امثال توء …
 
 💋 @Tasiyanc
 </div>

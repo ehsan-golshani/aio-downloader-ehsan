@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9978
+
+<div align="center"><img src="files/post_9978_tasiyanc_9978.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بابک زنجانی برای استخدام راننده در شرکت دات‌وان آگهی زده؛ بعد یکی از شرایط استخدام را گذاشته:
+«عدم سوءپیشینه»! 😐
+
+مشتی تو خودت ۳ ماهه آزاد شدی 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9977
 
@@ -265,19 +279,5 @@ til.ac/0L4vyJf
 🔗https://www.novigrad.top
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9952
-
-<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
-حالا ببینید چه صحنه‌ محشری خلق میشه
-
-
-💋@Tasiyanc
 </div>
 

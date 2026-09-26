@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 9834
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9833
 
@@ -240,16 +250,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوررری
-
-حمله آمریکا با موشک‌های تاماهاوک به برخی شهر های جنوبی ( کنارک ، قشم ، چابهار ، بندرعباس , میناب ، جاسک )
 
 🩸 @Tasiyanc
 </div>

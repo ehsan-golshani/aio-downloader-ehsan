@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10137
+
+<div align="center"><img src="files/post_10137_tasiyanc_10137.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🧩 ‏ تعدادی DNS پیشنهادی برای گیم‌های مختلف آنلاین مخصوص کاهش پینگ و لگ که هیچ جا نمیتونید پیدا کنید
+
+🔴 اگر در اجرای بازی‌ها مشکل پینگ و اتصال دارید میتوانید با این DNS ها بازی خودتون بهبود ببخشید
+
+📎 برای لیست DNS ها کلیک کنید
+
+نکته : در PS4 و PS5 بخش تنظیمات شبکه
+در PC بخش DNS
+
+دانلود Dns Changer 🕹
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10136
 
@@ -346,14 +366,6 @@ sa18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10104
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صدای انفجار سیریک ، میناب
 
 💋 @Tasiyanc
 </div>

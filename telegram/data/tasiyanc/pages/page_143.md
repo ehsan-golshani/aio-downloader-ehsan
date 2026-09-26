@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 143
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 6332
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حال ندارید ریکشن بزنید بریم بخوابیم
+</div>
 
 ## tasiyanc — post 6331
 
@@ -198,12 +204,5 @@ Password : @Tasiyanc  ⏩
 آموزش⏩
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6305
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قصد حاشیه با هیچ بنی بشری ام ندارم چون نه حوصله ن وقتشو دارم درکل گفتم زحمتای بقیه رو بعضیا با دو تکست بگ* ندن
-با قدرت در خدمت شما هستیم❤️
 </div>
 

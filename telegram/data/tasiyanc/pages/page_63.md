@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 8985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Fast - HCustum 🇮🇹B.hc
+</div>
 
 ## tasiyanc — post 8984
 
@@ -299,17 +305,6 @@ vless://29ca503d-e6b8-4509-b666-48133f450857@one-for-all.levikogjgfdd.ir:443?pat
 
 پروکسی | پروکسی | پروکسی
 
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 8960
-
-<div align="center"><img src="files/post_8960_tasiyanc_8960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تو ۹۰٪ عکسهاش دستهاشو قایم کرده تا معلولیتش مشخص نباشه
-جاوید نام امیرحسین صفری که چند روز پیش اعدام شد
 @Tasiyanc 
 ✅
 </div>

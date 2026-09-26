@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10389
+
+<div align="center"><video src="files/post_10389_tasiyanc_10389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10389_tasiyanc_10389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این روزا سر مرد ایرانی تو دنیا دعواس!
+
+صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
+مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10388
 
@@ -278,17 +292,5 @@ http://til.ac/z5jcpGT
 
 🔥کانال اطلاع رسانی ایران:👇🅰r2‌6
 https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴حمید رسایی:
-
-بنزین تو کل دنیا لیتری ۴۵۰ هزارتومنه، ما داریم مفت میدیم .
-
-+ خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 150
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 6157
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+3 تا سرور فول سرعتی تو راهه
+</div>
 
 ## tasiyanc — post 6156
 
@@ -185,11 +191,5 @@ vip 🚀🔥 @Tasiyanc.conf
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Fast2⚡@Tasiyanc.conf
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 10412
+
+<div align="center"><video src="files/post_10412_tasiyanc_10412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10412_tasiyanc_10412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁بعضی موقع ها، سخت‌ترین رقابت دنیا…
+همونیه که توی ذهن خودت اتفاق می‌افته. 🧠💡⚡️
+
+یکی می‌گه «بی‌خیال، بخواب»
+یکی می‌گه «یه کم هیجان لازم داری» 🚬
+
+کدوم شخصیتِ ذهنت برنده می‌شه؟
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+📱🤖 دانلود مستقیم اپلیکیشن اندروید
+
+😀 آدرس ثابت وبسایت
+
+✈️ عضویت کانال تلگرام
+
+📷مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
+۱۸+ | مسئولانه بازی کن
+</div>
 
 ## tasiyanc — post 10411
 
@@ -296,20 +328,6 @@ Act as a motivational coach
 
 حالا که به چشم خریدار نگاه میکنم میبینم سیدنی سویینی خیلی بدم نیست و من داشتم کفران نعمت میکردم 🤣
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10389
-
-<div align="center"><video src="files/post_10389_tasiyanc_10389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10389_tasiyanc_10389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این روزا سر مرد ایرانی تو دنیا دعواس!
-
-صحبتای یه مدل معروف انگلیسی: اگه با یه مرد درست و حسابی ایرانی وارد رابطه بشی، مثل پرنسس‌ها باهات رفتار میکنه.
-مرد ایرانی هر چی بخوای برات میگیره و تازه هیچوقت نمیذاره گرسنه بمونی، پس حتما عاشقشون بشین.
 ⚡ @Tasiyanc
 </div>
 

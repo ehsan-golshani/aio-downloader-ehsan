@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/07/05 00:46
+📅 آخرین بروزرسانی: 1405/07/05 03:24
 
 ---
+
+## tasiyanc — post 5670
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وایفای بزارم ؟
+</div>
 
 ## tasiyanc — post 5669
 
@@ -177,18 +183,6 @@ WİFİ موشک.npvt
 
 ⛈4 سرور وی ای پی تست شده نت خانگی⛈
 
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5634
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان نامحدود 📱
-
-⛈سرور تست شده همه اپراتورا⛈
 
 🚀 @Tasiyanc ✅
 </div>
