@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/05 17:39
+📅 آخرین بروزرسانی: 1405/07/05 21:58
 
 ---
+
+## tasiyanc — post 10455
+
+<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 بلژیک - جمهوری چک
+⏰ ساعت ۱۷:۳۰ 🌎
+
+📲 اسلوونی - صربستان
+😀 ساعت ۲۲:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R30
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10453
+
+<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
+
+مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10450
 
@@ -287,35 +325,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
-</div>
-
-## tasiyanc — post 10427
-
-<div align="center"><img src="files/post_10427_tasiyanc_10427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://teyurixjknfa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

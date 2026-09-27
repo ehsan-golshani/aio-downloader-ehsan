@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/05 17:39
+📅 آخرین بروزرسانی: 1405/07/05 21:58
 
 ---
+
+## tasiyanc — post 10545
+
+<div align="center"><video src="files/post_10545_tasiyanc_10545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10545_tasiyanc_10545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10544
+
+<div align="center"><video src="files/post_10544_tasiyanc_10544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10544_tasiyanc_10544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10543
 
@@ -251,27 +275,5 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 می‌دونستید همه این شاهکارهارو ایشون خونده؟
 
 #N @Tasiyanc
-</div>
-
-## tasiyanc — post 10523
-
-<div align="center"><img src="files/post_10523_tasiyanc_10523.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشاورز چینی به نام ژانگ که در مزرعه‌اش مشغول به کار بود مار نیشش میزنه ، او مار رو با افعلی شاخدار اشتباه میگیره و بخاطر ترس از مرگ سریع انگشتش قطع میکنه ، بعد اینکه بیمارستان می‌ره دکترا میگن مشتی مادر سمی نبوده
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10522
-
-<div align="center"><img src="files/post_10522_tasiyanc_10522.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مادر جاویدنام یاشار سلطانی راد، که فرزندِ پهلوون، بدنساز و کشتی گیرش رو در اعتراضات دی ماه از دست داده بود، پس از تحمل غم و درد فراوان، دق کرد و درگذشت.
-
-پیش از این مادرِ یاشار از شدت غم، چندین بار دچار سکته و بیهوشی شده بود!
-
-💋 @Tasiyanc
 </div>
 
