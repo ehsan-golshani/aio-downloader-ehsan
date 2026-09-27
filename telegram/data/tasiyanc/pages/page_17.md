@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/05 21:58
+📅 آخرین بروزرسانی: 1405/07/06 01:11
 
 ---
+
+## tasiyanc — post 10188
+
+<div align="center"><video src="files/post_10188_tasiyanc_10188.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10188_tasiyanc_10188.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید
+⁉️
+
+              
+😃
+😃
+😃
+😃                
+
+
+🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
+🤝
+
+
+🔥 سایت شماره 1 حال حاضر اروپا
+
+🔥 بازگشت 25% باخت به صورت هفتگی
+
+🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
+
+
+✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: wepari200
+
+💳  آموزش شارژ با کارت بانکی
+
+📱 نصب اپلیکیشن اندروید سایت
+🍏 آموزش برای کاربران iOS
+
+🌐 لینک ورود به سایت👇
+
+🔥 til.ac/PJHVQSm
+🔥 til.ac/PJHVQSm
+
+🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
+</div>
+
+## tasiyanc — post 10184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10181
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 10180
+
+<div align="center"><img src="files/post_10180_tasiyanc_10180.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 10179
 
@@ -272,66 +379,5 @@ Final result: A believable rediscovered real color photograph from Tehran around
 یکی به پنتاگون اصابت کرد.
 چهارمی در پنسیلوانیا سقوط کرد.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10159
-
-<div align="center"><img src="files/post_10159_tasiyanc_10159.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✝️حکم دستگیری دختر و پسر تو ماشین
-احتمالا به دردتون بخوره بدونید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10158
-
-<div align="center"><video src="files/post_10158_tasiyanc_10158.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10158_tasiyanc_10158.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تخریب کامل «کاروانسرای روس‌ها در سبزوار» از آثار تاریخی صفویه
-این کاروانسرای باستانی در سال ۱۳۶۳ به‌عنوان آثارملی ثبت شده بود که توسط شهرداری سبزوار و بدون مجوز از اداره میراث فرهنگی تخریب شد 💔
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10156
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چرا این روزها همه سایت جهانی MelBet رو انتخاب میکنن ⁉️
-
-🎁 شارژ هدیه 130 دلاری اولین واریز
-🎁 شارژ هدیه 100 دلاری در روز های یکشنبه و چهارشنبه
-🎁 و ده ها بانس ارزنده دیگر...
-🥇 متنوع ترین آپشن های ورزشی
-🖥 پخش زنده مسابقات
-🎮 بیش از 80 نوع ورزش مجازی با پخش زنده
-⭐ کاملترین کازینو آنلاین
-🛡 امنیت فوق العاده بالا
-🌐 اسپانسر رسمی جام جهانی
-💵 واریز آنی جوایز با بیش از 30 روش شارژ و برداشت، از جمله کارت بکارت
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
 </div>
 

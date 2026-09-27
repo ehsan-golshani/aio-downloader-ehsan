@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/05 21:58
+📅 آخرین بروزرسانی: 1405/07/06 01:11
 
 ---
+
+## tasiyanc — post 10549
+
+<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
+https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 10547
+
+<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول دو برابر شارژ میشی😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15% شارژ اضافی برای شارژ ارزی
+➕50% بونوس جمعه برای شرط بندی
+➕50% بونوس دوشنبه برای کازینو
+➕100 اسپین رایگان هفتگی
+➕20% کش بک روزانه برای کازینو
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🥇دنیای افرهای بی نظیر در ژتون بت👀
+
+🖥️ادرس ورود به سایت:
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇🅰3
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 10546
+
+<div align="center"><img src="files/post_10546_tasiyanc_10546.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق مطالعات، رابطه جنسی می‌تونه نقش مهمی در ماندگاری و صمیمیت رابطه داشته باشه.
+
+•تحقیقات منتشرشده نشان می‌دهند که بیشتر زوج‌های دارای رضایت بالا، رابطه جنسی منظمی حدود هفته‌ای یک‌بار دارند.
+•زوج‌های خوشحال بدون رابطه جنسی، در این مطالعه فقط حدود ۲.۳٪ بودند.
+•سکس فقط لذت نیست؛ وقتی همراه با اعتماد و امنیت باشه، می‌تونه به صمیمیت بیشتر زوج‌ها کمک کنه.
+منبع: Journal of Family Psychology
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10545
 
@@ -227,53 +292,5 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
 این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10527
-
-<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10526
-
-<div align="center"><video src="files/post_10526_tasiyanc_10526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10526_tasiyanc_10526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : دشمنان پس‌از حمله ۷ اکتبر خیال کردن ما فرومیپاشیم ولی ما بپا خواستیم و مثل شیر جنگیدیم و نابودشون کردیم!
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10525
-
-<div align="center"><video src="files/post_10525_tasiyanc_10525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10525_tasiyanc_10525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10524
-
-<div align="center"><video src="files/post_10524_tasiyanc_10524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10524_tasiyanc_10524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-می‌دونستید همه این شاهکارهارو ایشون خونده؟
-
-#N @Tasiyanc
 </div>
 
