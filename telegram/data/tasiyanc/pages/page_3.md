@@ -1,8 +1,94 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/05 03:24
+📅 آخرین بروزرسانی: 1405/07/05 11:43
 
 ---
+
+## tasiyanc — post 10536
+
+<div align="center"><video src="files/post_10536_tasiyanc_10536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10536_tasiyanc_10536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10534
+
+<div align="center"><img src="files/post_10534_tasiyanc_10534.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r3🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
+</div>
+
+## tasiyanc — post 10532
+
+<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
+
+📢 در سایت بری بت وارد حساب کاربری خود شوید.
+
+💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
+
+🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
+
+✅ ورود به سایت:👇🅰g2
+⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+
+🌟 کانال رسمی ما در تلگرام: 👇
+🔗 https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10531
+
+<div align="center"><img src="files/post_10531_tasiyanc_10531.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون فر بخوره از حرومزادگی یه بلاگر
+
+🚨چند وقت پیش امیر سلیمانی - بلاگرِ طنز بعد یه مدت دوری از فضای مجازی، با یه ویدئوی گریه زاری برگشت و گفت که سرطان گرفتم!
+دیگه از همون روز به بعد، مردمِ دلسوز ایران حمایت عجیبی از ایشون کردن و پیجش میلیونی شد و دوباره به رونق رسید.
+حالا پلیس پیگیر شده و فهمیده اون حرومزاده خوشبختانه اصلا سرطان نداشته، همه اون ظاهر هم گریم بوده!
+الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10530
 
@@ -193,77 +279,5 @@ G2🅰
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی تهران دو تا پسر به اسم راشا و پارسا باهم دعواشون میشه.
-اسم خواهرِ پارسا، ستایش بوده و راشا برای انتقام از پارسا، دوستش به اسم مروارید رو می‌فرسته تا طرح رفاقت با ستایش بریزه.
-
-بعد از اینکه ستایش و مروارید باهم دوست میشن و اعتماد بینشون شکل میگیره مروارید، ستایش رو برای تولدش دعوت می‌کنه خونشون.
-
-اما اونجا راشا به کمک مروارید، به خواهر پارسا یعنی ستایش که فقط 17 سالش بوده تجاوز میکنن، کتکش میزنن و فیلمشو میفرستن برای پارسا!!
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10513
-
-<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گندم کوچولو
-
-لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10512
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️مسابقات ورزشی را با بری بت پیشبینی کنید⚽️
-</div>
-
-## tasiyanc — post 10511
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 نروژ - دانمارک
-⏰ ساعت ۲۲:۰۰ 🌎
-
-📲 پرتغال - ولز
-😀 ساعت ۲۲:۱۵ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R2
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10510
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اگه تا حالا رابطه جنسی نداشتی، حتماً این پست رو ببین.
-
-تو این ویدیو به شما دختر و پسرِ بالای سن قانونی، کاملا واضح آموزش داده میشه که برای اولین رابطه، از چه نوع کاندوم و محصولات ديگه‌ای باید استفاده کنید.
-
-+ این پست رو یه جا سیو کنید، بکارتون میاد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
 </div>
 

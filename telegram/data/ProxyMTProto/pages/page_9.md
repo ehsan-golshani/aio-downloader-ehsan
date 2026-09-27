@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/05 00:44
+📅 آخرین بروزرسانی: 1405/07/05 11:41
 
 ---
+
+## ProxyMTProto — post 51397
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ajab-Sorati-Dare-Ooh-OOh.moon
+Port: 8443
+Secret: dd00000000000000000000000000000000
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51396
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mrak.store
+Port: 443
+Secret: ee30274009c2a2aa9bf4448ddc81fca2bb7777772e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51395
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51394
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: e3fand.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51392
 
@@ -136,51 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: kostyanchekloh.lol
 Port: 443
 Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51376
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: qwik.assetflux.org
-Port: 443
-Secret: dd2e7c3d85e469cb8f825f4678a716a363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51374
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: remix.cdnwave.org
-Port: 443
-Secret: dd7391242569590e01416101927d38b565
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

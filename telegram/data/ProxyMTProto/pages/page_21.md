@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/05 00:44
+📅 آخرین بروزرسانی: 1405/07/05 11:41
 
 ---
+
+## ProxyMTProto — post 51156
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: granite.mtproxy.zip
+Port: 443
+Secret: ee3f8a91c2d7e04b6a9f12c5e8370bd4aa786170692e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51155
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ykima.davay.click
+Port: 443
+Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51152
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51151
 
@@ -137,51 +182,6 @@ Reserve your slot through the bot in seconds.
 Server: media6.happtg.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51135
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: megaconnect.click
-Port: 443
-Secret: ee283d3bf19b80aa8a9ca06a2244c01c8a617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gamerpr.cfd
-Port: 443
-Secret: ee3cd8b9e99a48486b14d0f6169d0b8d06617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sioms.co.uk
-Port: 25565
-Secret: ee104462821249bd7ac519130220c25d0963646e2e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 
