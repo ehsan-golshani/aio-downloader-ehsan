@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/06 15:30
+📅 آخرین بروزرسانی: 1405/07/06 22:33
 
 ---
+
+## tasiyanc — post 10425
+
+<div align="center"><video src="files/post_10425_tasiyanc_10425.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10425_tasiyanc_10425.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تو فضای مجازی خوب دارن لاشی بازی و بی غیرتی رو عادی سازی میکنن
+
+دختره تو ماشین دوس‌پسرش نشسته داره به دوس‌پسر دومش پیام میده پسره هم هار هار مثل خر می‌خنده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10423
+
+<div align="center"><img src="files/post_10423_tasiyanc_10423.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توییت اکانت رسمی تلگرام در توییتر
+
+خطاب به ایلان ماسک نوشته ثروت واقعی به پول و... نیست به ممه های گنده‌س
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10422
+
+<div align="center"><img src="files/post_10422_tasiyanc_10422.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترفند
+
+اگه ویدیویی تو اکسپلور اینستاگرامت مدام تکرار میشه و دوستش نداری، روی سه‌نقطه یا سه‌خط پست بزن و Not interested رو انتخاب کن.
+
+این کار به الگوریتم می‌فهمونه محتوای مشابه رو کمتر بهت پیشنهاد بده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
+
+💖امکان شارژ از طریق کارت بانکی
+💖تسویه حساب سریع بدون احراز
+💖دارای مجوز رسمی Anjuan وcuracao
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+✅کانال تلگرام:👇
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10420
+
+<div align="center"><img src="files/post_10420_tasiyanc_10420.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥شرط بندی با سایت بین المللی تجربه کنید🔥
+
+🥇سایت شماره یک اروپا حالا در ایران🥇
+😀😃😄😁
+
+🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
+🎁واریز سوم💖75% بونوس هدیه
+🎁واریز چهارم💖50% بونوس هدیه
+
+💌کد هدیه ثبت نام: GG007
+
+ادرس سایت:
+🤔http://til.ac/z5jcpGT
+
+💎کانال اطلاع رسانی ایران:g28🅰
+✉️https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
+
+## tasiyanc — post 10419
+
+<div align="center"><video src="files/post_10419_tasiyanc_10419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10419_tasiyanc_10419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 رودخانه گنگ هند جزو آلوده‌ترین رودخانه های دنیاست چون نه تنها همه فاضلاب ها بهش ختم میشن بلکه سوخته اجساد شون رو هم این تو میریزن
+
+ولی ببین معده یک هندی چی هست که باکتری ای‌کولای در مقابلش عاجزه
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10418
+
+<div align="center"><video src="files/post_10418_tasiyanc_10418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10418_tasiyanc_10418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده از سوفیا ترنر تیک‌تاکر در مورد مردای ایرانی
+
+این خانم خارجی میگه مرد های ایرانی خوش تیپن، خانواده دوستن، وفادارن، کادو میخرن و مثل یک هدیه الهی هستند. بیشتر به مرد های ایرانی در کشورمون نیاز داریم. جالبی قضیه میدونید کجاست؟ در نظرات، خانم های خارجی همه تایید کردند ولی کامنت زنان ایرانی همه منفی بود
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
+</div>
 
 ## tasiyanc — post 10416
 
@@ -238,113 +353,6 @@ Act as a motivational coach
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 آنی نایت، پورن استار معروف استرالیایی اومد رکورد جهانی تعداد سکس تو ۲۴ ساعتو جابجا کنه اما بعد از شش ساعت و سکس با ۵۸۳ مرد حالش بد شد و الان بیمارستان بستریه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10403
-
-<div align="center"><video src="files/post_10403_tasiyanc_10403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10403_tasiyanc_10403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴این ویدیو از استایل دخترای تهران خیلی وایرال شده
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10402
-
-<div align="center"><video src="files/post_10402_tasiyanc_10402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10402_tasiyanc_10402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 لباس فرماندهان ترور شده امروز در رزمایش جانفدا تهران
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10400
-
-<div align="center"><img src="files/post_10400_tasiyanc_10400.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥شرط بندی با سایت بین المللی تجربه کنید🔥
-
-🥇سایت شماره یک اروپا حالا در ایران🥇
-😀😃😄😁
-
-🎁واریز اول💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز دوم💖100% بونوس هدیه(2برابر شارژ می شوید)
-🎁واریز سوم💖75% بونوس هدیه
-🎁واریز چهارم💖50% بونوس هدیه
-
-💌کد هدیه ثبت نام: GG007
-
-ادرس سایت:
-🤔http://til.ac/z5jcpGT
-
-💎کانال اطلاع رسانی ایران:g27🅰
-✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10399
-
-<div align="center"><img src="files/post_10399_tasiyanc_10399.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز ـ رژه بانوان جانفدا در تهران
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10397
-
-<div align="center"><img src="files/post_10397_tasiyanc_10397.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇸🇪
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10394
-
-<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
-
-خب لامصب یه بار لخت شو بیا 😐
 
 💋 @Tasiyanc
 </div>

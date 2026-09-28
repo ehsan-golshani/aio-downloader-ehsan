@@ -1,8 +1,113 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/06 15:30
+📅 آخرین بروزرسانی: 1405/07/06 22:33
 
 ---
+
+## tasiyanc — post 10607
+
+<div align="center"><img src="files/post_10607_tasiyanc_10607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨وحشتناک‌ترین خبر چند روز اخیر آمریکا مربوط به خوابگاه دانشگاه کرنله.
+
+
+چند پسر یک دختر دانشجو رو با کتامین مسموم می‌کنن و وقتی نیمه‌هوشیار بوده، بهش تجا*وز گروهی می‌کنن.
+
+بعدش توی گروه خوابگاه درباره این اتفاق پست می‌ذارن و به بقیه پسرها می‌گن توی فلان اتاق ک* رایگان هست و هرکی می‌خواد بیاد.
+مدیرای دانشگاه به جز دو نفری که اخراج میکنن به بقیه‌اشون می‌گن برای تنبیه مقاله بنویسن که چقدر کارشون زشت بوده!! و همین باعث اعتراض آمریکاییا شده.
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨ برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥 هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀 یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز…
+</div>
+
+## tasiyanc — post 10605
+
+<div align="center"><img src="files/post_10605_tasiyanc_10605.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨
+
+برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥
+
+هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀
+یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز باشه! 🏆
+
+🎟 بلیت رایگان برای همه بازی‌ها
+🎯 انتخاب شماره و شرکت در بازی
+💰 جوایز ویژه و‌ میلیونی
+
+همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
+
+🌐 wingobingo.tv
+</div>
+
+## tasiyanc — post 10604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a file
+</div>
+
+## tasiyanc — post 10603
+
+<div align="center"><img src="files/post_10603_tasiyanc_10603.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10602
+
+<div align="center"><video src="files/post_10602_tasiyanc_10602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10602_tasiyanc_10602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هجوم مسافران ایرانی‌ به جزیره کیش در پی بسته شدن پروازها به خارج !
+
+با افزایش نجومی قیمت دلار و بسته شدن مسیرهای هوایی به‌ویژه به  دوبی ، متقاضیان سفر به جزیره زیبای مرجانی کیش رشد فزاینده و  ‌چشمگیری داشته است و مورد استقبال هموطنان در داخل کشور قرار گرفته است
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡 💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش! اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم! 💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار 🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+ چطور کار می‌کنه؟ ◀️ اولین واریز و…
+</div>
+
+## tasiyanc — post 10600
+
+<div align="center"><img src="files/post_10600_tasiyanc_10600.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡
+
+💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش!
+
+اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم!
+
+💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار
+🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+
+
+چطور کار می‌کنه؟
+◀️ اولین واریز و اولین شرطت رو ثبت کن
+◀️ شرط ترکیبی با حداقل ۳ انتخاب بزن
+◀️ اگه باختی… فرداش فری بت تو حسابه!
+
+⏳ فقط برای مشتریان جدید | فری‌بت تا ۷ روز قابل استفاده است
+
+🔥 بدون ریسک شروع کن، همین حالا ثبت‌نام کن!
+
+🔻http://betegram.com/affiliates?btag=3_l7
+</div>
 
 ## tasiyanc — post 10599
 
@@ -21,8 +126,6 @@
 </div>
 
 ## tasiyanc — post 10598
-
-<div align="center"><a href="files/post_10598_@Tasiyanc Fast ⚡.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc Fast ⚡.txt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
@@ -57,8 +160,6 @@
 </div>
 
 ## tasiyanc — post 10596
-
-<div align="center"><a href="files/post_10596_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -197,100 +298,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 فقط رفیقای صمیمی‌شون رو دعوت و حسابی باهم عشق و حال کردن.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+kt_bsasgniphZmZk https://t.me/+kt_bsasgniphZmZk 🅰g5 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
-</div>
-
-## tasiyanc — post 10583
-
-<div align="center"><img src="files/post_10583_tasiyanc_10583.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+kt_bsasgniphZmZk
-https://t.me/+kt_bsasgniphZmZk
-🅰g5
-🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
-</div>
-
-## tasiyanc — post 10582
-
-<div align="center"><video src="files/post_10582_tasiyanc_10582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10582_tasiyanc_10582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لیان یون‌ژی، دختر شش‌ساله چینی، رکورد جهانی در حل مکعب روبیک (در بخش زنان) به نام خود ثبت کرد.
-
-این کودک چینی در عرض سه روز،ابتدا میانگین زمانی ۴٫۵۲ ثانیه و سپس به ۴٫۲۷ ثانیه بهبود بخشید؛او به تنها دختر مکعب‌باز در جهان است که میانگین زمان حل آن کمتر از ۴٫۵ ثانیه است
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10581
-
-<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10580
-
-<div align="center"><video src="files/post_10580_tasiyanc_10580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10580_tasiyanc_10580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴این روزا دزدها در کمین هستن تا گوشی و اشیای گران‌قیمت مردمو سرقت کنن ، خیلی مراقب باشید بخصوص دختر خانوما
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
-
-Location 🇺🇸
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10578
-
-<div align="center"><video src="files/post_10578_tasiyanc_10578.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10578_tasiyanc_10578.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه دختر ۲۳ ساله انقدر رابطه مقعدی داشته که دچار بی اختیاری گازهای معده و مدفوع شده و با ایزی لایف میره بیرون و به گفته خانم دکتر هیچ درمانی ام براش وجود نداره.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
