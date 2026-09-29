@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/07/06 22:31
+📅 آخرین بروزرسانی: 1405/07/07 03:31
 
 ---
+
+## ProxyMTProto — post 50049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee73e7d7fe41b49d9091f78c8c92c22de4766b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50048
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee16309abd572d284b309ef26bd7a3f68570726f78792e6c6f646b69726d6d2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50046
 
@@ -154,33 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: evening.whiteproxy.baby
 Port: 443
 Secret: ddc27a8e4e92e2ad536c3f80d7c0809ef8
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.easyproxy.cfd
-Port: 443
-Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: chai.mikham.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

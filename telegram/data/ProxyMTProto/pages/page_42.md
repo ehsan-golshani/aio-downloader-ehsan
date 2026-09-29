@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/06 22:31
+📅 آخرین بروزرسانی: 1405/07/07 03:31
 
 ---
+
+## ProxyMTProto — post 50793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.37
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50792
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zone.lovely.lat
+Port: 443
+Secret: eeaadd88aa9facd454936d0c42dc128e777a6f6e652e6c6f76656c792e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50790
 
@@ -154,33 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e
 Server: kostyanchekloh.lol
 Port: 443
 Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 88.198.197.199
-Port: 4466
-Secret: dd114562821249bd7ac519130220c25d08
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50772
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: proxtstar.live
-Port: 443
-Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50771
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: evo.foriran.co.uk
-Port: 443
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

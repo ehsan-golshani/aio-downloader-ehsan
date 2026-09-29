@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/06 22:31
+📅 آخرین بروزرسانی: 1405/07/07 03:31
 
 ---
+
+## ProxyMTProto — post 51494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kostyanchekloh.lol
+Port: 443
+Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.my-pv.info
+Port: 443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max-speed.co.uk
+Port: 443
+Secret: 84738086f0aa4f0c4f4b977e9d0b254e
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51491
 
@@ -154,33 +181,6 @@ Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.macauley.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn6.cdnwave.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
 @ProxyMTProto
 </div>
 

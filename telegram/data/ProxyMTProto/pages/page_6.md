@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/06 22:31
+📅 آخرین بروزرسانی: 1405/07/07 03:31
 
 ---
+
+## ProxyMTProto — post 51514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 443
+Secret: eece59031f1109f05387b7155534c7ac87646e732e76646c2e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.42.56.66
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51511
 
@@ -154,33 +181,6 @@ Secret: ee619628651747706ea93bfbd344ba3fc17777772e636c6f7564666c6172652e636f6d
 Server: server.syscloudio.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51494
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51493
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.my-pv.info
-Port: 443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max-speed.co.uk
-Port: 443
-Secret: 84738086f0aa4f0c4f4b977e9d0b254e
 @ProxyMTProto
 </div>
 
