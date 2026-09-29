@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/07 15:20
+📅 آخرین بروزرسانی: 1405/07/07 20:50
 
 ---
+
+## tasiyanc — post 10550
+
+<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10549
+
+<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
+https://t.me/+wZXhBXGTHmsxMTk0
+</div>
 
 ## tasiyanc — post 10547
 
@@ -255,46 +295,6 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 
 
 وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10529
-
-<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
-قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
-می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
-این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
-این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10527
-
-<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10526
-
-<div align="center"><video src="files/post_10526_tasiyanc_10526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10526_tasiyanc_10526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : دشمنان پس‌از حمله ۷ اکتبر خیال کردن ما فرومیپاشیم ولی ما بپا خواستیم و مثل شیر جنگیدیم و نابودشون کردیم!
 
 #N @Tasiyanc
 </div>
