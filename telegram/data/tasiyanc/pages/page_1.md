@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/06 22:33
+📅 آخرین بروزرسانی: 1405/07/07 15:20
 
 ---
+
+## tasiyanc — post 10613
+
+<div align="center"><video src="files/post_10613_tasiyanc_10613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10613_tasiyanc_10613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو از یه خانوم ایرانی توی وان ترکیه که حسابی توی پیج های ترکیه وایرال شده.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10612
+
+<div align="center"><video src="files/post_10612_tasiyanc_10612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10612_tasiyanc_10612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کن طرف چند میلیارد هزینه کرده واسه عروسیش کلی کلاس رقص رفتن بعد یه توله سگ فامیل تو جایی که نباید بیاد ، میاد میرینه به فیلم :
+
+پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10610
+
+<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
+</div>
+
+## tasiyanc — post 10609
+
+<div align="center"><video src="files/post_10609_tasiyanc_10609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10609_tasiyanc_10609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سونامی استعفاء معلمان و فریاد از خفقان معیشتی و کمبود درامد
+
+شدیدترین موج استعفا در ایران طی ۷۲ ساعت اخیر رخ داده! طی چند روز اخیر، شدیدترین موج استعفای تاریخ ایران اتفاق افتاده و پرستاران، معلمان و کارمندان به علت حقوق بسیار پایین، از کارشون استعفا دادن! به قدری این موج استفعا شدید بوده که خیلی از بیمارستان‌ها خالی از کادر درمان شده!
+خیلی از کلاس‌های درس هم دیگه معلمی برای آموزش وجود نداره و صدها نفر استعفا دادن.
+‌
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10608
+
+<div align="center"><img src="files/post_10608_tasiyanc_10608.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽ اسپانیا 🇪🇸 - 🇭🇷 کرواسی
+🏆 لیگ ملت‌های اروپا‌ 🏆
+🕔 سه‌شنبه ساعت ۲۲:۱۵
+📍 ورزشگاه رامون سانچز پیس‌خوان
+🎲 با بیش از ۶۵۰ نوع آپشن پیش‌بینی
+👆 ضرایب شگفت‌انگیز
+
+📊 نگاهی به آمار دو تیم:
+✅ اسپانیا: ۸ برد و ۲ تساوی در ۱۰ بازی اخیر.
+✅ کرواسی: ۶ برد و ۴ شکست در ۱۰ بازی اخیر.
+📈 میانگین گل در ۱۰ بازی اخیر اسپانیا: ۲.۳ گل در هر بازی.
+📈 میانگین گل در ۱۰ بازی اخیر کرواسی: ۳.۳ گل در هر بازی.
+
+🧠 بازی با برنامه، لذت را ماندگار می‌کند.
+
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+🟢 دریافت سرورفیلترشکن رایگان
+🅰r7
+💻 @BetForward
+</div>
 
 ## tasiyanc — post 10607
 
@@ -217,86 +299,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ⚡️توی این کانال تحلیل و انالیز یاد میگیری تا خودت بتونی درامد دلاری داشته باشی از پیش بینی تخصصی فوتبال
 💖 ادرس عضویت کانالشون:
 💖🅰5…
-</div>
-
-## tasiyanc — post 10592
-
-<div align="center"><video src="files/post_10592_tasiyanc_10592.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10592_tasiyanc_10592.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅برترین و قدیمی ترین مجموعه تحلیلی ایران ینی انتن بت
-✅
-
-
-❗️اگ توم میخوای روزانه درامد دلاری داشته باشی کانالی انالیز انتن بت از دست نده
-💖
-
-
-⚡️توی این کانال تحلیل و انالیز یاد میگیری تا خودت بتونی درامد دلاری داشته باشی از پیش بینی تخصصی فوتبال
-💖
-
-ادرس عضویت کانالشون:
-💖🅰5
-
-✉️https://t.me/+gYDRnUG5OX03MWJk
-
-✉️https://t.me/+gYDRnUG5OX03MWJk
-
-💎عضویت محدود سریع اقدام کنید
-✅
-</div>
-
-## tasiyanc — post 10591
-
-<div align="center"><video src="files/post_10591_tasiyanc_10591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10591_tasiyanc_10591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فک کن داری با خیال راحت تو مسیر خودت رانندگی میکنی، بی خبر از اینکه یه حرومزاده و حیوان دوپا رم کرده، سر پیچ تو جاده دو طرفه یهو تصمیم میگیره که سبقت میگیره و با سرعت میاد به سمت شما...!
-
-اینجور آدما باید برن زندان و گواهینامشون برای همیشه باطل بشه.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10587
-
-<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری شگفت انگیز از هواپیمای AC 130 
-🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10586
-
-<div align="center"><video src="files/post_10586_tasiyanc_10586.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10586_tasiyanc_10586.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
-
-و به همین زیبایی پول مردم رو خوردن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10585
-
-<div align="center"><video src="files/post_10585_tasiyanc_10585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10585_tasiyanc_10585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده ؛ یه زوج ایرانی از عروسی‌شون ویدیو منتشر کردن و جای اینکه فامیلای دور و کسایی که حتی سالی یه بارم نمی بینن دعوت کنن،
-
-فقط رفیقای صمیمی‌شون رو دعوت و حسابی باهم عشق و حال کردن.
-@Tasiyanc
 </div>
 

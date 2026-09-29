@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/07/06 22:33
+📅 آخرین بروزرسانی: 1405/07/07 15:20
 
 ---
+
+## tasiyanc — post 8471
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️صدای انفجار مهیب در کنارك
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ اورمیه و چابهار صدای انفجارررر
+
+@TASIYANC 
+✅
+</div>
+
+## tasiyanc — post 8469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ سنتکام : حملات ما به ایران آغاز شد
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8467
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز تایید یا تکذیب نمیشه @TASIYANC ⭐️
+</div>
 
 ## tasiyanc — post 8466
 
@@ -126,35 +166,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تماااااامممممممم
-</div>
-
-## tasiyanc — post 8451
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه اوه اسپانیا از کون اورد
-</div>
-
-## tasiyanc — post 8450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه گل صحیح اسپانیا هم آفساید گرفته شد
-</div>
-
-## tasiyanc — post 8449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بازی بعدی فینال ایران و امریکا
-</div>
-
-## tasiyanc — post 8448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد ولی افساید
-</div>
-
-## tasiyanc — post 8447
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آرژانتین کامبک میزنه یا ن؟
 </div>
 
