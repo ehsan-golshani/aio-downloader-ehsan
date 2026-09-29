@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/07 03:31
+📅 آخرین بروزرسانی: 1405/07/07 09:11
 
 ---
+
+## ProxyMTProto — post 51557
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51556
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51555
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: premium.speed-benz.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51554
 
@@ -154,33 +181,6 @@ Secret: dd00000000000000000000000000000000
 Server: kostyanchekloh.lol
 Port: 443
 Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: premium.speed-benz.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51536
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn6.cdnwave.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 
