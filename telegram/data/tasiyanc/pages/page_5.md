@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/08 16:21
+📅 آخرین بروزرسانی: 1405/07/08 21:55
 
 ---
+
+## tasiyanc — post 10541
+
+<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
+
+حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+aeze7JXKVfU2NmNk
+https://t.me/+aeze7JXKVfU2NmNk
+</div>
+
+## tasiyanc — post 10539
+
+<div align="center"><img src="files/post_10539_tasiyanc_10539.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+aeze7JXKVfU2NmNk
+https://t.me/+aeze7JXKVfU2NmNk
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
+</div>
+
+## tasiyanc — post 10538
+
+<div align="center"><video src="files/post_10538_tasiyanc_10538.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10538_tasiyanc_10538.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جدیدا بین بعضی از دخترا یه چیزی مد شده که زیر ناف‌شون جمله «Gate of heaven» رو که به معنی «دروازه بهشت هست» رو تتو میکنن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10537
+
+<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
+
+پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10536
+
+<div align="center"><video src="files/post_10536_tasiyanc_10536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10536_tasiyanc_10536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10535
 
@@ -194,90 +272,5 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G2🅰 🛒 ورود به سایت 👇 ✅ https://oqleixugysh.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10519
-
-<div align="center"><img src="files/post_10519_tasiyanc_10519.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G2🅰
-🛒 ورود به سایت 👇
-✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10518
-
-<div align="center"><video src="files/post_10518_tasiyanc_10518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10518_tasiyanc_10518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-
-•آموزش اتصال ⚡️
-
-
-
-•اتصال امن برای همه 🇮🇷
-
- @TASIYANC
-</div>
-
-## tasiyanc — post 10516
-
-<div align="center"><img src="files/post_10516_tasiyanc_10516.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨زامیاد Z25 به عنوان جایگزین نیسان آبی رونمایی شد
-‌
-امروز با حضور وزیر صمت زامیاد Z25 در شرکت سایپا رونمایی شد.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی تهران دو تا پسر به اسم راشا و پارسا باهم دعواشون میشه.
-اسم خواهرِ پارسا، ستایش بوده و راشا برای انتقام از پارسا، دوستش به اسم مروارید رو می‌فرسته تا طرح رفاقت با ستایش بریزه.
-
-بعد از اینکه ستایش و مروارید باهم دوست میشن و اعتماد بینشون شکل میگیره مروارید، ستایش رو برای تولدش دعوت می‌کنه خونشون.
-
-اما اونجا راشا به کمک مروارید، به خواهر پارسا یعنی ستایش که فقط 17 سالش بوده تجاوز میکنن، کتکش میزنن و فیلمشو میفرستن برای پارسا!!
-@Tasiyanc
 </div>
 
