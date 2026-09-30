@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/08 21:55
+📅 آخرین بروزرسانی: 1405/07/09 02:00
 
 ---
+
+## tasiyanc — post 10632
+
+<div align="center"><video src="files/post_10632_tasiyanc_10632.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10632_tasiyanc_10632.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده ، این خانم میخواسته بره مهمونی و گرون ترین لباس یه آنلاین شاپ رو به قیمت ۱۰ میلیون سفارش داده.
+و حالا چیزی که به دستش رسیده:
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10631
+
+<div align="center"><a href="files/post_10631_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 10630
+
+<div align="center"><img src="files/post_10630_tasiyanc_10630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️⭕️⭕️⭕️⭕️⭕️
+
+اولیتت برای انتخاب سایت چیه ❓
+امنیت مالی مهم ترین چیزیه که یه سایت پیشبینی باید داشته باشه
+
+⚡️ ریتزوبت با انواع درگاه های شارژ و‌ در گاه مخصوص و اختصاصی کارت به کارت امنیت مالی رو به کاربراش عرضه میکنه
+
+⚡️ از همه‌مهم‌تر واریز و برداشت در ریتزوبت کاملا خودکار و اتوماتیک انجام میشه تمام پرداخت جوایز زیر 15 دقیقه س
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇
+🅰8
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 10629
 
@@ -81,8 +132,6 @@ https://t.me/+E4HUFuYfyUw1MjRk
 </div>
 
 ## tasiyanc — post 10623
-
-<div align="center"><a href="files/post_10623_@𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 𝐅𝐚𝐬𝐭 💥.txt" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 𝐅𝐚𝐬𝐭 💥.txt</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تعداد 139 سرور پر سرعت V2Ray 🔐🔐🔐
@@ -275,61 +324,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10610
-
-<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
-</div>
-
-## tasiyanc — post 10609
-
-<div align="center"><video src="files/post_10609_tasiyanc_10609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10609_tasiyanc_10609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سونامی استعفاء معلمان و فریاد از خفقان معیشتی و کمبود درامد
-
-شدیدترین موج استعفا در ایران طی ۷۲ ساعت اخیر رخ داده! طی چند روز اخیر، شدیدترین موج استعفای تاریخ ایران اتفاق افتاده و پرستاران، معلمان و کارمندان به علت حقوق بسیار پایین، از کارشون استعفا دادن! به قدری این موج استفعا شدید بوده که خیلی از بیمارستان‌ها خالی از کادر درمان شده!
-خیلی از کلاس‌های درس هم دیگه معلمی برای آموزش وجود نداره و صدها نفر استعفا دادن.
-‌
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10608
-
-<div align="center"><img src="files/post_10608_tasiyanc_10608.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽ اسپانیا 🇪🇸 - 🇭🇷 کرواسی
-🏆 لیگ ملت‌های اروپا‌ 🏆
-🕔 سه‌شنبه ساعت ۲۲:۱۵
-📍 ورزشگاه رامون سانچز پیس‌خوان
-🎲 با بیش از ۶۵۰ نوع آپشن پیش‌بینی
-👆 ضرایب شگفت‌انگیز
-
-📊 نگاهی به آمار دو تیم:
-✅ اسپانیا: ۸ برد و ۲ تساوی در ۱۰ بازی اخیر.
-✅ کرواسی: ۶ برد و ۴ شکست در ۱۰ بازی اخیر.
-📈 میانگین گل در ۱۰ بازی اخیر اسپانیا: ۲.۳ گل در هر بازی.
-📈 میانگین گل در ۱۰ بازی اخیر کرواسی: ۳.۳ گل در هر بازی.
-
-🧠 بازی با برنامه، لذت را ماندگار می‌کند.
-
-
-👍 ورود به سایت با فیلترشکن
-
-کلیک کنید BetForward.com
-کلیک کنید BetForward.com
-
-🟢 دریافت سرورفیلترشکن رایگان
-🅰r7
-💻 @BetForward
 </div>
 
