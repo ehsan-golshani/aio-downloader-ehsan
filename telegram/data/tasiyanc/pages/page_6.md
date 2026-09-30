@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/07 20:50
+📅 آخرین بروزرسانی: 1405/07/08 04:22
 
 ---
+
+## tasiyanc — post 10509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
+</div>
+
+## tasiyanc — post 10508
+
+<div align="center"><img src="files/post_10508_tasiyanc_10508.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+1🅰
+🛒 ورود به سایت 👇
+✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10507
 
@@ -298,37 +328,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 دوماد رفته برا همه اعضای خانواده عروس، حتی برا خدمتکارشون هم آیفون ۱۸ خریده!!!
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10482
-
-<div align="center"><video src="files/post_10482_tasiyanc_10482.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10482_tasiyanc_10482.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨همزمان با تهدید‌های ترامپ در سازمان ملل علیه جمهوری اسلامی؛ این ویدیو از آزمایش بمب اتمی در روبیکا و شبکه های مجازی داخلی وایرال شده
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10481
-
-<div align="center"><video src="files/post_10481_tasiyanc_10481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10481_tasiyanc_10481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ در سازمان ملل:
-
-ـ زنمم تو سالنه، کجایی خانم؟ کجایی؟ آها،
-اون فوق العادست عالیه، به افتخار اون یه دست بزنید.
-اون باعث برگشت هزاران کودک آواره اوکراینی و روسی به آغوش خونواده هاشون شده.
-
-
-
-💋 @Tasiyanc
 </div>
 

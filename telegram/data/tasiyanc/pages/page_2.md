@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/07 20:50
+📅 آخرین بروزرسانی: 1405/07/08 04:22
 
 ---
+
+## tasiyanc — post 10597
+
+<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️‍🔥
+
+نمک آبرود زیبا « استان مازندران »
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10595
 
@@ -257,30 +284,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴ویدیو وایرال شده تغییر کاربری لنج های جنوب کشور «که از عمان و امارات بار میاوردن» به قایق های تفریحی
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10574
-
-<div align="center"><img src="files/post_10574_tasiyanc_10574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این زن شوهری که نیم تن وزن داشتن باعث شدن یه ساختمون هنگام سکسشون بریزه.
-
-یه زوج در لیورپول که وزنشون روی همدیگه ۵۰۰ کیلو گرم بود(مرده ۲۹۰ و زنش ۲۰۰) توی اتاق خوابشون بودن حین رابطه جنسی بودن که ساختمون ۲۵۰ ساله فرو میریزه! همسایه گفته بودن که ساختمون خودش قدیمی بوده و پیش بینی میکردن که ساختمون فرو میریزه ولی بی توجهی کردن و تلمبه‌ها و وزن این زن و شوهر هم بی تاثیر نبوده.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10571
-
-<div align="center"><img src="files/post_10571_tasiyanc_10571.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: گوگل ایرانیا رو تحریم کرده و از این به بعد مردم ایران دیگه نمیتونن حساب جدید جیمیل بسازن!
-
-« فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
 
 @Tasiyanc
 </div>

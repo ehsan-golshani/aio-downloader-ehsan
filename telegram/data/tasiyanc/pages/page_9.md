@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/07 20:50
+📅 آخرین بروزرسانی: 1405/07/08 04:22
 
 ---
+
+## tasiyanc — post 10437
+
+<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼امروز 20 September روز جهانی قدردانی از همسره
+👼
+
+بفرس براش 
+🌹
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10436
+
+<div align="center"><img src="files/post_10436_tasiyanc_10436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10434
 
@@ -304,45 +332,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 بانو در حین تلاش برای شکستن رکورد بیشترین تعداد سکس تو ۲۴ ساعت، دقایقی بعد از آغاز عملیات یکی از مردایی که باهاش رابطه داشت پاشید تو صورتش و بیناییش بشدت به مشکل خورد و راهی بیمارستان شد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10412
-
-<div align="center"><video src="files/post_10412_tasiyanc_10412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10412_tasiyanc_10412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁بعضی موقع ها، سخت‌ترین رقابت دنیا…
-همونیه که توی ذهن خودت اتفاق می‌افته. 🧠💡⚡️
-
-یکی می‌گه «بی‌خیال، بخواب»
-یکی می‌گه «یه کم هیجان لازم داری» 🚬
-
-کدوم شخصیتِ ذهنت برنده می‌شه؟
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-📱🤖 دانلود مستقیم اپلیکیشن اندروید
-
-😀 آدرس ثابت وبسایت
-
-✈️ عضویت کانال تلگرام
-
-📷مشاهده پروفایل اینستاگرام
-
-لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
-۱۸+ | مسئولانه بازی کن
 </div>
 

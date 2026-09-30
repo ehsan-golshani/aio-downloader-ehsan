@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/07 20:50
+📅 آخرین بروزرسانی: 1405/07/08 04:22
 
 ---
+
+## tasiyanc — post 10462
+
+<div align="center"><video src="files/post_10462_tasiyanc_10462.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10462_tasiyanc_10462.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣
+🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
+🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
+</div>
+
+## tasiyanc — post 10461
+
+<div align="center"><video src="files/post_10461_tasiyanc_10461.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10461_tasiyanc_10461.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝
+0️⃣2️⃣
+🔤سود برد برای اولین واریز روزانه👀
+
+😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
+🥹
+💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌
+
+
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه نمایید.😀
+
+🤖 ادرس سایت: 🅰g30
+
+👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+📨 کانال تلگرام :
+
+👍 https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10460
 
@@ -246,33 +285,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده
 « مشاهده »
-</div>
-
-## tasiyanc — post 10437
-
-<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼امروز 20 September روز جهانی قدردانی از همسره
-👼
-
-بفرس براش 
-🌹
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10436
-
-<div align="center"><img src="files/post_10436_tasiyanc_10436.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
-
-
-💋 @Tasiyanc
 </div>
 

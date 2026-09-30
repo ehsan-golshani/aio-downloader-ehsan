@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/07/07 20:50
+📅 آخرین بروزرسانی: 1405/07/08 04:22
 
 ---
+
+## tasiyanc — post 9087
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+•مولتی لوکیشن 
+📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9086
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سنایِ آمریکا طرح تحریم‌های جدید علیه روسیه و ایران با نام «لیندسی گراهام» رو تصویب کرد.
+
+86 رأی موافق ، 11 رأی مخالف.
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9085
 
@@ -340,27 +368,5 @@ r16
 
 @TASIYANC 
 ✅
-</div>
-
-## tasiyanc — post 9065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[SuperFast] @Tasiyanc 🔥.npvt
-</div>
-
-## tasiyanc — post 9064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-•مولتی لوکیشن 📍
-
-•آموزش اتصال ⚡️
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
 </div>
 
