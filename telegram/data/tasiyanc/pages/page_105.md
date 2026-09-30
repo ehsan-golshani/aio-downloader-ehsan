@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 7702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیا زد 💔
+</div>
 
 ## tasiyanc — post 7701
 
@@ -217,11 +223,5 @@ VIP 🎯 @Tasiyanc.nm
 🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺🔺
 
 @Tasiyanc | اتصال امن ✅
-</div>
-
-## tasiyanc — post 7673
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آخر اسم چنل کلمه VPN اضافه شد
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 143
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 6392
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️
+</div>
 
 ## tasiyanc — post 6391
 
@@ -224,22 +230,5 @@ Vertical 2:3, high-end cinematic photography, professional depth of field, cinem
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡All Operators ⚡.npvt
-</div>
-
-## tasiyanc — post 6361
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  😏
-
-4سرور   سرعتی پرمیوم 🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
-
-دانلود  NPV tunnel  🌐
-
-😬Password :″  @Tasiyanc  ″
-
-✔️ @Tasiyanc 
-✅
 </div>
 

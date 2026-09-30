@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 9561
+
+<div align="center"><img src="files/post_9561_tasiyanc_9561.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃😃
+😃
+         
+😃
+😃😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9560
 
@@ -305,11 +348,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درک نمیکنم چطوری برخی‌کانالها دارن مطالب طنز میزارن
 </div>
 

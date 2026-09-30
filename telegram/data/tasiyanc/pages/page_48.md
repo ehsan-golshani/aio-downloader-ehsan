@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 9426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
 
 ## tasiyanc — post 9425
 
@@ -197,11 +210,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 فووووری
 
 ترامپ: توافق با ایران را لغو خواهیم کرد
-</div>
-
-## tasiyanc — post 9403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
 </div>
 

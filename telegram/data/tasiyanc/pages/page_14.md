@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10327
+
+<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
+
+نیرویی خواستید مشتاق همکاری هستیم 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10326
 
@@ -289,19 +304,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 
 + استقلال یکی از جوان‌ترین تیمای ایرانه امسال
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10297
-
-<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی !
-توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
-
-یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
-
-عکس مربوط به کلاب M4 Dundas هست
-💋 @Tasiyanc
 </div>
 

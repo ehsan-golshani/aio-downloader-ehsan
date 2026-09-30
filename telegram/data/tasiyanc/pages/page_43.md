@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 9540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درک نمیکنم چطوری برخی‌کانالها دارن مطالب طنز میزارن
+</div>
 
 ## tasiyanc — post 9539
 
@@ -326,17 +332,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9517
-
-<div align="center"><img src="files/post_9517_tasiyanc_9517.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 آخرین آپدیت قیمت گوشی های پرطرفدار .
-
-+ قیمت برخی مدل‌ها بدون ریجستر حساب شده ، منابع رو چک کنید تو بنر زدم
-
-🩸 @Tasiyanc
 </div>
 

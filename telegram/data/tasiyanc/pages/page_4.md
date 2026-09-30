@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10556
+
+<div align="center"><img src="files/post_10556_tasiyanc_10556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰g4
+</div>
 
 ## tasiyanc — post 10555
 
@@ -279,17 +297,5 @@ https://t.me/+aeze7JXKVfU2NmNk
 🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

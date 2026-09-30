@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10513
+
+<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گندم کوچولو
+
+لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10512
 
@@ -319,11 +332,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 R1
 🔗 ثبت نام و ورود به بخش پیشبینی💵
 https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 31🅰 🛒 ورود به سایت 👇 ✅ https://oqleixugysh.shop/fa/affiliates/?…
 </div>
 

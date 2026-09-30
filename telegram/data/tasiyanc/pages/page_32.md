@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 9839
+
+<div align="center"><img src="files/post_9839_tasiyanc_9839.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ:
+
+دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
+
+🩸@Tasiyanc
+</div>
 
 ## tasiyanc — post 9838
 
@@ -258,16 +270,5 @@ til.ac/0L4vyJf
 🚨 هم اکنون حملات موشکی از اکثر شهرهای ایران به سمت پایگاه‌های آمریکا
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9818
-
-<div align="center"><img src="files/post_9818_tasiyanc_9818.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیچ جای نگرانی نیست، حجابش کامله!
-
-
-🩸 @Tasiyanc
 </div>
 

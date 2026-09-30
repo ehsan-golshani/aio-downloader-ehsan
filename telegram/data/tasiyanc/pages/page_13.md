@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10348
 
@@ -320,20 +329,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10327
-
-<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
-
-نیرویی خواستید مشتاق همکاری هستیم 😐
-
-
-💋 @Tasiyanc
 </div>
 

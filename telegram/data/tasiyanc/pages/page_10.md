@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10418
+
+<div align="center"><video src="files/post_10418_tasiyanc_10418.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10418_tasiyanc_10418.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده از سوفیا ترنر تیک‌تاکر در مورد مردای ایرانی
+
+این خانم خارجی میگه مرد های ایرانی خوش تیپن، خانواده دوستن، وفادارن، کادو میخرن و مثل یک هدیه الهی هستند. بیشتر به مرد های ایرانی در کشورمون نیاز داریم. جالبی قضیه میدونید کجاست؟ در نظرات، خانم های خارجی همه تایید کردند ولی کامنت زنان ایرانی همه منفی بود
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10417
 
@@ -329,15 +343,5 @@ Act as a motivational coach
 هنوز جای زخمای سیدنی سویینی تموم نشده بود ، که هم اکنون بانو مگان‌فاکس از مارک صابونش رونمایی کرد و قراره زخمی‌ترمون کنه 😍😂
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇸🇪
-
-@Tasiyanc
 </div>
 

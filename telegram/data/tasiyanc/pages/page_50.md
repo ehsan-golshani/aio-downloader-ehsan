@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 9372
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
+
+بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9370
 
@@ -242,11 +251,5 @@ g25
 🔴سرزمین های جدا شده از ایران عزیز در ۵۰۰ سال گذشته !
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9350
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-معاوضه امیر با دسته بیل
 </div>
 

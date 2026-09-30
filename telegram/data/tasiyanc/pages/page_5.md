@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/08 09:43
+📅 آخرین بروزرسانی: 1405/07/08 16:21
 
 ---
+
+## tasiyanc — post 10535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10534
 
@@ -267,18 +279,5 @@ G2🅰
 
 اما اونجا راشا به کمک مروارید، به خواهر پارسا یعنی ستایش که فقط 17 سالش بوده تجاوز میکنن، کتکش میزنن و فیلمشو میفرستن برای پارسا!!
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10513
-
-<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گندم کوچولو
-
-لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
-
-
-💋 @Tasiyanc
 </div>
 
