@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/08 04:22
+📅 آخرین بروزرسانی: 1405/07/08 09:43
 
 ---
+
+## tasiyanc — post 9838
+
+<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
+
++ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9837
+
+<div align="center"><video src="files/post_9837_tasiyanc_9837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9837_tasiyanc_9837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دارو هارو ببینید نسبت به سال گذشته فاجعه بار کشیده بالا ...
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی
+
+هر دلار 218000
+
+طلای ۱۸ عیار 22.500.000
+
+سکه تمام بهار 222.600.000
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9835
 
@@ -226,34 +267,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچ جای نگرانی نیست، حجابش کامله!
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
-+ متاسفانه این حادثه کشته داده
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تسنیم:
-آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
 
 🩸 @Tasiyanc
 </div>

@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/08 04:22
+📅 آخرین بروزرسانی: 1405/07/08 09:43
 
 ---
+
+## tasiyanc — post 10370
+
+<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10369
+
+<div align="center"><video src="files/post_10369_tasiyanc_10369.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10369_tasiyanc_10369.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیشب تو تهران دوتا دختر با موتورشون چند ساعت پشت یه ماشین تو ترافیک گیر کرده بودن؛ وقتی که خسته میشن، میان پایین و می‌بینن اصلا ماشینه راننده نداره و طرف پارک
+کرده رفته😂
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥇معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10367
 
@@ -287,66 +320,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10348
-
-<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
-
-22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
-روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
-
-مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10347
-
-<div align="center"><video src="files/post_10347_tasiyanc_10347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10347_tasiyanc_10347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تبلیغ عجیب شرکت سونی در سال ۲۰۰۵ صحنه های زیبایی در خیابانهای آمریکا خلق کرد اما ؛
-
-جولای ۲۰۰۵ سونی ۲۵۰هزار توپ رنگارنگ را در خیابان‌های سن‌فرانسیسکو انداخت تا تلویزیون LCD براویا را تبلیغ کند.
-علیرغم پاکسازی گسترده با تورهای غول‌پیکر، تیم‌های پاکسازی، جاروبرقی‌های صنعتی، و جایزه نقدی به کودکان هزاران عدد از آنها به گوشه و کنار محله گریختند و سال‌ها پیدا می‌شدند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10346
-
-<div align="center"><video src="files/post_10346_tasiyanc_10346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10346_tasiyanc_10346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال 
-⛓
-
-دانلود اندروید نسخه جدید 
-
-نسخه جدید حتما دانلود کنید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده
-⭕️
-
-
-مناسب دانلود 
-⬇️ ترید 
-🤑 اینستاگرام 
-📸 جمنای 
-🤖
-
-
-
-
-💋 @TASIYANC
 </div>
 

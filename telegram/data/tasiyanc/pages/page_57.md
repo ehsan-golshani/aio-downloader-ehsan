@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/07/08 04:22
+📅 آخرین بروزرسانی: 1405/07/08 09:43
 
 ---
+
+## tasiyanc — post 9185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸ترامپ:
+
+ایرانی‌ها با ما بازی می‌کنند، در اتاق‌های جلسات موافقت می‌کنند و در رسانه‌ها رد می‌کنند.
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 9183
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معتبرترین سایت بین المللی شرط بندی که به ایرانیا خدمات میده✅
+وقتش رسیده قید سایتا ایرانی بزنی و توی سایت بین المللی فعالیت کنی⚠️
+https://t.me/+fxq9NcirUag3N2Zk
+</div>
 
 ## tasiyanc — post 9182
 
@@ -314,67 +353,5 @@ A candid, natural night photograph of a young, stylish Middle Eastern couple emb
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9161
-
-<div align="center"><video src="files/post_9161_tasiyanc_9161.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9161_tasiyanc_9161.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت جدید اختصاصی 
-🆕
-
-"Dark Luxury Noir Suit Portrait"
-
-Prompt 
-🤖🤖
-
-A high-contrast black and white studio portrait of a handsome Middle Eastern man with styled dark hair and a neat, full beard. He is wearing a tailored dark suit, crisp white dress shirt, and a sleek dark tie. He poses in a three-quarter view, looking thoughtfully away from the camera. One hand gently rests over the other, showcasing a luxury metallic wristwatch. Moody low-key studio lighting, dark seamless background, ultra-realistic, 8k resolution, cinematic atmosphere.
-
-
-آموزش استفاده 
-👉
-
-
-@TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙄 همه بت باز های حرفه ای دنبال 
-🔞 شکار این بونوس ها هستن
-✅لیگ های معتبر اروپایی شروع شده بهترین فرصت برای جبران ضرر های جام جهانی 
-💯
-</div>
-
-## tasiyanc — post 9159
-
-<div align="center"><video src="files/post_9159_tasiyanc_9159.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9159_tasiyanc_9159.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤔 شروع رسمی لیگ های اروپا 
-❄️
-
-🆕 بهترین فرصت برای جبران ضرر های جام جهانی با جشنواره رویایی مرداد ماه
-
-
-⚠️هر افزایش شارژ مساوی 
-2️⃣1️⃣
-🔣 شارژ بیشتر بدون محدودیت☄️
-
-به همراه 
-🤩 
-🤩🔤 کش بک باخت همه روزه:
-
-🌐 betinja.bet
-
-🌐 betinja.bet
-کانال بونوس های رایگان g19
-@betinjabet
 </div>
 
