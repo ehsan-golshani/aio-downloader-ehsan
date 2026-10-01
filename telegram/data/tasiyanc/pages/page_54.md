@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/07/09 18:39
+📅 آخرین بروزرسانی: 1405/07/09 23:58
 
 ---
+
+## tasiyanc — post 9301
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی نت مود ( ویندوز و اندروید) 📱
+
+آموزش اتصال روی اندروید⚡️
+
+آموزش اتصال روی ویندوز  ⚡️
+
+دانلود برنامه برای ویندوز 💻
+
+@TASIYANC ☑️
+</div>
+
+## tasiyanc — post 9300
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐊 crocodile
+بعد سه ماه متولد شده عشق کنید
+تو قطعیا یادتونه دیگه چقد ترکوندیم
+</div>
 
 ## tasiyanc — post 9299
 
@@ -166,8 +188,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9275
 
 ## tasiyanc — post 9274
-
-## tasiyanc — post 9273
-
-## tasiyanc — post 9272
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 150
 
-📅 آخرین بروزرسانی: 1405/07/09 18:39
+📅 آخرین بروزرسانی: 1405/07/09 23:58
 
 ---
+
+## tasiyanc — post 6241
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به یاد آنان که جسارت بیشتری از ما داشتند. 🖤
+
+پروکسی
+پروکسی
+
+@Tasiyanproxy
+</div>
+
+## tasiyanc — post 6240
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[12]⚡@Tasiyanc 🚀.conf
+</div>
 
 ## tasiyanc — post 6239
 
@@ -182,17 +199,5 @@ FAST - MCI💥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 nuclear bomb 💥.npvt
-</div>
-
-## tasiyanc — post 6219
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-NEW FAST ⚡ 🚀.npvt
-</div>
-
-## tasiyanc — post 6218
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جنگ میشه یا آتش بس برقراره؟
 </div>
 

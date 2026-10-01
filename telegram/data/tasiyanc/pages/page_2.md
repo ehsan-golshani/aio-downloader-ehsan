@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/09 18:39
+📅 آخرین بروزرسانی: 1405/07/09 23:58
 
 ---
+
+## tasiyanc — post 10624
+
+<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
+
+https://t.me/+E4HUFuYfyUw1MjRk
+https://t.me/+E4HUFuYfyUw1MjRk
+
+🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
+
+## tasiyanc — post 10623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد 139 سرور پر سرعت V2Ray 🔐🔐🔐
+
+⚡️ پروتکل : 𝐕𝐥𝐞𝐬𝐬 | 𝐕𝐦𝐞𝐬𝐬 | 𝐒𝐒 | 𝐓𝐫𝐨𝐣𝐚𝐧
+
+متصل با تمام اپراتورها 🛜🛜🛜🛜🛜🛜
+
+اختصاصی، کل سرور ها تست شده
+
+فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
+
+دانلود V2Box نسخه اندروید🔐
+دانلود V2Box نسخه iOS 🔐
+
+دانلود Npv Tunnel نسخه اندروید🔐
+دانلود Npv Tunnel نسخه iOS🔐
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10622
 
@@ -280,28 +319,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Tasiyan | تاسیان pinned a file
-</div>
-
-## tasiyanc — post 10603
-
-<div align="center"><img src="files/post_10603_tasiyanc_10603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10602
-
-<div align="center"><video src="files/post_10602_tasiyanc_10602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10602_tasiyanc_10602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هجوم مسافران ایرانی‌ به جزیره کیش در پی بسته شدن پروازها به خارج !
-
-با افزایش نجومی قیمت دلار و بسته شدن مسیرهای هوایی به‌ویژه به  دوبی ، متقاضیان سفر به جزیره زیبای مرجانی کیش رشد فزاینده و  ‌چشمگیری داشته است و مورد استقبال هموطنان در داخل کشور قرار گرفته است
-@Tasiyanc
 </div>
 

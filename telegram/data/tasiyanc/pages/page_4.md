@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/09 18:39
+📅 آخرین بروزرسانی: 1405/07/09 23:58
 
 ---
+
+## tasiyanc — post 10580
+
+<div align="center"><video src="files/post_10580_tasiyanc_10580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10580_tasiyanc_10580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴این روزا دزدها در کمین هستن تا گوشی و اشیای گران‌قیمت مردمو سرقت کنن ، خیلی مراقب باشید بخصوص دختر خانوما
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
+
+Location 🇺🇸
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10578
 
@@ -250,26 +273,5 @@ https://AmitisBet.com/
 کاری که می‌خوان بکنن اینه که فوراً تنگه هرمز رو باز کنن. می‌دونید چرا؟ چون دارن نابود میشن؛ پولی دیگه وارد کشورشون نمیشه، پولشون از تنگه هرمز میاد و در واقع خودشون سر خودشون کلاه گذاشتن. گفتن تنگه رو می‌بندیم تا برای دنیا مشکل درست کنیم؛ بعد من اومدم و بزرگ‌ترین محاصره نظامی تاریخ رو ایجاد کردیم؛ یه دیوار فولادی.
 حالا چی شده؟ دیگه پولی ندارن، چون خودشون می‌خواستن تنگه رو ببندن. منم گفتم خیلی خب، ما تنگه رو روی خودتون می‌بندیم، ولی بقیه می‌تونن ازش استفاده کنن.
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10558
-
-<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
-
-دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️عضویت کانال آنالیز محدوده رفقا؛ اگه اهل بتی ، خودتو برسون 👇🔥
-
-https://t.me/+NB1g7r1k_5I2ODE0
-https://t.me/+NB1g7r1k_5I2ODE0
 </div>
 

@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/09 18:39
+📅 آخرین بروزرسانی: 1405/07/09 23:58
 
 ---
+
+## tasiyanc — post 10603
+
+<div align="center"><img src="files/post_10603_tasiyanc_10603.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10602
+
+<div align="center"><video src="files/post_10602_tasiyanc_10602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10602_tasiyanc_10602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هجوم مسافران ایرانی‌ به جزیره کیش در پی بسته شدن پروازها به خارج !
+
+با افزایش نجومی قیمت دلار و بسته شدن مسیرهای هوایی به‌ویژه به  دوبی ، متقاضیان سفر به جزیره زیبای مرجانی کیش رشد فزاینده و  ‌چشمگیری داشته است و مورد استقبال هموطنان در داخل کشور قرار گرفته است
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10601
 
@@ -273,28 +296,5 @@ https://t.me/+kt_bsasgniphZmZk
 🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10580
-
-<div align="center"><video src="files/post_10580_tasiyanc_10580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10580_tasiyanc_10580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴این روزا دزدها در کمین هستن تا گوشی و اشیای گران‌قیمت مردمو سرقت کنن ، خیلی مراقب باشید بخصوص دختر خانوما
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
-
-Location 🇺🇸
-
-💋 @Tasiyanc
 </div>
 
