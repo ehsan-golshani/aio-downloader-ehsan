@@ -1,8 +1,187 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/09 02:00
+📅 آخرین بروزرسانی: 1405/07/09 18:39
 
 ---
+
+## tasiyanc — post 10556
+
+<div align="center"><img src="files/post_10556_tasiyanc_10556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰g4
+</div>
+
+## tasiyanc — post 10555
+
+<div align="center"><video src="files/post_10555_tasiyanc_10555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10555_tasiyanc_10555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ایلان ماسک مجوزهای مهمی برای اتصال مستقیم گوشی‌‌ها به ماهواره استارلینک گرفته؛
+
+فناوری‌ای که در صورت فراهم شدن دسترسی تو ایران، می‌تونه وابستگی به اینترنت و زیرساخت‌های ارتباطی داخلی رو خیلی خیلی کمتر کنه.
+اینترنت ماهواره‌ای حالا یه قدم دیگه به گوشی‌های معمولی نزدیک‌تر شده؛
+فناوری Starlink Direct to Cell قراره کاری کنه که گوشی‌های سازگار، تو جاهایی که آنتن موبایل وجود نداره، مستقیماً به ماهواره استارلینک وصل بشن؛ یعنی دیگه لزوماً نیازی به دیش استارلینک نیست.
+اسپیس ایکس هم داره این فناوری رو با همکاری اپراتورهای کشورهای مختلف گسترش میده.
+برای ایران هم اگه این فناوری قابل استفاده بشه، می‌تونه قطع کامل ارتباطات رو خیلی سخت‌تر یا عملا غیرممکن کنه.
+@TaSiyanc
+</div>
+
+## tasiyanc — post 10554
+
+<div align="center"><video src="files/post_10554_tasiyanc_10554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10554_tasiyanc_10554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر تو دبی خونه خریده و داره از کص‌و کونش 🍑 تشکر میکنه که باعث شدن خونه بخره.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10553
+
+<div align="center"><video src="files/post_10553_tasiyanc_10553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10553_tasiyanc_10553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت آیفون 16 پرومکس توسط سارق در محله منیریه تهران
+
+دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10552
+
+<div align="center"><video src="files/post_10552_tasiyanc_10552.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10552_tasiyanc_10552.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت اختصاصی جدید
+
+«گنگ‌ترین عکسی که میتونی با پدر و مادرت داشته باشی»
+
+
+STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual blueprint; do not redesign or reinterpret. Use the 3 uploaded portraits ONLY for identity: Face 1 → seated older man LEFT, Face 2 → seated older woman RIGHT, Face 3 → younger man standing CENTER BACK. EXACTLY 3 people. 9:16 full-body portrait. Match reference camera, crop, framing, proportions, poses and spacing. Two older subjects sit together on ONE large ornate dark antique leather armchair; younger man stands directly behind them, centered, head between theirs. Show entire chair, both seated subjects head-to-shoes, standing man to mid-thigh. Preserve cane, prayer beads, hands, legs and shoe positions exactly. All wear black. Man: black suit, shirt, trousers, polished shoes, holding vertical black decorative cane with prayer beads. Woman: elegant black formal outfit, gloves, vintage black hat, pointed shoes. Younger man: fitted black suit and shirt, no tie. Dark textured charcoal studio background and floor, subtle vignette. Dramatic low-key black-and-white lighting, soft upper front-left key, deep shadows, gentle rim light, fine film grain. ABSOLUTE IDENTITY LOCK: preserve each reference face exactly—geometry, eyes, nose, lips, jaw, hairline, facial hair, age and natural skin texture. No beautification, blending or identity drift. Ultra-photorealistic professional 85mm photography, natural anatomy, realistic skin/fabric/leather/wood. No CGI, painting, 3D, HDR, extra people, limbs, fingers, text, watermark or UI. 250
+
+
+🟢وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10550
+
+<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10549
+
+<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
+https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 10547
+
+<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول دو برابر شارژ میشی😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15% شارژ اضافی برای شارژ ارزی
+➕50% بونوس جمعه برای شرط بندی
+➕50% بونوس دوشنبه برای کازینو
+➕100 اسپین رایگان هفتگی
+➕20% کش بک روزانه برای کازینو
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🥇دنیای افرهای بی نظیر در ژتون بت👀
+
+🖥️ادرس ورود به سایت:
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇🅰3
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 10546
+
+<div align="center"><img src="files/post_10546_tasiyanc_10546.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق مطالعات، رابطه جنسی می‌تونه نقش مهمی در ماندگاری و صمیمیت رابطه داشته باشه.
+
+•تحقیقات منتشرشده نشان می‌دهند که بیشتر زوج‌های دارای رضایت بالا، رابطه جنسی منظمی حدود هفته‌ای یک‌بار دارند.
+•زوج‌های خوشحال بدون رابطه جنسی، در این مطالعه فقط حدود ۲.۳٪ بودند.
+•سکس فقط لذت نیست؛ وقتی همراه با اعتماد و امنیت باشه، می‌تونه به صمیمیت بیشتر زوج‌ها کمک کنه.
+منبع: Journal of Family Psychology
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10545
 
@@ -118,162 +297,5 @@ https://t.me/+aeze7JXKVfU2NmNk
 🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10534
-
-<div align="center"><img src="files/post_10534_tasiyanc_10534.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r3🅰
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
-</div>
-
-## tasiyanc — post 10532
-
-<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
-
-📢 در سایت بری بت وارد حساب کاربری خود شوید.
-
-💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
-
-🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
-
-✅ ورود به سایت:👇🅰g2
-⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-🌟 کانال رسمی ما در تلگرام: 👇
-🔗 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10531
-
-<div align="center"><img src="files/post_10531_tasiyanc_10531.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون فر بخوره از حرومزادگی یه بلاگر
-
-🚨چند وقت پیش امیر سلیمانی - بلاگرِ طنز بعد یه مدت دوری از فضای مجازی، با یه ویدئوی گریه زاری برگشت و گفت که سرطان گرفتم!
-دیگه از همون روز به بعد، مردمِ دلسوز ایران حمایت عجیبی از ایشون کردن و پیجش میلیونی شد و دوباره به رونق رسید.
-حالا پلیس پیگیر شده و فهمیده اون حرومزاده خوشبختانه اصلا سرطان نداشته، همه اون ظاهر هم گریم بوده!
-الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10530
-
-<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده
-
-غروب، پاییزی .
-🍃
-
-
-A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
-
-
-وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10529
-
-<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
-قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
-می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
-این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
-این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10527
-
-<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10526
-
-<div align="center"><video src="files/post_10526_tasiyanc_10526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10526_tasiyanc_10526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : دشمنان پس‌از حمله ۷ اکتبر خیال کردن ما فرومیپاشیم ولی ما بپا خواستیم و مثل شیر جنگیدیم و نابودشون کردیم!
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10525
-
-<div align="center"><video src="files/post_10525_tasiyanc_10525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10525_tasiyanc_10525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10524
-
-<div align="center"><video src="files/post_10524_tasiyanc_10524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10524_tasiyanc_10524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-می‌دونستید همه این شاهکارهارو ایشون خونده؟
-
-#N @Tasiyanc
 </div>
 
