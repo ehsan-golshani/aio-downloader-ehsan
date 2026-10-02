@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10649
+
+<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
+یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10648
 
@@ -302,18 +314,5 @@ https://AmitisBet.com/
 به دستگاه‌های امنیتی دستور داده‌ام برای مقابله با تهدیدهای احتمالی دیگر آماده باشند.»
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10628
-
-<div align="center"><video src="files/post_10628_tasiyanc_10628.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10628_tasiyanc_10628.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هشدار
-به هیچ‌وجه در مراسم های تولد، کیک را به صورت کسی نکوبید , اکثر کیک ها داخلشون خلال چوبی و ... وجود داره که ممکنه طرف کور شه یا آسیب جدی ببینه .
-
-⚡ @Tasiyanc
 </div>
 

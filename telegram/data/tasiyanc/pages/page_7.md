@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10519
+
+<div align="center"><img src="files/post_10519_tasiyanc_10519.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G2🅰
+🛒 ورود به سایت 👇
+✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10518
 
@@ -321,20 +345,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 فاطمه ۷ سال بود ازدواج کرده بود ‌و از همون اول با شوهرش اختلاف داشت تا یهو ۴ سال بعد از ازدواج شوهرش تصادف میکنه و قطع نخاع میشه ولی فاطمه بازم میمونه و ازش نگهداری میکنه ولی مرده به فاطمه مشکوک میشه و دوباره دعواشون میشه و این بار فاطمه میره خونه پدرش و درخواست طلاق میده. مرده احساس ندامت میکنه و هر طور شده راضی می‌کنه تا برگرده فاطمه، ولی وقتی فاطمه برمیگرده شب که میخوابه؛ مرده باهمکاری یکی از دوستاش در ۱۵ شهریور تو خواب فاطمه رو خفه میکنن و بعد در ۱۶ شهریور با کمک پدر و مادرش میندازنش تو چاه ۷۰ متری.
 درس زندگی : به هر مادر*نده ای نباید محبت کرد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10491
-
-<div align="center"><video src="files/post_10491_tasiyanc_10491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10491_tasiyanc_10491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اولین روز مدرسه در ایران :
-
-لباساتونو اتو کردید؟🤣
 
 💋 @Tasiyanc
 </div>

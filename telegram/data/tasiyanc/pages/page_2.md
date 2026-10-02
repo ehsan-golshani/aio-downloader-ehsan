@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10628
+
+<div align="center"><video src="files/post_10628_tasiyanc_10628.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10628_tasiyanc_10628.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هشدار
+به هیچ‌وجه در مراسم های تولد، کیک را به صورت کسی نکوبید , اکثر کیک ها داخلشون خلال چوبی و ... وجود داره که ممکنه طرف کور شه یا آسیب جدی ببینه .
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10626
 
@@ -307,11 +320,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨ برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥 هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀 یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز…
 </div>
 

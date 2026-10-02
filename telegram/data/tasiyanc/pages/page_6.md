@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10540
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+aeze7JXKVfU2NmNk
+https://t.me/+aeze7JXKVfU2NmNk
+</div>
 
 ## tasiyanc — post 10539
 
@@ -257,29 +266,5 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G2🅰 🛒 ورود به سایت 👇 ✅ https://oqleixugysh.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10519
-
-<div align="center"><img src="files/post_10519_tasiyanc_10519.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G2🅰
-🛒 ورود به سایت 👇
-✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

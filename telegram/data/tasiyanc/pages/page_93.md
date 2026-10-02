@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 8222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⁉️پل ارتباطی جم سیراف رو هم زدن
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8221
 
@@ -163,16 +171,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Ohhh
-</div>
-
-## tasiyanc — post 8200
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🚨
-🚨 تمامی پرواز های ایران هم اکنون کنسل شد
-
-@Tasiyanc 
-⭐️
 </div>
 

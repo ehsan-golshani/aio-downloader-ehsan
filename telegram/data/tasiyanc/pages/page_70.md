@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 8901
+
+<div align="center"><img src="files/post_8901_tasiyanc_8901.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ:
+
+در حال نابودی کامل ارزش پول ایران هستم. در شروع دوران ریاست جمهوری من دلار ۹۰ هزار تومن بوده و الان شده ۱۹۶ هزار تومن.
+
+🔱 @TASIYANC
+</div>
 
 ## tasiyanc — post 8900
 
@@ -306,13 +318,5 @@ a9
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8875
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است
-
-@TASIYANC ⭐️
 </div>
 

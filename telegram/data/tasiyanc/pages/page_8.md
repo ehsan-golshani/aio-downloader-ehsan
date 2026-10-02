@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10491
+
+<div align="center"><video src="files/post_10491_tasiyanc_10491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10491_tasiyanc_10491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اولین روز مدرسه در ایران :
+
+لباساتونو اتو کردید؟🤣
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10490
 
@@ -258,17 +272,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 R31
 🔗 ثبت نام و ورود به بخش پیشبینی💵
 https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10471
-
-<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
-
-این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
-
-💋 @Tasiyanc
 </div>
 

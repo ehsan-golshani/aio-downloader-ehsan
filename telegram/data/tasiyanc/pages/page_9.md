@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10471
+
+<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
+
+این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10470
 
@@ -289,19 +301,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10448
-
-<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
-این کشور اولین کشور درجهانه که اینکارو میکنه.
-یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
-
-
-
-💋 @Tasiyanc
 </div>
 

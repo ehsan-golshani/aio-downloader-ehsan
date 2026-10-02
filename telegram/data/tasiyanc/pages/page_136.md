@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 136
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 6648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔩⭕️⭕️ امشب بمباران وحشتناکی در راه است
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6647
 
@@ -183,11 +191,5 @@ vless://d39664df-5bc0-4f49-9894-8f03b4150082@germany-vip.soft26.ir:8443?mode=aut
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP - ملی شکن ⚡🇩🇪🇳🇱🇮🇹.npvt
 </div>
 

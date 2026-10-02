@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10583
+
+<div align="center"><img src="files/post_10583_tasiyanc_10583.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+kt_bsasgniphZmZk
+https://t.me/+kt_bsasgniphZmZk
+🅰g5
+🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
+</div>
 
 ## tasiyanc — post 10582
 
@@ -251,20 +267,6 @@ https://AmitisBet.com/
 🔴 این بانو قهرمان میس المپیا 2026 شد
 
 
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10561
-
-<div align="center"><video src="files/post_10561_tasiyanc_10561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10561_tasiyanc_10561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمای آدم فر میخوره رسما !
-
-تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
 
 @Tasiyanc
 </div>

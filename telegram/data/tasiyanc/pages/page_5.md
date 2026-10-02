@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10561
+
+<div align="center"><video src="files/post_10561_tasiyanc_10561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10561_tasiyanc_10561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای آدم فر میخوره رسما !
+
+تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10560
 
@@ -284,14 +298,5 @@ https://jhet0n.online/fa/?btag=2786270
 حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
 </div>
 

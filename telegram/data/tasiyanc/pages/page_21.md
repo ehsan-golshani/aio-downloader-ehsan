@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 10147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوروارد ۲ پست پرامپت بالارو به ۵۰۰ برسونید وایرال شه ❤️
+</div>
 
 ## tasiyanc — post 10146
 
@@ -322,18 +328,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

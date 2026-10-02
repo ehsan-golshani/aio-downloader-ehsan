@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 158
 
-📅 آخرین بروزرسانی: 1405/07/10 03:52
+📅 آخرین بروزرسانی: 1405/07/10 09:25
 
 ---
+
+## tasiyanc — post 6036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیام مردم بالا ببینید راجب این فیلترشکن
+</div>
 
 ## tasiyanc — post 6035
 
@@ -124,11 +130,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بیاید پارتی داریم ( گپ تاسیان)
 https://t.me/+RTGtcYWb8HdkNjdk
-</div>
-
-## tasiyanc — post 6016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc 🇬🇧.npvt
 </div>
 
