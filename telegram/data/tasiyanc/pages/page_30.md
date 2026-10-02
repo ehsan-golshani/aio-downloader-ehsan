@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9915
+
+<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9914
+
+<div align="center"><img src="files/post_9914_tasiyanc_9914.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
+
+🎲سایت بین المللی و معتبر Melbet
+
+                                 👍😁😊🙂
+🥇واریز و برداشت ارزی و ریالی‼️
+🔥بونوس 100% اولین واریز‼️
+⚽️بونوس ورزشی هرچهارشنبه‼️
+🆗کازینو و انفجار با ضرایب جهانی‼️
+
+🎁کد هدیه ثبت نام :Melbet90
+
+🇩🇪دانلود اپلیکیشن MELBET👉
+
+🔗لینک وبسایت👉
+⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
+
+✔ https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9913
 
@@ -271,31 +309,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 🔗 آدرس عضویت کانال vip:
 https://t.me/+TmGWkUYH_8c0OWZk
 https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9893
-
-<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9892
-
-<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری
-
-با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
-
-💋 @TASIYANC
 </div>
 

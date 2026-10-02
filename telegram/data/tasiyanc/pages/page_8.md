@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 10490
+
+<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به زیباترین فصل سال خوش اومدید. 🍁🧡
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بعد از گرمای شدید هفته اول مهر ماه، اواخر هفته دوم سرمای شدید داریم و به عنوان مثال هوای مشهد بیشتر از ۲۰ درجه سرد میشه و سیستم‌های گرمایشی و بخاری‌ ها باید روشن بشه
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10488
 
@@ -249,36 +268,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
 
 این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
-
-مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
-
-تست شده روی تمام نت‌ها
-
-👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10469
-
-<div align="center"><video src="files/post_10469_tasiyanc_10469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10469_tasiyanc_10469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این گوریل 🦍 بعد دعوا با جفتش رفته یه گوشه نشسته عمیقا بفکر فرو رفته :
-
-«کیوماسا» اسم این گوریل نر که تو یه باغ‌وحش در ژاپن 🇯🇵 زندگی می‌کنه.
-
 
 💋 @Tasiyanc
 </div>

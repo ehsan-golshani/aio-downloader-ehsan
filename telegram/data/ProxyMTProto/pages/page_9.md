@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/09 23:56
+📅 آخرین بروزرسانی: 1405/07/10 03:50
 
 ---
+
+## ProxyMTProto — post 51548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.surfvpn.app
+Port: 443
+Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51547
 
@@ -172,15 +181,6 @@ Secret: ee7391242569590e01416101927d38b565686f66662e7275
 Server: server.syscloudio.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51528
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: thebirds.world
-Port: 443
-Secret: bace78f2e29ada4137186fa8b7d14f1d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 10605
+
+<div align="center"><img src="files/post_10605_tasiyanc_10605.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨
+
+برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥
+
+هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀
+یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز باشه! 🏆
+
+🎟 بلیت رایگان برای همه بازی‌ها
+🎯 انتخاب شماره و شرکت در بازی
+💰 جوایز ویژه و‌ میلیونی
+
+همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
+
+🌐 wingobingo.tv
+</div>
+
+## tasiyanc — post 10604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a file
+</div>
 
 ## tasiyanc — post 10603
 
@@ -270,31 +297,5 @@ https://t.me/+kt_bsasgniphZmZk
 https://t.me/+kt_bsasgniphZmZk
 🅰g5
 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
-</div>
-
-## tasiyanc — post 10582
-
-<div align="center"><video src="files/post_10582_tasiyanc_10582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10582_tasiyanc_10582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لیان یون‌ژی، دختر شش‌ساله چینی، رکورد جهانی در حل مکعب روبیک (در بخش زنان) به نام خود ثبت کرد.
-
-این کودک چینی در عرض سه روز،ابتدا میانگین زمانی ۴٫۵۲ ثانیه و سپس به ۴٫۲۷ ثانیه بهبود بخشید؛او به تنها دختر مکعب‌باز در جهان است که میانگین زمان حل آن کمتر از ۴٫۵ ثانیه است
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10581
-
-<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
-
-@Tasiyanc
 </div>
 

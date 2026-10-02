@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9703
+
+<div align="center"><img src="files/post_9703_tasiyanc_9703.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار 210.000 تومان 😐
+</div>
 
 ## tasiyanc — post 9701
 
@@ -271,59 +311,5 @@ til.ac/0L4vyJf
 برای همینه خانما راحت‌تر با سرماخوردگی کنار میان، آقایون پیاز داغش رو زیاد نمی کنن، بدنشون در برابر ویروس‌ها واقعا ضعیف‌تره.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9678
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📹 مرجع سایت‌های دانلود فیلم و سریال خارجی بدون سانسور
-
-+ مجموعه‌ای از سایت‌های محبوب از نظر کاربران
-
-
-📎 1. 30نما 30nama.com
-
-
-📎 2. نووی‌گراد ( پیشنهاد خودم ) novigrad.top
-
-
-📎 3. دیجی‌موویز digimoviez.com
-
-
-📎 4. فیلم‌کیو filmkio.com
-
-
-📎 5. زرفیلم zarfilm.com
-
-
-📎 6. فیلم۲مدیا film2media.com
-
-
-📎 7. الماس‌مووی almasmovie.com
-
-
-📎 8. امپایر بست تی‌وی empirebesttv.com
-
-
-📎 9. دارک‌مووی darkmovie.pro
-
-
-📎 10. موبو موویز mobomovies.pro
-
-
-📎 11. آی‌موویز imovies.org
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9677
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه درامد دلاری به جیب بزنی ✅
-همین حالا وارد کانال بت ویژن شو👇
-@Vision_Bet
-@Vision_Bet
-@Vision_Bet
 </div>
 

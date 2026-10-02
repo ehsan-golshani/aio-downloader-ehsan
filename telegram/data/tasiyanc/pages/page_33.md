@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9843
+
+<div align="center"><video src="files/post_9843_tasiyanc_9843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9843_tasiyanc_9843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9842
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9841
 
@@ -277,28 +299,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9822
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رسایی: هر چه سریعتر اینترنت رو قطع کنید
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9821
-
-<div align="center"><video src="files/post_9821_tasiyanc_9821.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9821_tasiyanc_9821.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرگزاری مهر:
-
-پدافند شرق تهران فعال شده.
-
-💋 @Tasiyanc
 </div>
 

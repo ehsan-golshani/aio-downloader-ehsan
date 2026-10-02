@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/09 23:56
+📅 آخرین بروزرسانی: 1405/07/10 03:50
 
 ---
+
+## ProxyMTProto — post 51609
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nl.cryptocurency.wiki
+Port: 443
+Secret: ee6c00d7e9bc9ea00124538e23adb69dd670782e63727970746f637572656e63792e77696b69
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51608
 
@@ -172,15 +181,6 @@ Secret: ee43b48df152c2246a45ec2f88ea52877264726976652e676f6f676c652e636f6d
 Server: premium.speed-benz.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51589
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.arixo.shop
-Port: 443
-Secret: 27e57f496bbf279605f0198ea6d26067
 @ProxyMTProto
 </div>
 

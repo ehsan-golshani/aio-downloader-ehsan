@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/09 23:56
+📅 آخرین بروزرسانی: 1405/07/10 03:50
 
 ---
+
+## ProxyMTProto — post 51468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media11.happtg.org
+Port: 443
+Secret: eeebd1e4235d2f40f68b3c3610b128157a686f66662e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51467
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e
 Server: cdnpulse.org
 Port: 443
 Secret: dd93ca4f625e3fe727f9f3b42abef3fcf6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

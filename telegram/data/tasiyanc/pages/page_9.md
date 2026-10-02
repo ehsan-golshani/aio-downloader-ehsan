@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 10470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
+
+مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
+
+تست شده روی تمام نت‌ها
+
+👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10469
+
+<div align="center"><video src="files/post_10469_tasiyanc_10469.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10469_tasiyanc_10469.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گوریل 🦍 بعد دعوا با جفتش رفته یه گوشه نشسته عمیقا بفکر فرو رفته :
+
+«کیوماسا» اسم این گوریل نر که تو یه باغ‌وحش در ژاپن 🇯🇵 زندگی می‌کنه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10468
 
@@ -270,36 +300,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 این کشور اولین کشور درجهانه که اینکارو میکنه.
 یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
 
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10447
-
-<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10446
-
-<div align="center"><video src="files/post_10446_tasiyanc_10446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10446_tasiyanc_10446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨خبرنگار حوادث:
-
-آتنا قاسمی ؛ دختر ۱۴ ساله کرجی که ۲۵ مردادماه به بهونه تولد یه پسر که رفیقش بوده از خونه خارج شد و دیگه برنگشت؛ بعد از یک ماه جسـدش در پزشکی قانونی پیدا شد که موهاشو کوتاه کرده بودن و انگار از طبقه پنجم سقوط کرده.
-این دختر ۲۵ مردادماه میگه میرم تولد یکی از دوستای اجتماعی پسرم. که یهو ساعت ۹ شب گوشیش خاموش میشه و دیگه خبری ازش نمیشه. اون پسره رو بازدداشت کردن و مشخص میشه اصلا تولدی درکار نبوده؛ چون تولد پسر ۱۲ شهریور بوده. توی اعترافاتش گفته اون روز آتنا رو سوار کردم و یه ساعت‌ بعد توی همون خیابون پیادش کردم و دیگه خبری ازش نداشتم.
-خلاصه مراقب خودتون باشید و توی روابطتون دقت کنید بخصوص دختر خانومای عزیز
 
 
 💋 @Tasiyanc

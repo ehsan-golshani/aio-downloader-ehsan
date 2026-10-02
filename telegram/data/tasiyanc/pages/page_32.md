@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9868
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
+
+## tasiyanc — post 9867
+
+<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+sa11
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+@FuckBet @FuckBet @FuckBet
+@FuckBet @FuckBet @FuckBet
+</div>
 
 ## tasiyanc — post 9866
 
@@ -292,27 +312,5 @@ sg11
 دختره به دوست‌پسرش شک داشته و طی یه حرکت بشدت لاشیانه این پیام رو با شماره ناشناس به دوست‌پسرش داده 😂
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9843
-
-<div align="center"><video src="files/post_9843_tasiyanc_9843.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9843_tasiyanc_9843.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترا جدیدا یه چالش مد کردن که چهره عملی خودشونو کنار میزارن و برمیگردن به ورژن اصلی خودشون که نسبت به چهره عملی بسیار خوشگل تر هستن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9842
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9649
+
+<div align="center"><video src="files/post_9649_tasiyanc_9649.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9649_tasiyanc_9649.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق گفته کارشناسان اقتصادی؛
+
+مدارس کشور ممکنه حضوری آغاز بشه ولی این حضوری بودن احتمالا فقط تا آبان ماه باشه و از آذرماه با سرد شدن هوا و وجود ناترازی گاز مجددا آموزش غیرحضوری میشه.
+
++ برای دانشگاه ها هم همین ماجرا محتمله.
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9648
+
+<div align="center"><video src="files/post_9648_tasiyanc_9648.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9648_tasiyanc_9648.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: اولین تریلر GTA 6 منتشر شد.
+
+مشاهده 27 دقیقه تریلر کامل GTA 6
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9647
 
@@ -368,17 +400,5 @@ https://t.me/+86B34ioXJtUwODg6
 
 
 🩸 @TASIYANC ✅
-</div>
-
-## tasiyanc — post 9623
-
-## tasiyanc — post 9621
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کامنت یه پسر ایرانی زیر پست یه بلاگر ، دوس دخترشو تگ کرده نوشته : دلیل کنسل کردن خواستگاری اینه که از این بدن‌ها می‌خوام یا رابطه رو تموم کن یا به این کیفیت برس.
-
-+ آیدی اینستاگرامشون نزدم ک مردم احساسی باز یه بلاگر جدید تحویل ما ندن
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9893
+
+<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9892
+
+<div align="center"><video src="files/post_9892_tasiyanc_9892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9892_tasiyanc_9892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری
+
+با اعلام ارتش اسرائیل، تپه علی‌الطاهر در جنوب لبنان به تصرف کامل ارتش اسرائیل درآمد.
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9890
 
@@ -268,25 +294,5 @@ til.ac/0L4vyJf
 🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جالب اینه تموم فرم ها رایگانه ، وقتش نرسیده که از فوتبال دیدن پول در بیارید؟😉✅
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
-</div>
-
-## tasiyanc — post 9867
-
-<div align="center"><img src="files/post_9867_tasiyanc_9867.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با ۱۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
-sa11
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-@FuckBet @FuckBet @FuckBet
-@FuckBet @FuckBet @FuckBet
 </div>
 

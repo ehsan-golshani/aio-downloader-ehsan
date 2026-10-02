@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/07/09 23:58
+📅 آخرین بروزرسانی: 1405/07/10 03:52
 
 ---
+
+## tasiyanc — post 9303
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از فوبیاتون بگید .... از چی میترسید؟
+</div>
+
+## tasiyanc — post 9302
+
+<div align="center"><img src="files/post_9302_tasiyanc_9302.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کد های مخفی ChatGpt که بکارتون میاد🤖
+
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9301
 
@@ -184,8 +201,4 @@ https://t.me/+fxq9NcirUag3N2Zk
 ## tasiyanc — post 9278
 
 ## tasiyanc — post 9276
-
-## tasiyanc — post 9275
-
-## tasiyanc — post 9274
 
