@@ -1,8 +1,107 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/10 09:25
+📅 آخرین بروزرسانی: 1405/07/10 15:05
 
 ---
+
+## tasiyanc — post 10568
+
+<div align="center"><img src="files/post_10568_tasiyanc_10568.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰🛍 جشنواره اسلات AmitisBet شروع شد!
+
+از0️⃣3️⃣شهریور تا 2️⃣1️⃣مهر
+با یک شارژ 2️⃣ میلیونی و یا 5️⃣1️⃣ دلاری و انجام بازیهای اسلات
+
+در پایان دوره، روز دوشنبه 3️⃣1️⃣ مهر، معادل 5️⃣🔣 مجموع شارژت رو پاداش نقدی بگیر
+
+هر بازی 🟰 یک امتیاز برای ورود به قرعه‌کشی
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+📱 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📱 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
+</div>
+
+## tasiyanc — post 10567
+
+<div align="center"><video src="files/post_10567_tasiyanc_10567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10567_tasiyanc_10567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10566
+
+<div align="center"><video src="files/post_10566_tasiyanc_10566.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10566_tasiyanc_10566.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴من فک میکردم دوره این مسخره بازیا تموم شده :
+
+امروز تو تهران این پسر با موتور رفته بود جلوی دبیرستان دخترونه ویراژ میداد و مزاحمت ایجاد میکرد که توسط پلیس بازداشت و موتورشم توقیف شد!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10564
+
+<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لحظه چپ کردن BMW تو جردن تهران
+
+پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10563
+
+<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
+
++ دوست پسرش همون موقع :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10562
+
+<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این بانو قهرمان میس المپیا 2026 شد
+
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10561
 
@@ -195,108 +294,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
-https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 10547
-
-<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖
-
-🎖️معتبرترین سایت روسی فعال در ایران🎖️
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-💎هدایا سایت جهانی ژتون بت:
-➕واریز اول دو برابر شارژ میشی😍
-➕15% فری بت هدیه برای شارژ بانکی
-➕15% شارژ اضافی برای شارژ ارزی
-➕50% بونوس جمعه برای شرط بندی
-➕50% بونوس دوشنبه برای کازینو
-➕100 اسپین رایگان هفتگی
-➕20% کش بک روزانه برای کازینو
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-🥇دنیای افرهای بی نظیر در ژتون بت👀
-
-🖥️ادرس ورود به سایت:
-https://jhet0n.online/fa/?btag=2786270
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-💖کانال اطلاع رسانی:👇🅰3
-🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 10546
-
-<div align="center"><img src="files/post_10546_tasiyanc_10546.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق مطالعات، رابطه جنسی می‌تونه نقش مهمی در ماندگاری و صمیمیت رابطه داشته باشه.
-
-•تحقیقات منتشرشده نشان می‌دهند که بیشتر زوج‌های دارای رضایت بالا، رابطه جنسی منظمی حدود هفته‌ای یک‌بار دارند.
-•زوج‌های خوشحال بدون رابطه جنسی، در این مطالعه فقط حدود ۲.۳٪ بودند.
-•سکس فقط لذت نیست؛ وقتی همراه با اعتماد و امنیت باشه، می‌تونه به صمیمیت بیشتر زوج‌ها کمک کنه.
-منبع: Journal of Family Psychology
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10545
-
-<div align="center"><video src="files/post_10545_tasiyanc_10545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10545_tasiyanc_10545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10544
-
-<div align="center"><video src="files/post_10544_tasiyanc_10544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10544_tasiyanc_10544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10543
-
-<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران نصب کنین عالیه
-
-🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10541
-
-<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
-
-حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
-
-@Tasiyanc
 </div>
 
