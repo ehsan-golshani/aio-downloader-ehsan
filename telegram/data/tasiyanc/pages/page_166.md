@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 166
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 5855
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
+</div>
 
 ## tasiyanc — post 5854
 
@@ -174,11 +180,5 @@
 
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Premium Fast servers 🔥🌱.npvt
 </div>
 

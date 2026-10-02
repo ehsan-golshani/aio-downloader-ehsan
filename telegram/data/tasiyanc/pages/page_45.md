@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
+</div>
 
 ## tasiyanc — post 9537
 
@@ -343,14 +349,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
-
-@Tasiyanc 
-💋
 </div>
 

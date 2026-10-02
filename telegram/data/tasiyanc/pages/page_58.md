@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9215
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آغاز حملات موشکی سپاه از سیریک به سمت تنگه هرمز ( تایید/رد) نمیشه
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9214
 
@@ -296,15 +304,5 @@ https://t.me/+FaoDjhEVG34wMWFk
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸ترامپ:
-
-ایرانی‌ها با ما بازی می‌کنند، در اتاق‌های جلسات موافقت می‌کنند و در رسانه‌ها رد می‌کنند.
-
-@TASIYANC ✅
 </div>
 

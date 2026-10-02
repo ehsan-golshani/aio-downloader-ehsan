@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 165
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 5881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🌙 10 SERVER FAST.npvt
+</div>
 
 ## tasiyanc — post 5880
 
@@ -184,11 +190,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مشتی همین الان وصل کردم ببین سرعت دانلود
-</div>
-
-## tasiyanc — post 5855
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خدایی دمتون گرم هرچی بگم کم گفتم همیشه قوی پر سرعت پایدار مرسی بابت زحماتتون
 </div>
 

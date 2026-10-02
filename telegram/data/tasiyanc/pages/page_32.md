@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9885
+
+<div align="center"><img src="files/post_9885_tasiyanc_9885.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آگهی عجیب شرکت کاریابی که وایرال شده ،
+گریه کن مراسم ختم ساعتی ۶۰۰ هزارتومان + یک وعده ناهار رایگان 😞
+
++ بعد میگید کار نیست
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9884
 
@@ -265,20 +277,6 @@ sa11
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9862
-
-<div align="center"><video src="files/post_9862_tasiyanc_9862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9862_tasiyanc_9862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ درباره ایران:
-
-بیشتر مردم نمی‌توانند این‌گونه مردم خودشان را بکشند. معمولاً سعی می‌کنند مذاکره کنند و با مردم صحبت کنند و بعد ممکن است حکومت سرنگون شود. اما در ایران، مردم را می‌کشند. وقتی برای اعتراض به خیابان می‌آیند، آن‌ها را می‌کشند و مستقیماً به سرشان شلیک می‌کنند.
 
 💋 @Tasiyanc
 </div>

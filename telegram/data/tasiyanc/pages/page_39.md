@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9696
+
+<div align="center"><img src="files/post_9696_tasiyanc_9696.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏐 تیم ملی والیبال زیر ۱۷ سال ایران با شکست فرانسه در دیدار فینال، به هفتمین برد متوالی خود دست یافت و مقتدرانه قهرمان جهان شد.
+
+🇮🇷 25 | 25 | 22 | 25
+🇫🇷 18 | 15 | 25 | 12
+
+@Tasiyanc 💋
+</div>
 
 ## tasiyanc — post 9695
 
@@ -346,16 +359,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9668
-
-<div align="center"><img src="files/post_9668_tasiyanc_9668.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق یک پیشبینی ریاضی که به یک دانشمند آمریکایی نسبت داده میشود ، دنیا روز جمعه ۱۳ نوامبر ۲۰۲۶ به پایان می‌رسد تقریبا ۷۸ روز دیگه .
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10464
+
+<div align="center"><video src="files/post_10464_tasiyanc_10464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10464_tasiyanc_10464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴معجزه‌ای به نام نورالینک
+
+بیماری که نمیتونست حرف بزنه، با تراشه مغزی نورالینک (شرکت ایلان ماسک) دوباره صحبت کرد!
+
+این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
+این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10463
 
@@ -274,20 +292,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 👍 https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 📨 کانال تلگرام :
 👍 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10441
-
-<div align="center"><video src="files/post_10441_tasiyanc_10441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10441_tasiyanc_10441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پارتی وایرال شده ی مختلط اروپایی تو تهران :
-
-برای این مرحله شما باید نسخه پرمیوم ایرانُ نصب کنین
-
-
-💋 @Tasiyanc
 </div>
 

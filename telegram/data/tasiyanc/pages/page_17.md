@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10291
 
@@ -318,11 +328,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
 </div>
 

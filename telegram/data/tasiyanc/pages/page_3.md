@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10620
+
+<div align="center"><img src="files/post_10620_tasiyanc_10620.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 تا ۵۰۰ درصد بونوس محافظ پیش‌بینی 🎲
+⏩ روزانه با ثبت حداقل ۱۰ میلیون ریال پیش‌بینی میکس با حداقل ۴ انتخاب بر روی رویدادهای ورزشی مورد علاقه خود، در صورتی که حداکثر یک انتخاب برگه پیش‌بینی شما ناموفق شود، بت‌فوروارد با توجه به تعداد سایر انتخاب‌های موفق برگه پیش‌بینی شما تا ۵۰۰ درصد مبلغ پیش‌بینی را تا سقف ۱۰۰ میلیون ریال به عنوان اعتبار پیش‌بینی رایگان ورزشی به شما هدیه خواهد داد.
+
+
+اطلاعات بیش‌تر و قوانین بونوس:
+🔗 bwrd.link/BTSHLD
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+🟢 دریافت سرورفیلترشکن رایگان
+🅰r8
+💻 @BetForward
+</div>
 
 ## tasiyanc — post 10619
 
@@ -286,21 +308,5 @@ Tasiyan | تاسیان pinned a file
 🔥 بدون ریسک شروع کن، همین حالا ثبت‌نام کن!
 
 🔻http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10599
-
-<div align="center"><video src="files/post_10599_tasiyanc_10599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10599_tasiyanc_10599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت.
-
-هر دلار: 242 هزار تومن
-هر سکه: 242 میلیون تومن
-هر گرم طلا: 24 میلیون و 200 هزار تومن
-
-@Tasiyanc
 </div>
 

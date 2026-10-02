@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 7517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ARABICA ☕⚡️HoT.npvt
+</div>
 
 ## tasiyanc — post 7515
 
@@ -194,21 +200,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلار هم اکنون 174000 😐
-</div>
-
-## tasiyanc — post 7473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپستر
-
-4 سرور سرعتی ⚡️
-
-آموزش اتصال ⛓
-
-
-مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
-
-
- 💘@Tasiyanc |  تاسیان اتصال امن
 </div>
 

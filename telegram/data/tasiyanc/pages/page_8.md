@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 نروژ - دانمارک
+⏰ ساعت ۲۲:۰۰ 🌎
+
+📲 پرتغال - ولز
+😀 ساعت ۲۲:۱۵ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R2
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10510
 
@@ -320,16 +343,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10484
-
-<div align="center"><img src="files/post_10484_tasiyanc_10484.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به تازگی بعضی پسرا قبل اینکه به یه قرار و جلسه مهم کاری برن، ناخن‌هاشون رو فرنچ میکنن!
-
-
-💋 @Tasiyanc
 </div>
 

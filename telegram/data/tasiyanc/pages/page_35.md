@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9814
 
@@ -300,44 +309,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9787
-
-<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-
-
-💵12 سایت عالی برای فریلنسری
-(گرفتن پروژه دورکاری ; خونه بشین کار کن)
-
-
-🔗 www.fiverr.com
-
-🔗 www.odesk.com
-
-🔗 www.elance.com
-
-🔗 www.99designs.com
-
-🔗 www.freelancer.com
-
-🔗 www.freelanced.com
-
-🔗 www.ifreelance.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.upwork.com
-
-سایت های معرفی شده معتبر و اثبات شده هستند.
-
 
 🩸 @Tasiyanc
 </div>

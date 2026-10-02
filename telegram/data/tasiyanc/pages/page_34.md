@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9837
+
+<div align="center"><video src="files/post_9837_tasiyanc_9837.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9837_tasiyanc_9837.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دارو هارو ببینید نسبت به سال گذشته فاجعه بار کشیده بالا ...
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9836
 
@@ -249,15 +262,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
 + متاسفانه این حادثه کشته داده
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9816
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
 
 
 🩸 @Tasiyanc

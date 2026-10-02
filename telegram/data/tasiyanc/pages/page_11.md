@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10441
+
+<div align="center"><video src="files/post_10441_tasiyanc_10441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10441_tasiyanc_10441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پارتی وایرال شده ی مختلط اروپایی تو تهران :
+
+برای این مرحله شما باید نسخه پرمیوم ایرانُ نصب کنین
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10440
 
@@ -313,19 +328,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
-</div>
-
-## tasiyanc — post 10416
-
-<div align="center"><img src="files/post_10416_tasiyanc_10416.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت
-
-🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که تو بیای فقط اسم کردستان بیاری و پرچم بارزانی رو بزاری  ، کردستان مال ایرانه نفهم
-
-حیف جاویدنام مهسا امینی ..... که تو پدرشی امجد امینی 
-
-💋 @Tasiyanc
 </div>
 

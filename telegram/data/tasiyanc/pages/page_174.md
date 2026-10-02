@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 174
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
 
 ## tasiyanc — post 5637
 
@@ -190,13 +196,5 @@
 برای اتصال پایدار صبور باشید🚀
 
 🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
 </div>
 

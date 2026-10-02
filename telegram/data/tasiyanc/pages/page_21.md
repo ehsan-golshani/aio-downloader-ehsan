@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10165
+
+<div align="center"><video src="files/post_10165_tasiyanc_10165.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10165_tasiyanc_10165.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨اولین ویدیو منتشر شده از آزار و اذیت دختران ایران‌زمین توسط بیناموس‌های عراقی در سمنان که ساعتی بعد منجر به درگیری شدید بین جوانان وطن پرست و عراقی‌های حرامزاده در این شهر شد
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10164
 
@@ -244,19 +258,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند. پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد. 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10140
-
-<div align="center"><video src="files/post_10140_tasiyanc_10140.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10140_tasiyanc_10140.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند.
-پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد.
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 146
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 6359
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+5سرور   سرعتی تست شده با سامانتل🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام  ❤️‍🔥
+
+دانلود  NPV tunnel  🌐
+
+😬Password :″  @Tasiyanc  ″
+
+✔️ @Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 6358
 
@@ -200,11 +217,5 @@ Join As @Tasiyanc ✅
 دانلود  Wg tunnel 🕹
 دانلود iOS 🍏
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6336
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خوبید چخبرا ؟
 </div>
 

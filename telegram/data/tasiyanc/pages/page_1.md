@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10663
+
+<div align="center"><video src="files/post_10663_tasiyanc_10663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10663_tasiyanc_10663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون فر بخوره ویدیو وایرال شده از بانوان پولدار تهرانی که میرن توی یه سرس کلاس ها شرکت میکنن پول میدن تا برن اونجا گریه کنن و تخلیه بشن.
+
+یسری انقدر پولدارن که نمیدونن پولاشونو چیکار کنن 😒
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10662
 
@@ -260,13 +274,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 اونجا که حضار سالن به احترام این پسر نوجوان پاشد تشویقش کرد کیف کردم ....
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
 </div>
 

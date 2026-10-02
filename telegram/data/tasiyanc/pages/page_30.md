@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9929
+
+<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
+
++کمر به نابودی مردم بستن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9928
 
@@ -248,19 +262,6 @@ til.ac/0L4vyJf
 مردم ایران، مردمی بزرگ هستند. اما متاسفانه، یک رژیم سرکوبگر بر آن‌ها حاکم است. یا این رژیم از درون تغییر خواهد کرد، یا مردم قیام خواهند کرد، وگرنه باید ببینیم چه اتفاقی می‌افتد.
 ما آن‌ها را از نظر اقتصادی به زانو درخواهیم آورد. آن‌ها در چیزی که من "چنگال مرگ اقتصادی" می‌نامم، گرفتار شده‌اند.
 ارز آن‌ها در حال سقوط است و صادرات نفت آن‌ها به صفر رسیده است.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9909
-
-<div align="center"><video src="files/post_9909_tasiyanc_9909.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9909_tasiyanc_9909.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠کالبد انسان احساستشو کجا ذخیره می‌کنه؟
-
 
 💋 @Tasiyanc
 </div>

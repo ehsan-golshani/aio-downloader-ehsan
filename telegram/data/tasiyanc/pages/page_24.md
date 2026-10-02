@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10085
+
+<div align="center"><img src="files/post_10085_tasiyanc_10085.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 همینطوری که چند ماه پیش راجب JumpJump VPN براتون اخطار داده بودیم و یه سری بیسواد حمله کردن به من، الان میبینیم که دیتا بیس کاربران این فیلتر شکن در دارک وب منتشر شده از جمله شماره کارت ها، و برخی اسناد خصوصی« فقط میتونم بگم سریعا پاک کنید» و از کانفیگ های متن باز که با امنیت هستن و تو چنل میزارم استفاده کنید ، هیچ اپلیکشن فیلترشکنی امن نیست به جز چند تا مثل ویندسکرایب و یکی دوتا دیگه.
+
+« اطلاع رسانی کنید »
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10084
 
@@ -260,16 +272,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 
 فرشته‌ها از اول تا آخر مراسم در جاهای مختلف سالن به این شکل برنامه اجرا می‌کن
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10048
-
-<div align="center"><img src="files/post_10048_tasiyanc_10048.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۳۰ تا نامزد توپ طلا با حضور مسی معرفی شد که متاسفانه رونالدو تازه ازدواج کرده نامزد نیست 🐸
 
 💋 @Tasiyanc
 </div>

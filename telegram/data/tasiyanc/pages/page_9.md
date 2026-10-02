@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10484
+
+<div align="center"><img src="files/post_10484_tasiyanc_10484.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به تازگی بعضی پسرا قبل اینکه به یه قرار و جلسه مهم کاری برن، ناخن‌هاشون رو فرنچ میکنن!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10483
 
@@ -263,24 +274,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔
 
 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10464
-
-<div align="center"><video src="files/post_10464_tasiyanc_10464.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10464_tasiyanc_10464.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴معجزه‌ای به نام نورالینک
-
-بیماری که نمیتونست حرف بزنه، با تراشه مغزی نورالینک (شرکت ایلان ماسک) دوباره صحبت کرد!
-
-این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
-این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
-
 
 💋 @Tasiyanc
 </div>

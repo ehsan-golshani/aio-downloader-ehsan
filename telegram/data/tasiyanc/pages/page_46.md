@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 9515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
+
+@Tasiyanc 
+💋
+</div>
 
 ## tasiyanc — post 9514
 
@@ -300,15 +309,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 👑 سنگ‌ها ساکت‌اند، اما داستانی چند هزار ساله برای گفتن دارند...
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 9493
-
-<div align="center"><img src="files/post_9493_tasiyanc_9493.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
-
-@Tasiyanc ✅
 </div>
 

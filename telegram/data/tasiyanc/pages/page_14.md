@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/10 20:29
+📅 آخرین بروزرسانی: 1405/07/11 00:57
 
 ---
+
+## tasiyanc — post 10369
+
+<div align="center"><video src="files/post_10369_tasiyanc_10369.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10369_tasiyanc_10369.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیشب تو تهران دوتا دختر با موتورشون چند ساعت پشت یه ماشین تو ترافیک گیر کرده بودن؛ وقتی که خسته میشن، میان پایین و می‌بینن اصلا ماشینه راننده نداره و طرف پارک
+کرده رفته😂
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10368
 
@@ -311,20 +323,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10347
-
-<div align="center"><video src="files/post_10347_tasiyanc_10347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10347_tasiyanc_10347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تبلیغ عجیب شرکت سونی در سال ۲۰۰۵ صحنه های زیبایی در خیابانهای آمریکا خلق کرد اما ؛
-
-جولای ۲۰۰۵ سونی ۲۵۰هزار توپ رنگارنگ را در خیابان‌های سن‌فرانسیسکو انداخت تا تلویزیون LCD براویا را تبلیغ کند.
-علیرغم پاکسازی گسترده با تورهای غول‌پیکر، تیم‌های پاکسازی، جاروبرقی‌های صنعتی، و جایزه نقدی به کودکان هزاران عدد از آنها به گوشه و کنار محله گریختند و سال‌ها پیدا می‌شدند
-
-💋 @Tasiyanc
 </div>
 
