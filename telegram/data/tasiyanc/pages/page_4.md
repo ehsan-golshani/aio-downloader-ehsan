@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/10 15:05
+📅 آخرین بروزرسانی: 1405/07/10 20:29
 
 ---
+
+## tasiyanc — post 10598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
+متصل با اکثر اینترنت ها
+اختصاصی، کل سرور ها تست شده
+
+فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
+
+دانلود V2Box نسخه اندروید 🔐
+دانلود V2Box نسخه iOS 🔐
+
+دانلود Npv Tunnel نسخه اندروید 🔐
+دانلود Npv Tunnel نسخه iOS 🔐
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10597
+
+<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️‍🔥
+
+نمک آبرود زیبا « استان مازندران »
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10595
+
+<div align="center"><img src="files/post_10595_tasiyanc_10595.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r6🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10594
+
+<div align="center"><video src="files/post_10594_tasiyanc_10594.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10594_tasiyanc_10594.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا موزه ملی ماشین‌های تاریخی ایرانه 
+👑
+
+تو این موزه از کالسکه تاج‌گذاری «محمد رضا شاه پهلوی» تا کالسکه‌ای که «ناصرالدین شاه» داخلش ترور شد نگهداری میشه.
+کلکسیونی ماشینایی که داخل این موزه نگهداری میشه یکی از گرون‌ قیمت‌ ترین کلکسیونای ماشین داخل خاورمیانه هست.
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10593
 
@@ -211,63 +293,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r5🅰
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10575
-
-<div align="center"><video src="files/post_10575_tasiyanc_10575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10575_tasiyanc_10575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تغییر کاربری لنج های جنوب کشور «که از عمان و امارات بار میاوردن» به قایق های تفریحی
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10574
-
-<div align="center"><img src="files/post_10574_tasiyanc_10574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این زن شوهری که نیم تن وزن داشتن باعث شدن یه ساختمون هنگام سکسشون بریزه.
-
-یه زوج در لیورپول که وزنشون روی همدیگه ۵۰۰ کیلو گرم بود(مرده ۲۹۰ و زنش ۲۰۰) توی اتاق خوابشون بودن حین رابطه جنسی بودن که ساختمون ۲۵۰ ساله فرو میریزه! همسایه گفته بودن که ساختمون خودش قدیمی بوده و پیش بینی میکردن که ساختمون فرو میریزه ولی بی توجهی کردن و تلمبه‌ها و وزن این زن و شوهر هم بی تاثیر نبوده.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10571
-
-<div align="center"><img src="files/post_10571_tasiyanc_10571.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: گوگل ایرانیا رو تحریم کرده و از این به بعد مردم ایران دیگه نمیتونن حساب جدید جیمیل بسازن!
-
-« فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10570
-
-<div align="center"><video src="files/post_10570_tasiyanc_10570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10570_tasiyanc_10570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از دانشگاه آزاد تهران
-بزرگترین کلاب کشور رو مشاهده میکنید .
-
-دانشگاه آزاد اسلامی، با شعبه های متعدد سراسر ایران.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
 </div>
 

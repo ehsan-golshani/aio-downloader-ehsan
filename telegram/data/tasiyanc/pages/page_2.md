@@ -1,8 +1,95 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/10 15:05
+📅 آخرین بروزرسانی: 1405/07/10 20:29
 
 ---
+
+## tasiyanc — post 10641
+
+<div align="center"><img src="files/post_10641_tasiyanc_10641.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 جمعه را با فوتبال شروع کن؛ شب را با بازی‌های حساس تمام کن! ⚽️🔥
+برنامه لیگ ملت‌های اروپا برای جمعه ۱۰ مهر ۱۴۰۵ آماده است؛
+
+از شروع زودهنگام ساعت ۱۷:۳۰ تا رقابت‌های داغ ۱۹:۳۰ و سپس موج بازی‌های ساعت ۲۲:۱۵، یک شب کامل فوتبالی در انتظار شماست! 👀
+
+کدام تیم می‌تواند همه را غافلگیر کند؟ 🎯
+
+نتیجه بازی موردعلاقه‌ات را قبل از شروع مسابقات ثبت کن و این پست را برای رفیقات بفرست! 👇
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+📲 دانلود مستقیم اپلیکیشن اندروید
+
+🌐 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📸 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
+🔠🔡🔡🔡🔡🔡🔠🔡🔡
+۱۸+ | مسئولانه بازی کنg9🅰
+</div>
+
+## tasiyanc — post 10640
+
+<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دکتر بسکابادی:
+اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
+باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
+پسر بودنم سخته
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10639
+
+<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
+
+تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🌟
+
+تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید ❤️
+دانلود برای آیفون  📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 دلار 260.000 ؛ داره می‌ره سمت 300
+
+سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10636
 
@@ -247,82 +334,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 🟢 دریافت سرورفیلترشکن رایگان
 🅰r8
 💻 @BetForward
-</div>
-
-## tasiyanc — post 10619
-
-<div align="center"><img src="files/post_10619_tasiyanc_10619.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بیانیه میلی‌گلد: مشکل حل شد نگران نباشید دارایی همه واریز میشه
-
-بعد از پیگیری‌های میلی دستور آزادسازی طلاهای میلی از بانک کارگشایی صادر شد خدمت تسویه و تحویل که به علت مسدودی دارایی‌های میلی در بانک کارگشایی مختل شده بود، فردا عصر پس از دریافت طلا از بانک کارگشایی به روال طبیعی بازخواهد گشت.
-همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
-﻿
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیجان را با ما تجربه کنید
-💐
-وینگو بینگو
-👆🅰‌7
-</div>
-
-## tasiyanc — post 10617
-
-<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
-💎
-
-
-🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
-
-
-🟠بازی وینگو چیه؟
-یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
-
-
-🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
-
-
-📆 یکشنبه ۱۲ مهر
-
-⏰ ساعت ۲۱:۳۰ (به وقت تهران)
-
-🎙 مجری: سهند
-
-
-🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
-
-لینک ورود به بازی:
-
-
-🌐 https://wingobingo.tv/fa/wingo/14640
-</div>
-
-## tasiyanc — post 10616
-
-<div align="center"><video src="files/post_10616_tasiyanc_10616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10616_tasiyanc_10616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠۵ ترفند ساده برای تشخیص تازگی مواد غذایی که هر کسی باید بدونه
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیدارهای مهم روز چهارشنبه ۸ مهر 💥بیشتر از ۴۰۰ آپشن پیش بینی برای هر بازی در بتگرام ✔️ شارژ حساب از طریق کارت بانکی،ووچر و ارزدیجیتال ✔️ ۱۰۰٪ بونوس رایگان بر روی اولین واریز ✔️ ۱۰٪ بونوس روزانه واریز رمز ارز ✔️ تا ۵ میلیون تومان بیمه شرط ویژه کاربران…
 </div>
 
