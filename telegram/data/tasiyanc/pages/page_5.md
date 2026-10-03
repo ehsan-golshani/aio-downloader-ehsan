@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/11 18:56
+📅 آخرین بروزرسانی: 1405/07/11 22:33
 
 ---
+
+## tasiyanc — post 10592
+
+<div align="center"><video src="files/post_10592_tasiyanc_10592.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10592_tasiyanc_10592.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅برترین و قدیمی ترین مجموعه تحلیلی ایران ینی انتن بت
+✅
+
+
+❗️اگ توم میخوای روزانه درامد دلاری داشته باشی کانالی انالیز انتن بت از دست نده
+💖
+
+
+⚡️توی این کانال تحلیل و انالیز یاد میگیری تا خودت بتونی درامد دلاری داشته باشی از پیش بینی تخصصی فوتبال
+💖
+
+ادرس عضویت کانالشون:
+💖🅰5
+
+✉️https://t.me/+gYDRnUG5OX03MWJk
+
+✉️https://t.me/+gYDRnUG5OX03MWJk
+
+💎عضویت محدود سریع اقدام کنید
+✅
+</div>
+
+## tasiyanc — post 10591
+
+<div align="center"><video src="files/post_10591_tasiyanc_10591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10591_tasiyanc_10591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فک کن داری با خیال راحت تو مسیر خودت رانندگی میکنی، بی خبر از اینکه یه حرومزاده و حیوان دوپا رم کرده، سر پیچ تو جاده دو طرفه یهو تصمیم میگیره که سبقت میگیره و با سرعت میاد به سمت شما...!
+
+اینجور آدما باید برن زندان و گواهینامشون برای همیشه باطل بشه.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10587
+
+<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تصاویری شگفت انگیز از هواپیمای AC 130 
+🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10586
+
+<div align="center"><video src="files/post_10586_tasiyanc_10586.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10586_tasiyanc_10586.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
+
+و به همین زیبایی پول مردم رو خوردن
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10585
 
@@ -214,53 +282,5 @@ https://AmitisBet.com/
 📱 مشاهده پروفایل اینستاگرام
 
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
-</div>
-
-## tasiyanc — post 10567
-
-<div align="center"><video src="files/post_10567_tasiyanc_10567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10567_tasiyanc_10567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10566
-
-<div align="center"><video src="files/post_10566_tasiyanc_10566.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10566_tasiyanc_10566.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴من فک میکردم دوره این مسخره بازیا تموم شده :
-
-امروز تو تهران این پسر با موتور رفته بود جلوی دبیرستان دخترونه ویراژ میداد و مزاحمت ایجاد میکرد که توسط پلیس بازداشت و موتورشم توقیف شد!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10564
-
-<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لحظه چپ کردن BMW تو جردن تهران
-
-پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
-
-💋 @Tasiyanc
 </div>
 

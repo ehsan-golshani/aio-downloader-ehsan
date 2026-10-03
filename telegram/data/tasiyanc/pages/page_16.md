@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/11 18:56
+📅 آخرین بروزرسانی: 1405/07/11 22:33
 
 ---
+
+## tasiyanc — post 10339
+
+<div align="center"><img src="files/post_10339_tasiyanc_10339.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 زیبایی حیرت‌انگیز بانو آنا آرماس در مراسم اکران جهانی فیلم (No Time To Die)
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10338
+
+<div align="center"><img src="files/post_10338_tasiyanc_10338.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 با این سایت کل کره‌ی زمین رو زیر ذره‌بین ببر!
+
+🔴سایت Osiris AI یکی از خفن‌ترین ابزارهاییه که این روزا می‌تونی پیدا کنی!
+
+🔴این پلتفرم به‌صورت سه‌بعدی و کاملاً زنده (Real-time) این اطلاعات رو برات نمایش میده ؛
+•دسترسی به پخش زنده دوربین‌های مداربسته شهری دنیا
+•ردیابی پرواز ۱۰,۰۰۰+ هواپیما در لحظه
+•نمایش مسیر بیش از ۲,۰۰۰ ماهواره
+نقشه زنده مناطق جنگی و اخبار داغ جهان
+•ابزارهای اسکن شبکه، پایش زلزله و تهدیدات سایبری
+کاملاً رایگان و بدون نیاز به نصب برنامه!
+
+🔗 ورود به سایت:
+https://osirisai.live
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10337
+
+<div align="center"><img src="files/post_10337_tasiyanc_10337.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه فوت‌فتیش میخواد دزدی کنه 😂 :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چقد کارگری کنم واسه ۱۵۰ میلیونی که میتونم توی یه شب از این کانال دربیارم . 💲
+
+شاید دیگه این فرصت گیرت نیاد حتما جوین شو 💎
+
+به پول یه خونه و ماشین می‌رسی راحت 💲
+
+https://t.me/+ArmBt6ZWMF84ZDlk
+</div>
 
 ## tasiyanc — post 10335
 
@@ -221,54 +276,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
 
 سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10316
-
-<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
-
-که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10314
-
-<div align="center"><video src="files/post_10314_tasiyanc_10314.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10314_tasiyanc_10314.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کنسرت خیابونی گروه «لیان» در کیش حسابی تندروهارو فشاری کرده و معتقدن اینا همش تقصیر مسعوده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود
-
-🇦🇪
-🇩🇪
-🇳🇱
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10306
-
-<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
 
 💋 @Tasiyanc
 </div>
