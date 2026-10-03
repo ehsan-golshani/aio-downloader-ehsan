@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/11 22:33
+📅 آخرین بروزرسانی: 1405/07/12 01:45
 
 ---
+
+## tasiyanc — post 9775
+
+<div align="center"><img src="files/post_9775_tasiyanc_9775.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی‌ها 😐
+پوست لبتون که اسمش مخاطِ ؛ دقیقا بافتش مثل بافت مقعدتونه ؟!
+
+یعنی وقتی یکی لبتون و میبوسه یعنی کونتو هم داره میبوسه !
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9773
+
+<div align="center"><img src="files/post_9773_tasiyanc_9773.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 مادرج*ده‌ترین بچه جهان، به دنیا اومد.
+
+بانی بلو، بزرگترین جنده جهان، که رکورد سک* با ۱۰۰۰ مرد تو ۲۴ ساعت رو به خودش تعلق داده،
+
++ بچه‌اش به دنیا اومد و معلوم نیست پدرش کیه!
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9772
+
+<div align="center"><img src="files/post_9772_tasiyanc_9772.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایان اسطوره فوتبال لیونل مسی
+مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9771
 
@@ -212,55 +250,5 @@ https://Winamit.com/fa
 اونا خیلی ضعیف تر از قبل شدن.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9748
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9747
-
-<div align="center"><img src="files/post_9747_tasiyanc_9747.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 🔥
-                       
-         😃😃😃😃
-         😃😃😃😃
-
-🔥 بازگشت باخت به صورت هفتگی
-🔥پرداخت جوایز سریع و امن
-شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-🎁 کد هدیه ثبت نام: Wepari2
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
-</div>
-
-## tasiyanc — post 9746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ : دور جدید عملیات نظامی ما در ایران تازه آغاز شده است. 😑 @TasiyanProxy
 </div>
 

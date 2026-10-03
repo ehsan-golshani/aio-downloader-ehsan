@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/11 22:33
+📅 آخرین بروزرسانی: 1405/07/12 01:45
 
 ---
+
+## tasiyanc — post 10507
+
+<div align="center"><img src="files/post_10507_tasiyanc_10507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 2 آپدیت خفن جدید تلگرام
+
+تو آپدیت جدید تلگرام اینجوریه که مثلا وقتی وارد پروفایل یک شخص میشید اون قسمت بالا شمارش میزنه بطور میانگین، چقدر سریع به پیام‌ها پاسخ میده مثلا ۵ دقیقه، ۲ ساعت یا ۳ روز!
+
+تو اپدیت بعدی تلگرام اگر اکانتی دیلیت بشه
+این پروفایل براش تنظیم میشه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10503
+
+<div align="center"><img src="files/post_10503_tasiyanc_10503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تمام این عکسا مربوط به ایرانه و بچه پولدارا از اینکه تابستون رو چطوری گذروندن، منتشر کردن!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10501
+
+<div align="center"><video src="files/post_10501_tasiyanc_10501.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10501_tasiyanc_10501.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 یک سوم سالن وقتی که پزشکیان داشت سخنرانی می‌کرد خالی بود
+
+کشور های که حین سخنرانی پرزیدنت پزشکیان سالن مجمع سازمان ملل را ترک کردند :
+
+1. ایالات متحده آمریکا
+2. بریتانیا
+3. آلمان
+4. فرانسه
+5. اسرائیل
+6. سوریه
+7. لبنان
+8. عربستان
+9. مصر
+10. امارات
+11. الجزایر
+12. لهستان
+13. سوئد
+14. دانمارک
+15. کانادا
+16. ژاپن
+17. جمهوری آذربایجان
+18. مالزی
+19. نیوزیلند
+20. استرالیا
+21. جمهوری خلق کنگو
+22. اکوادور
+23. قبرس
+24. ایسلند
+25. مکزیک
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10500
 
@@ -262,33 +330,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ در سازمان ملل :
-
-من باید تصمیمی قاطع بگیرم درباره اینکه آیا می‌خواهم ایران را نابود کنم یا به آن اجازه دهم که به فعالیت خود ادامه دهد و پیشرفت کند.
-
-آیا باید جمهوری اسلامی را نابود کنم، و آن را به سرعت از بین ببرم؟ آیا باید آن‌ها را به جهنم بفرستم؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10479
-
-<div align="center"><video src="files/post_10479_tasiyanc_10479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10479_tasiyanc_10479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت ✔️دو شرط رایگان در روز⭐️ 🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز ⭐مجهز…
 </div>
 

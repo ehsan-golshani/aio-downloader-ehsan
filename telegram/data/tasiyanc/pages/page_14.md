@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/11 22:33
+📅 آخرین بروزرسانی: 1405/07/12 01:45
 
 ---
+
+## tasiyanc — post 10388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر✔️
+همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
+https://t.me/+72lhaZgfJ2oxMjdk
+</div>
+
+## tasiyanc — post 10387
+
+<div align="center"><img src="files/post_10387_tasiyanc_10387.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰26
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10385
+
+<div align="center"><video src="files/post_10385_tasiyanc_10385.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10385_tasiyanc_10385.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لقمه حرام، شرف را نابود می کند.
+نتیجه اش می شود تبلیغی اینچنین که فقر مردم را به سُخره می گیرد.
+
+تقصیر خودمونه برخی از بلاگرای دوزاریو با دکمه فالو شاخ کردیم!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10384
 
@@ -250,42 +290,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 + خب حرومزاده مادربخطا حقوق رو بیار مثل اونا ماهی ۵۰۰۰ دلار بده بعد بیا زر بزن آخوندک
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10365
-
-<div align="center"><img src="files/post_10365_tasiyanc_10365.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز ۲۶ شهریور ماه، تولد کمبوجیه، پسرِ کوروش بزرگ و روزِ پسره.
-
-امروز تنها روز اصیل پسر های ایرانیه بهشون تبریک بگید.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر✔️
-همین حالا عضو شو و‌‌ کسب درامد شرو کن🟡
-https://t.me/+72lhaZgfJ2oxMjdk
-</div>
-
-## tasiyanc — post 10363
-
-<div align="center"><img src="files/post_10363_tasiyanc_10363.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰25
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 </div>
 

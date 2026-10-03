@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/11 22:33
+📅 آخرین بروزرسانی: 1405/07/12 01:45
 
 ---
+
+## tasiyanc — post 10659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+</div>
+
+## tasiyanc — post 10658
+
+<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
+</div>
+
+## tasiyanc — post 10657
+
+<div align="center"><video src="files/post_10657_tasiyanc_10657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10657_tasiyanc_10657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز تو تهران یه دونفر با هم کل میندازن که آخرش خیلی خوب تموم نمیشه:
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10656
 
@@ -253,52 +292,6 @@ https://AmitisBet.com/
 🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
 
 تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🌟
-
-تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید ❤️
-دانلود برای آیفون  📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 دلار 260.000 ؛ داره می‌ره سمت 300
-
-سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10636
-
-<div align="center"><video src="files/post_10636_tasiyanc_10636.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10636_tasiyanc_10636.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چهره مثبتی که این بلاگر خارجی از ایران و ایرانی انجام داد ، متولیان فرهنگی با بودجه های کلان میلیاردی نتونستن انجام بدن!
-
-دم اون دوتا شیرزن با معرفت هموطن گرم❤️
-
-+شاید پولمون بی ارزش ترین باشه شاید پاسپورتمون بی ارزش باشه ولی مرام معرفت با اختلاف اوله جهانه
-برو همه جا بگو این مردم با این همه سختی بدبختی فشار اقتصادی هنوزم معرفت و مهربونیشون زندست
-
-اینجا ایرانه داداش هرکی واردش بشه یه تیکه از قلبش واسه همیشه اینجا میمونه
 
 ⚡ @Tasiyanc
 </div>
