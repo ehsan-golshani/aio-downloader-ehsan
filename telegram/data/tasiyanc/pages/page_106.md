@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 7742
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چند تا کانفیگ نت مود & وایرگارد مخصوص گیم & اینجکتور داخل ربات گذاشتم بردارید ❤️
+
+👈دریافت کانفیگ ها 💘
+
+دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
+@StarTasiyan
+</div>
 
 ## tasiyanc — post 7733
 
@@ -159,12 +170,5 @@ CR7 GOAT Forever 🇵🇹❤️‍🔥
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 پایان یک اسطوره CR7 💔🤔
 @Tasiyanc
-</div>
-
-## tasiyanc — post 7704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رونالدو پر افتخارترین بازیکن جهان
-تا ابد در قلب ما خواهی بود
 </div>
 

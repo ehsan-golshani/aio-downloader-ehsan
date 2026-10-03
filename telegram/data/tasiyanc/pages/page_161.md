@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 161
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 5977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فروش بازه 5 GB 170 10 GB 310 20 GB 580 30 GB 900 @StarTasiyan ثبت سفارش
+</div>
 
 ## tasiyanc — post 5976
 
@@ -174,13 +180,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ایرانسل قوی وصله
-</div>
-
-## tasiyanc — post 5953
-
-<div align="center"><img src="files/post_5953_tasiyanc_5953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بعد ۷ ثانیه 😮‍💨
 </div>
 

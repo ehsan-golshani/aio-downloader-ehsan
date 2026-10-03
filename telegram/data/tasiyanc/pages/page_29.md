@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 9959
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9958
 
@@ -262,15 +268,5 @@ https://t.me/+PTaxqSvYQ_A0MTc8
 قبل از هر اقدامی، نام کاربری فرستنده را با دقت بررسی کنید و روی لینک‌ها یا دکمه‌های مشکوک کلیک نکنید.
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 9934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

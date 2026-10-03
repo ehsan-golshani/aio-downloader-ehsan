@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 10444
+
+<div align="center"><video src="files/post_10444_tasiyanc_10444.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10444_tasiyanc_10444.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک قبیله بومی منزوی در آمازون که از هوا عکاسی شده. آن‌ها نمی‌دانند زندگی دیگری در جهان هست ؛ و ما نمی‌دانیم در ذهن آن‌ها جهان دقیقاً چه معنایی دارد.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10443
 
@@ -317,21 +331,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 💎کانال اطلاع رسانی ایران:g28🅰
 ✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10419
-
-<div align="center"><video src="files/post_10419_tasiyanc_10419.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10419_tasiyanc_10419.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 رودخانه گنگ هند جزو آلوده‌ترین رودخانه های دنیاست چون نه تنها همه فاضلاب ها بهش ختم میشن بلکه سوخته اجساد شون رو هم این تو میریزن
-
-ولی ببین معده یک هندی چی هست که باکتری ای‌کولای در مقابلش عاجزه
-
-
-
-💋 @Tasiyanc
 </div>
 

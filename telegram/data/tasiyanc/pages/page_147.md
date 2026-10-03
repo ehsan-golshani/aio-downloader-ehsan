@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 6341
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معرفی کلاینت جدید VPN ساعت 18 🐾
+</div>
 
 ## tasiyanc — post 6339
 
@@ -217,16 +223,5 @@ Password : @Tasiyanc 
 دانلود  NPV tunnel  🌐
 
 ✔️ @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد   👑
-دانلود  Wg tunnel 🕹
-دانلود iOS 🍏
-آموزش⏩
-
-@Tasiyanc ✅
 </div>
 

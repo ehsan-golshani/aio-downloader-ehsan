@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 166
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
+
+## tasiyanc — post 5858
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عالیهههه خدا خیرتون بده
+</div>
 
 ## tasiyanc — post 5857
 
@@ -152,11 +158,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚀 VIP SPEEEEEEEED.npvt
-</div>
-
-## tasiyanc — post 5817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوباره بگم؟
 </div>
 

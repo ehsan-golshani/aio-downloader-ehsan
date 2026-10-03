@@ -1,12 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/11 04:15
+📅 آخرین بروزرسانی: 1405/07/11 09:30
 
 ---
 
-## tasiyanc — post 10665
+## tasiyanc — post 10667
 
-<div align="center"><a href="files/post_10665_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_10667_tasiyanc_10667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10667_tasiyanc_10667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ممنوعیت حجاب در جمهوری آذربایجان؛ کادر اجرایی مدارس از ورود دختران محجبه به کلاس های درسی جلوگیری می‌کند و این باعث گریه کردن دانش‌آموزان محجبه پشت درهای بسته شده است
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10665
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اپلیکیشن اختصاصی آمیتیس‌بت📱
@@ -274,20 +285,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10645
-
-<div align="center"><video src="files/post_10645_tasiyanc_10645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10645_tasiyanc_10645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
-
-جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
 
 ⚡ @Tasiyanc
 </div>
