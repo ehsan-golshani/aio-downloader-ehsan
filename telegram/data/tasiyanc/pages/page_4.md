@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/11 00:57
+📅 آخرین بروزرسانی: 1405/07/11 04:15
 
 ---
+
+## tasiyanc — post 10601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡 💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش! اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم! 💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار 🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+ چطور کار می‌کنه؟ ◀️ اولین واریز و…
+</div>
+
+## tasiyanc — post 10600
+
+<div align="center"><img src="files/post_10600_tasiyanc_10600.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡
+
+💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش!
+
+اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم!
+
+💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار
+🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+
+
+چطور کار می‌کنه؟
+◀️ اولین واریز و اولین شرطت رو ثبت کن
+◀️ شرط ترکیبی با حداقل ۳ انتخاب بزن
+◀️ اگه باختی… فرداش فری بت تو حسابه!
+
+⏳ فقط برای مشتریان جدید | فری‌بت تا ۷ روز قابل استفاده است
+
+🔥 بدون ریسک شروع کن، همین حالا ثبت‌نام کن!
+
+🔻http://betegram.com/affiliates?btag=3_l7
+</div>
 
 ## tasiyanc — post 10599
 
@@ -264,29 +296,5 @@ https://t.me/+kt_bsasgniphZmZk
 Location 🇺🇸
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10578
-
-<div align="center"><video src="files/post_10578_tasiyanc_10578.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10578_tasiyanc_10578.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه دختر ۲۳ ساله انقدر رابطه مقعدی داشته که دچار بی اختیاری گازهای معده و مدفوع شده و با ایزی لایف میره بیرون و به گفته خانم دکتر هیچ درمانی ام براش وجود نداره.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
