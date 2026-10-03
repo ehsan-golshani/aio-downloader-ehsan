@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/11 09:30
+📅 آخرین بروزرسانی: 1405/07/11 15:12
 
 ---
+
+## tasiyanc — post 10562
+
+<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این بانو قهرمان میس المپیا 2026 شد
+
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10561
+
+<div align="center"><video src="files/post_10561_tasiyanc_10561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10561_tasiyanc_10561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای آدم فر میخوره رسما !
+
+تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10560
+
+<div align="center"><video src="files/post_10560_tasiyanc_10560.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10560_tasiyanc_10560.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده از محمدحسین قیاسی ببینید چطوری از همسرش دلبری می‌کنه..
+
+از قیاسی یاد بگیریم 😂😂😂
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10559
+
+<div align="center"><video src="files/post_10559_tasiyanc_10559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10559_tasiyanc_10559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💸ترامپ :
+
+من توافقی که ایرانی‌ها پیشنهاد دادن رو رد کردم، اونا می‌خوان به توافقی برسن که طبقش تنگه هرمز فوراً باز بشه، چون دارن به‌شدت ضرر می‌کنن؛
+البته این چیزا رو تو اخبار جعلی نمی‌خونید و نمی‌بینید، ولی ما داریم به‌شدت پیروز می‌شیم. ما کنترل کامل تنگه هرمز رو داریم و حجم عظیمی از نفت داره از اونجا عبور می‌کنه. فقط دیشب 29 کشتی از تنگه رد شدن.
+اونا دنبال توافقن و منم با توافق کردن مشکلی ندارم؛ خودمم دوست دارم توافق کنم، ولی توافقی که پیشنهاد دادن قابل قبول نیست.
+کاری که می‌خوان بکنن اینه که فوراً تنگه هرمز رو باز کنن. می‌دونید چرا؟ چون دارن نابود میشن؛ پولی دیگه وارد کشورشون نمیشه، پولشون از تنگه هرمز میاد و در واقع خودشون سر خودشون کلاه گذاشتن. گفتن تنگه رو می‌بندیم تا برای دنیا مشکل درست کنیم؛ بعد من اومدم و بزرگ‌ترین محاصره نظامی تاریخ رو ایجاد کردیم؛ یه دیوار فولادی.
+حالا چی شده؟ دیگه پولی ندارن، چون خودشون می‌خواستن تنگه رو ببندن. منم گفتم خیلی خب، ما تنگه رو روی خودتون می‌بندیم، ولی بقیه می‌تونن ازش استفاده کنن.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10558
+
+<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
+
+دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10557
 
@@ -226,72 +296,6 @@ https://jhet0n.online/fa/?btag=2786270
 ایران نصب کنین عالیه
 
 🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10541
-
-<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
-
-حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
-</div>
-
-## tasiyanc — post 10539
-
-<div align="center"><img src="files/post_10539_tasiyanc_10539.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
-</div>
-
-## tasiyanc — post 10538
-
-<div align="center"><video src="files/post_10538_tasiyanc_10538.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10538_tasiyanc_10538.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴جدیدا بین بعضی از دخترا یه چیزی مد شده که زیر ناف‌شون جمله «Gate of heaven» رو که به معنی «دروازه بهشت هست» رو تتو میکنن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10537
-
-<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
-
-پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
 
 ⚡ @Tasiyanc
 </div>

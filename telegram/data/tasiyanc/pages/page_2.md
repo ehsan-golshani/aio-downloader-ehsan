@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/11 09:30
+📅 آخرین بروزرسانی: 1405/07/11 15:12
 
 ---
+
+## tasiyanc — post 10650
+
+<div align="center"><img src="files/post_10650_tasiyanc_10650.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r10
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10649
+
+<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
+یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
+</div>
+
+## tasiyanc — post 10647
+
+<div align="center"><img src="files/post_10647_tasiyanc_10647.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته!
+
+این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨
+
+🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن!
+
+🎱 بازی وینگو چطوریه؟
+توی بازی وینگو باید ۶ عدد بین ۱ تا ۴۷ و ۱ عدد بین ۱ تا ۱۰ انتخاب کنی.
+قرعه کشی انجام میشه و هرچی اعداد بیشتری رو درست حدس بزنی، جایزه‌ی بزرگ‌تری می‌بری! 🏆
+
+📆 جمعه ۱۰ مهر
+⏰ ساعت ۱۸:۰۰ به وقت تهران
+
+🎯 جایزه‌ی ویژه: ۱۰۰۰ دلار! 💰
+
+همین حالا ثبت‌نام کن، و بدون هیچ هزینه ای شانستو امتحان کن !
+
+🌐 wingobingo.tv
+</div>
+
+## tasiyanc — post 10646
+
+<div align="center"><video src="files/post_10646_tasiyanc_10646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10646_tasiyanc_10646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10645
 
@@ -232,81 +309,5 @@ https://AmitisBet.com/
 پشتیبان فارسی سایت ریتزوبت 👇
 🅰8
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 10629
-
-<div align="center"><video src="files/post_10629_tasiyanc_10629.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10629_tasiyanc_10629.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-❤️‍🔥 حاوی تصاویر دلخراش از خلبانی که چاقو خورده
-
-اسرائیل یه فاجعه انسانی رو از سَر گذروند و نزدیک بود یک هواپیما با ۱۸۵ مسافر از مقصد دوبی به اسراییل سقوط و جان شهروندان اسراییل بگیرد؛
-
-🇮🇱 نتانیاهو درباره حادثه پرواز دبی:
-
-«یکی از خلبانان، خلبان دیگر را با چاقو مجروح کرد و ظاهراً تلاش داشت هواپیما را به همراه سرنشینانش سرنگون کند.
-
-هواپیما وارد حالت چرخش شد و شروع به سقوط کرد. یک مسافر اسرائیلی و یکی از اعضای خدمه وارد کابین خلبان شدند و خلبان مهاجم را خنثی کردند.
-
-یکی دیگر از اعضای خدمه پرواز نیز موفق شد هواپیما را به حالت پایدار بازگرداند و از وقوع یک فاجعه بزرگ جلوگیری شد.
-
-خلبان مهاجم هم‌اکنون توسط مقامات سعودی مورد بازجویی قرار دارد.
-
-به دستگاه‌های امنیتی دستور داده‌ام برای مقابله با تهدیدهای احتمالی دیگر آماده باشند.»
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10628
-
-<div align="center"><video src="files/post_10628_tasiyanc_10628.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10628_tasiyanc_10628.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هشدار
-به هیچ‌وجه در مراسم های تولد، کیک را به صورت کسی نکوبید , اکثر کیک ها داخلشون خلال چوبی و ... وجود داره که ممکنه طرف کور شه یا آسیب جدی ببینه .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10626
-
-<div align="center"><video src="files/post_10626_tasiyanc_10626.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10626_tasiyanc_10626.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرهنگ حلقه گم شده جامعه امروز !
-
-
-🔴هموطن عزیزم با تور قسطی رفتی وان نوش جونت ولی آبرو ریزی نکن دیگه بقدر کافی همه جا گند زدین ظرفیت نداری کم بخور این فیلماتون رو پیجهای خارجی گذاشتن دارن مسخره می‌کنن،همه دست و پاها تتو قیافه ها داغون .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
-</div>
-
-## tasiyanc — post 10624
-
-<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
-
-https://t.me/+E4HUFuYfyUw1MjRk
-https://t.me/+E4HUFuYfyUw1MjRk
-
-🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
 </div>
 
