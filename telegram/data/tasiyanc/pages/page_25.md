@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 10057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10056
 
@@ -273,11 +282,5 @@ sg17
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 10543
+
+<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران نصب کنین عالیه
+
+🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10541
 
@@ -257,19 +271,6 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 مادر جاویدنام یاشار سلطانی راد، که فرزندِ پهلوون، بدنساز و کشتی گیرش رو در اعتراضات دی ماه از دست داده بود، پس از تحمل غم و درد فراوان، دق کرد و درگذشت.
 
 پیش از این مادرِ یاشار از شدت غم، چندین بار دچار سکته و بیهوشی شده بود!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10521
-
-<div align="center"><video src="files/post_10521_tasiyanc_10521.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10521_tasiyanc_10521.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یک عکاس حیات وحش در ایسلند در حالی که در میان صخره‌ها پنهان شده بود، گله بزرگی از گوزن‌های شمالی را فیلمبرداری کرده که به چند متری او نزدیک شده بودند.
-
 
 💋 @Tasiyanc
 </div>

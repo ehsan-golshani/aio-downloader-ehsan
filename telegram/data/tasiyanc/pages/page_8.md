@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 10521
+
+<div align="center"><video src="files/post_10521_tasiyanc_10521.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10521_tasiyanc_10521.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک عکاس حیات وحش در ایسلند در حالی که در میان صخره‌ها پنهان شده بود، گله بزرگی از گوزن‌های شمالی را فیلمبرداری کرده که به چند متری او نزدیک شده بودند.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10520
 
@@ -324,19 +337,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 🔴به تازگی فشن شو دیزل توی ایتالیا برگزار شده که پشمای همه فرفری شده!
 
 تماشاگرا اون وسط خودارضایی میکردن، تریسام میزدن، لز میکردن، میک لاو میکردن که در نهایت باعث شد نصف سالن ارضا بشن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10493
-
-<div align="center"><video src="files/post_10493_tasiyanc_10493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10493_tasiyanc_10493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توی یکی از کشورای عربی این خانم جن‌زده شده بود که برای خارج کردن جنه این این مرده رو میارن و اونم با یه روش ابداعی این شاهکار رو پیاده می‌کنه تا پشمای ملت فر بخوره:
 
 
 💋 @Tasiyanc

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 106
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 7750
+
+<div align="center"><img src="files/post_7750_tasiyanc_7750.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت کارمندای نت‌بلاکس الان:
+</div>
 
 ## tasiyanc — post 7749
 
@@ -156,11 +164,5 @@ VIP 🎯 @Tasiyanc.nm
 دانلود 📱 Android  🕹  iOS
 
 آموزش اتصال  ⛓
-</div>
-
-## tasiyanc — post 7712
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز July 7، روز جهانی شکلاته 🍫 🍫
 </div>
 

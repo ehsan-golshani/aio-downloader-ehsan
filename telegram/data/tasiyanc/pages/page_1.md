@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 10673
+
+<div align="center"><video src="files/post_10673_tasiyanc_10673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10673_tasiyanc_10673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواننده عربستانی 🇸🇦 به نام «امیر محمد» بردن یکی از برنامه های معروف ترکیه که بولنت ارسوی سوپر استار ترکیه معروف به «دیوا» نزدیک بود سکته کنه از صدای رو مخ این حرومزاده بچه سال
+هر دلقکیو فالو کنی معروف کنی ابروت تو سطح جهانی می‌ره تسلیت به جامعه موسیقی ترکیه و عربستان
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10672
 
@@ -43,8 +56,6 @@
 </div>
 
 ## tasiyanc — post 10669
-
-<div align="center"><a href="files/post_10669_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -271,17 +282,5 @@ https://t.me/+VGH5xHispzJlMjM8
 خلاصه، سارینا میگه جرعتشو نداری و دعوا میشه، اونجا سارینا با چاقو علی رو به قتل میرسونه و بعدشم با لگد میزنه به جنازه‌اش!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

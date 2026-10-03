@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 9918
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9917
 
@@ -289,19 +297,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یکی از تجربه‌های بزرگم تو زندگی این بوده: "زیادی نباش!" در رابطه، در کار، در خانواده. بیش از حد بودن خودت رو خراب می‌کنه اما چیزی رو بهت نمیده! قدرتو نمیدن و تو الکی تو این هدر میری.
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9898
-
-<div align="center"><img src="files/post_9898_tasiyanc_9898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی 25 فیلم برتر با رتبه بندی در ژانر « زامبی ، آخر زمانی » که میتونید ببینید
-
-سایت پیشنهادی برای تماشا و دانلود بدون سانسور
-🔗https://www.novigrad.top
 
 💋 @Tasiyanc
 </div>

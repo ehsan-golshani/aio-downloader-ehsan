@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/11 15:12
+📅 آخرین بروزرسانی: 1405/07/11 18:56
 
 ---
+
+## tasiyanc — post 10493
+
+<div align="center"><video src="files/post_10493_tasiyanc_10493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10493_tasiyanc_10493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توی یکی از کشورای عربی این خانم جن‌زده شده بود که برای خارج کردن جنه این این مرده رو میارن و اونم با یه روش ابداعی این شاهکار رو پیاده می‌کنه تا پشمای ملت فر بخوره:
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10492
 
@@ -254,11 +267,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 •همچنین توی ایران ، نسبت پسرا به دخترا بیشتره و کشورای عربی مثل قطر، عربستان و... نزدیک ۷۰ درصد جمعیتشون پسرن!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
 </div>
 
