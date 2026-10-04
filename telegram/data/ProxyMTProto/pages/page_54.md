@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/07/12 01:43
+📅 آخرین بروزرسانی: 1405/07/12 09:56
 
 ---
+
+## ProxyMTProto — post 50713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ssh.meow0.co.uk
+Port: 22
+Secret: dd79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50712
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee95aa916bd319beb312cc6ba9b2c5aef8766b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50711
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50710
 
@@ -154,33 +181,6 @@ Secret: dd69273bcdcdf7e34b2b6d0f9e8386c127
 Server: 195.201.216.142
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 51.250.81.95
-Port: 443
-Secret: eeca9d1ff80c1c1758dc115b7b9a90b7a76d6564626c6f636b2e666974
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50692
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: setion-two.co.uk.
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: node.easyproxy.cfd
-Port: 443
-Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
 @ProxyMTProto
 </div>
 

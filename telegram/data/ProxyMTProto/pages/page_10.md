@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/12 01:43
+📅 آخرین بروزرسانی: 1405/07/12 09:56
 
 ---
+
+## ProxyMTProto — post 51595
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rightel-irancell.ir.mausjakaqd.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51594
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: kostyanchekloh.lol
+Port: 443
+Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51593
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51592
 
@@ -154,32 +181,5 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Хочешь разместить свой прокси прямо в этом канале ☝️? 👀 Забронируй приоритетный слот через @SProxyRobot - публикация здесь в течение 24 часов 🚀
 
 Want your proxy posted right here in this channel ☝️? 👀 Use @SProxyRobot to reserve a priority slot - get posted here within 24 hours 🚀
-</div>
-
-## ProxyMTProto — post 51575
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51573
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
 </div>
 
