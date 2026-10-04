@@ -1,8 +1,106 @@
 # آرشیو کانال VahidOOnLine - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/12 01:42
+📅 آخرین بروزرسانی: 1405/07/12 04:08
 
 ---
+
+## VahidOOnLine — post 262923
+
+<div align="center"><video src="files/post_262923_VahidOOnLine_262923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262923_VahidOOnLine_262923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواهر جاویدنام مهرزاد نظری با پیوستن به پویش «یک شمع، یک نام، یک یاد» برای برادرش، «جاویدنامان ممسنی» و «همه جاویدنامان ایران» شمع روشن کرد و گفت: «نامتان ماندگار.»
+مهرزاد نظری، ۲۸ ساله، ۱۸ دی ۱۴۰۴ در نورآباد ممسنی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262922
+
+<div align="center"><img src="files/post_262922_VahidOOnLine_262922.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، شامگاه چهارشنبه ۸ مهر گفت آخرین نیروهای آمریکایی در حال ترک عراق هستند. او تصمیم‌هایی را که به ورود آمریکا به عراق منجر شد «بسیار بد» خواند و عراق را «باتلاق» توصیف کرد. او افزود این حضور به‌زودی به بخشی از تاریخ تبدیل خواهد شد.
+
+ترامپ این روز را «روز بزرگی برای آمریکا» خواند و از علی الزیدی، نخست‌وزیر عراق، تمجید کرد. او گفت از ابتدا از الزیدی حمایت کرده و از پیروزی او در انتخابات استقبال کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262921
+
+<div align="center"><video src="files/post_262921_VahidOOnLine_262921.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262921_VahidOOnLine_262921.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+استفان دوجاریک، سخنگوی دبیرکل سازمان ملل متحد، روز چهارشنبه در پاسخ به پرسشی درباره ایران و تنگه هرمز گفت، موضوع نقش سازمان ملل و تعیین سازوکاری برای تسهیل بازگشایی تنگه هرمز در شماری از دیدارهای دوجانبه آنتونیو گوترش مطرح شده است و مقام‌های سازمان ملل نیز گفت‌وگوهای جداگانه‌ای در این زمینه داشته‌اند.
+دوجاریک افزود که دبیرکل سازمان ملل طی این مدت تماس‌های متعددی با کشورهای حوزه خلیج فارس داشته و سازمان ملل همچنان این موضوع را پیگیری می‌کند. او تاکید کرد: «ما همچنان در جهت دستیابی به یک راه‌حل دیپلماتیک برای درگیری جاری تلاش می‌کنیم.»
+سازمان ملل پیش‌تر یک کارگروه ویژه برای طراحی سازوکاری در ارتباط با تنگه هرمز تشکیل داده است؛ طرحی که به گفته این سازمان، اجرای آن نیازمند موافقت طرف‌های درگیر و کشورهای مرتبط است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262920
+
+<div align="center"><video src="files/post_262920_VahidOOnLine_262920.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262920_VahidOOnLine_262920.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند اهل بندرعباس ویدیویی برای ایران اینترنشنال فرستاد و با انتقاد از افزایش روزافزون قیمت اجناس خوراکی گفت که تداوم گرانی، او را در آغاز جوانی از تلاش و کار بی‌نتیجه خسته کرده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262919
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بنیامین نتانیاهو، نخست‌وزیر اسرائیل، در استقبال از مسافران پرواز دبی به تل‌آویو، با مسافری که با مهار خلبان مهاجم مانع از سقوط هواپیما شده بود، دیدار کرد و اقدام او را شجاعانه خواند.
+
+در جریان این دیدار که ویدیوی آن منتشر شده، مسافری که همچنان لکه‌های خون فرد مهاجم روی لباس‌هایش بود، به تشریح جزئیات حادثه پرداخت و گفت هنگام خاموش شدن چراغ‌های کابین و افت ناگهانی هواپیما با فریاد دیگران متوجه اوضاع شده و به کمک کادر پرواز شتافته است. او اشاره کرد که پرواز تنها حدود یک ساعت با ورود به حریم هوایی اسرائیل فاصله داشت و در صورت مهار نشدن مهاجم، فاجعه‌ای رخ می‌داد.
+
+نتانیاهو با قدردانی از تدبیر این مسافر و تمجید از خانواده او که در جلسه حضور داشتند، تاکید کرد: «تو نه تنها جان همه مسافران هواپیما را نجات دادی، بلکه از سناریویی نامعلوم و خطرناک جلوگیری کردی. ما ملتی از شیرها هستیم و تو یک قهرمان واقعی هستی.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262918
+
+<div align="center"><img src="files/post_262918_VahidOOnLine_262918.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مارک روته، دبیرکل ناتو، در گفت‌وگو با یورونیوز در نشست «دفاع و فضا» گفت آمریکا توان هسته‌ای جمهوری اسلامی را هدف قرار داد «چون ما نمی‌توانیم این کار را انجام دهیم». او افزود اروپا باید در آینده توان انجام چنین عملیاتی را به‌طور مستقل داشته باشد.
+
+روته گفت اروپا در حال حاضر توان هدف قرار دادن قابلیت‌های هسته‌ای جمهوری اسلامی را ندارد، اما باید «ظرف ۱۰ سال» به چنین قابلیتی دست پیدا کند.
+
+او همچنین گفت کشورهای اروپایی باید خودشان قادر به مقابله با حوثی‌ها در دریای سرخ باشند و برای این کار به آمریکا متکی نباشند.
+
+دبیرکل ناتو اقدام نظامی آمریکا علیه جمهوری اسلامی را «کاملا ضروری» خواند و گفت اروپا باید بتواند مسئولیت بیشتری برای دفاع از خود بر عهده گیرد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262917
+
+<div align="center"><video src="files/post_262917_VahidOOnLine_262917.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262917_VahidOOnLine_262917.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قدرت واقعی یک حکومت کجاست؟ در شمار سلاح‌هایش یا در وفاداری نیروهایی که فرمان‌ها را اجرا می‌کنند؟ در این پادکست، با مرور تجربه ایران، کوبا، نیکاراگوئه و سوریه، نقش مبارزه مسلحانه، اعتراض مدنی و شکاف در ساختار قدرت را در سقوط حکومت‌ها بررسی می‌کنیم.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 262916
 
@@ -200,106 +298,6 @@ IranintlTV
 مهاجرانی گفت عراقچی در این جلسه گزارشی از سفر اخیر خود به نیویورک و دیدارهای دیپلماتیک انجام‌شده ارائه کرد؛ از جمله رایزنی‌هایی درباره شروط ایران برای بازگشایی تنگه هرمز که از طریق میانجی‌ها به آمریکا منتقل شده بود.
 خبرگزاری آسوشیتدپرس نیز گزارش داده است که تهران دریافت پاسخ رسمی واشنگتن به پیشنهاد اخیر ایران را تایید کرده، اما محتوای پاسخ آمریکا هنوز علنی نشده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262875
-
-<div align="center"><video src="files/post_262875_VahidOOnLine_262875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262875_VahidOOnLine_262875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️خوشحالی مسافران پرواز دبی از فرود موفق در عربستان سعودی
-
-♦️تصاویری که یکی از حاضران در پرواز دبی حین فرود در فرودگاه تبوک عربستان سعودی منتشر کرده، حاکی از خوشحالی و تشویق مسافران است.
-به گزارش رسانه‌های دولتی اسرائیل، پس از تلاش کمک خلبان برای ساقط کردن این هواپیما، با مقاومت مسافران و خلبان از این حادثه جلوگیری شد.
-این پرواز ظهر چهارشنبه هشتم مهرماه بدون خسارت جانی در عربستان سعودی فرود آمد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262874
-
-<div align="center"><img src="files/post_262874_VahidOOnLine_262874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس عراقچی، وزیر خارجه جمهوری اسلامی، چهارشنبه هشتم مهر در جلسه هیات دولت، گزارشی از سفر خود به نیویورک ارائه کرد و گفت جمهوری اسلامی در «شرایط جدید» به موقعیت ممتازی دست یافته است.
-
-عراقچی گفت: «ایران در شرایط جدید به موقعیت ممتازی دست یافته است؛ به‌گونه‌ای که کشورهای اروپایی، عربی و آسیایی اشتیاق شدیدی برای دیدار و ملاقات نشان دادند و احترام ویژه‌ای برای ایران و جمهوری اسلامی در جهان ایجاد شد.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262873
-
-<div align="center"><video src="files/post_262873_VahidOOnLine_262873.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262873_VahidOOnLine_262873.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های دولتی نشان می‌دهد که نیروهای نظامی با اجرای رزمایش در یکی از مدارس پسرانه تهران، فضای امنیتی حاکم بر مکان‌های آموزشی را تشدید کردند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262872
-
-<div align="center"><video src="files/post_262872_VahidOOnLine_262872.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262872_VahidOOnLine_262872.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سفر گروهی خودروهای تاریخی و کلاسیک با حضور ۳۱ خودرو از اعضای کانون جهانگردی و اتومبیلرانی، از تهران به مقصد کاشان آغاز شد.
-این برنامه را انجمن وسایل نقلیه تاریخی ایران، وابسته به کانون جهانگردی و اتومبیلرانی، با همکاری اداره میراث فرهنگی، گردشگری و صنایع‌دستی کاشان برگزار می‌کند و خودروها در مسیر تهران، قم و کاشان حرکت می‌کنند.
-۳۱ خودروی حاضر در این کاروان خانوادگی که اغلب متعلق به نیمه دوم قرن بیستم میلادی‌اند در دومین روز از هفته گردشگری پس از پیمودن مسیر تهران، قم و کاشان، از شماری از جاذبه‌های تاریخی و گردشگری این شهر ازجمله تپه تاریخی سیلک دیدن می‌کنند.
-📷 میراث آریا
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262871
-
-<div align="center"><img src="files/post_262871_VahidOOnLine_262871.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یوسف طباطبایی‌نژاد، امام جمعه اصفهان، در جلسه شورای درس خارج حوزه علمیه این شهر گفت: «کاهش ارزش پول ملی و تورم، پیامدهای طبیعی هر جنگی است و در این راستا می‌توان به تجربه کشورهای همسایه مانند عراق اشاره کرد که حتی با حمایت‌های آمریکا، پس از جنگ با افت شدید ارزش پول مواجه شدند.»
-
-طباطبایی‌نژاد ادامه داد: «هدف قرار گرفتن زیرساخت‌های حیاتی کشور، منجر به بروز گرانی شده اما با وجود قرار داشتن در شرایط جنگی تمام‌عیار، دولت توانسته مدیریت امور را به خوبی پیش ببرد.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262870
-
-<div align="center"><video src="files/post_262870_VahidOOnLine_262870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262870_VahidOOnLine_262870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال پیامی به ایران اینترنشنال ضمن اشاره به نامه سپاه پاسداران به مردم آمریکا آن را به «نامه داعش به مردم ایران» تشبیه کرد و گفت: «سپاه هر قدر دست و پا بزند، باز هم از نگاه مردم آمریکا تروریست است.»
-
-سپاه پاسداران در نامه‌ای، اقتصاد ایالات متحده را «رو به زوال» توصیف کرده و از مردم آمریکا خواسته است در برابر سیاست‌های دولت خود بایستند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262869
-
-<div align="center"><video src="files/post_262869_VahidOOnLine_262869.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262869_VahidOOnLine_262869.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صعود پدر جاویدنام ریبین مرادی به قله بندعیش در تهران ـ گزارشگر
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>
