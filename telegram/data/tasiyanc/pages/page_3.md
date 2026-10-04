@@ -1,8 +1,100 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/12 01:45
+📅 آخرین بروزرسانی: 1405/07/12 16:30
 
 ---
+
+## tasiyanc — post 10644
+
+<div align="center"><video src="files/post_10644_tasiyanc_10644.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10644_tasiyanc_10644.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقعیت : توی هند 🇮🇳 یه میمون وارد مشروب فروشی شده و انقد مشروب خورده به این روز افتاده😂
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴همیشه «یک» با «یک» برابر نیست
+بعضی وقتا مسیری که برای یک نفر ساده و همواره، برای یکی دیگه پر از مانع و سختیه !
+
+اونجا که حضار سالن به احترام این پسر نوجوان پاشد تشویقش کرد کیف کردم ....
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10641
+
+<div align="center"><img src="files/post_10641_tasiyanc_10641.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 جمعه را با فوتبال شروع کن؛ شب را با بازی‌های حساس تمام کن! ⚽️🔥
+برنامه لیگ ملت‌های اروپا برای جمعه ۱۰ مهر ۱۴۰۵ آماده است؛
+
+از شروع زودهنگام ساعت ۱۷:۳۰ تا رقابت‌های داغ ۱۹:۳۰ و سپس موج بازی‌های ساعت ۲۲:۱۵، یک شب کامل فوتبالی در انتظار شماست! 👀
+
+کدام تیم می‌تواند همه را غافلگیر کند؟ 🎯
+
+نتیجه بازی موردعلاقه‌ات را قبل از شروع مسابقات ثبت کن و این پست را برای رفیقات بفرست! 👇
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+📲 دانلود مستقیم اپلیکیشن اندروید
+
+🌐 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📸 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
+🔠🔡🔡🔡🔡🔡🔠🔡🔡
+۱۸+ | مسئولانه بازی کنg9🅰
+</div>
+
+## tasiyanc — post 10640
+
+<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دکتر بسکابادی:
+اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
+باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
+پسر بودنم سخته
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10639
+
+<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
+
+تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10638
 
@@ -225,112 +317,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10622
-
-<div align="center"><video src="files/post_10622_tasiyanc_10622.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10622_tasiyanc_10622.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون فر بخوره ببینید اینو
-
-یه دختر ۲۲ ساله تو تعویض روغنی با دوست پسرش در حال سکس بوده ژل روان کننده نداشتن بجاش از روغن ترمز استفاده کردن، روغن ترمز باعث خوردگی شدید پوست گوشت آلت تناسلی دوست پسرش شده و‌ بر اثر سوختگی درجه ۳ پسره فوت کرده، دختره ام بعد ۲۰ روز تو ICU بودن اومده پیش دکتر
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10621
-
-<div align="center"><video src="files/post_10621_tasiyanc_10621.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10621_tasiyanc_10621.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سنجاقک‌ها زیباترین مدل رابطه جنسی رو دارن.
-
-اونا بهم متصل میشن و شکل قلب تشکیل میدن و تو همین حالت پرواز میکنن و... تا کارشون تموم بشه.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10620
-
-<div align="center"><img src="files/post_10620_tasiyanc_10620.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎁 تا ۵۰۰ درصد بونوس محافظ پیش‌بینی 🎲
-⏩ روزانه با ثبت حداقل ۱۰ میلیون ریال پیش‌بینی میکس با حداقل ۴ انتخاب بر روی رویدادهای ورزشی مورد علاقه خود، در صورتی که حداکثر یک انتخاب برگه پیش‌بینی شما ناموفق شود، بت‌فوروارد با توجه به تعداد سایر انتخاب‌های موفق برگه پیش‌بینی شما تا ۵۰۰ درصد مبلغ پیش‌بینی را تا سقف ۱۰۰ میلیون ریال به عنوان اعتبار پیش‌بینی رایگان ورزشی به شما هدیه خواهد داد.
-
-
-اطلاعات بیش‌تر و قوانین بونوس:
-🔗 bwrd.link/BTSHLD
-
-👍 ورود به سایت با فیلترشکن
-
-کلیک کنید BetForward.com
-کلیک کنید BetForward.com
-
-🟢 دریافت سرورفیلترشکن رایگان
-🅰r8
-💻 @BetForward
-</div>
-
-## tasiyanc — post 10619
-
-<div align="center"><img src="files/post_10619_tasiyanc_10619.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بیانیه میلی‌گلد: مشکل حل شد نگران نباشید دارایی همه واریز میشه
-
-بعد از پیگیری‌های میلی دستور آزادسازی طلاهای میلی از بانک کارگشایی صادر شد خدمت تسویه و تحویل که به علت مسدودی دارایی‌های میلی در بانک کارگشایی مختل شده بود، فردا عصر پس از دریافت طلا از بانک کارگشایی به روال طبیعی بازخواهد گشت.
-همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
-﻿
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیجان را با ما تجربه کنید
-💐
-وینگو بینگو
-👆🅰‌7
-</div>
-
-## tasiyanc — post 10617
-
-<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
-💎
-
-
-🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
-
-
-🟠بازی وینگو چیه؟
-یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
-
-
-🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
-
-
-📆 یکشنبه ۱۲ مهر
-
-⏰ ساعت ۲۱:۳۰ (به وقت تهران)
-
-🎙 مجری: سهند
-
-
-🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
-
-لینک ورود به بازی:
-
-
-🌐 https://wingobingo.tv/fa/wingo/14640
 </div>
 
