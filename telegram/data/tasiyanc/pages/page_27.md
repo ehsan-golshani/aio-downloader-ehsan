@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/12 21:08
+📅 آخرین بروزرسانی: 1405/07/13 03:14
 
 ---
+
+## tasiyanc — post 10035
+
+<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
+
+مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
+
+
+دریافت کانفیگ ها 👉
+
+@Tasiyanc 💋
+</div>
+
+## tasiyanc — post 10034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10033
 
@@ -290,30 +315,5 @@ sg16
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10012
-
-<div align="center"><video src="files/post_10012_tasiyanc_10012.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10012_tasiyanc_10012.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨این روزا خیلی مواظب گوشیتون باشید؛
-دختره داشت برای پیجش تولید محتوا میکرد که یهو حمله کردن گوشیشو بزنن.
-سعی کنید تا حد امکان گوشیتون رو توی خیابون در نیارید اگه آیفونه‌.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

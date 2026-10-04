@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/12 21:08
+📅 آخرین بروزرسانی: 1405/07/13 03:14
 
 ---
+
+## tasiyanc — post 10691
+
+<div align="center"><a href="files/post_10691_1xbet_ir.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1xbet_ir.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
+💖اسپانسر لالیگا و سری آ ایتالیا💖
+
+👑شارژ اول و هر شنبه دوبل شارژ می شوید
+✔️بدون نیاز به فیلترشکن
+
+ادرس عضویت کانال:👇
+▪️https://t.me/+1zHLYMANkAEwODBi
+</div>
+
+## tasiyanc — post 10690
+
+<div align="center"><img src="files/post_10690_tasiyanc_10690.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
+🔹
+✅وان ایکس رتبه یک دنیاس ✔️
+
+⏬چرا انتخاب همه 1xbet هست:
+⬅️واریز اول دو برابر شارژ میشی
+⬅️هفتگی کلی هدیه میده
+⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
+⬅️پر اپشن ترین سایت دنیاس
+⬅️اسپانسر تیم های مختلف اروپاس
+⬅️حرفه ای ترین اپلیکیشن داره
+⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
+پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
+
+😴ادرس سایت:
+https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
+🎁کد هدیه ثبت نام:1xuu
+
+💖برای دانلود اپلیکیشن کلیک کنید➡️
+کانال اطلاع رسانی سایت:🅰12
+✉️https://t.me/+1zHLYMANkAEwODBi
+</div>
 
 ## tasiyanc — post 10689
 
@@ -263,31 +306,5 @@ https://t.me/+ha2KmA-UHioxNDI0
 🚨یادی کنیم از ویدیو وایرال شده کنسرت بانو سابرینا کارپنتر که وسطای اجرا چشمش به یه ایرانی میخوره و دیالوگ جالبی بینشون شکل میگیره 😂
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10671
-
-<div align="center"><video src="files/post_10671_tasiyanc_10671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10671_tasiyanc_10671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه اینجا مدرسه اس , پس جایی که ما درس خوندیم چیه ؟
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10670
-
-<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 3 October روز جهانی دوست پسره
-
-بفرست واسش 🌹
-
-
-⚡ @Tasiyanc
 </div>
 

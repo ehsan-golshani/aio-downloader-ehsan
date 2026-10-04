@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/12 21:08
+📅 آخرین بروزرسانی: 1405/07/13 03:14
 
 ---
+
+## tasiyanc — post 10471
+
+<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
+
+این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10470
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
+
+مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
+
+تست شده روی تمام نت‌ها
+
+👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10469
 
@@ -274,32 +301,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10448
-
-<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
-این کشور اولین کشور درجهانه که اینکارو میکنه.
-یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10447
-
-<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/07/12 21:08
+📅 آخرین بروزرسانی: 1405/07/13 03:14
 
 ---
+
+## tasiyanc — post 10147
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوروارد ۲ پست پرامپت بالارو به ۵۰۰ برسونید وایرال شه ❤️
+</div>
+
+## tasiyanc — post 10146
+
+<div align="center"><img src="files/post_10146_tasiyanc_10146.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑 اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰ Prompt 🤖🤖 Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress…
+</div>
 
 ## tasiyanc — post 10145
 
@@ -314,37 +328,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10115
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10114
-
-<div align="center"><img src="files/post_10114_tasiyanc_10114.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی های جذاااااب لیگ قهرمانان اروپا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🆕
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
 </div>
 
