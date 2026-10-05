@@ -1,8 +1,127 @@
 # آرشیو کانال VahidOOnLine - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/13 03:12
+📅 آخرین بروزرسانی: 1405/07/13 06:10
 
 ---
+
+## VahidOOnLine — post 262592
+
+<div align="center"><img src="files/post_262592_VahidOOnLine_262592.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسکات بسنت، وزیر خزانه‌داری آمریکا، شامگاه دوشنبه ۶ مهر در شبکه ایکس نوشت عملیات «طرد اقتصادی» باعث شده ارزش ریال به پایین‌ترین سطح تاریخی خود برسد.
+
+او افزود: «آمریکا به تضعیف توانایی جمهوری اسلامی برای تامین مالی تروریسم و توسعه سلاح هسته‌ای ادامه خواهد داد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262591
+
+<div align="center"><img src="files/post_262591_VahidOOnLine_262591.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پلیس بریتانیا روز دوشنبه ششم مهر اعلام کرد ۵ مردی که در نزدیکی پایگاه هوایی فیر‌فورد بازداشت شده بودند، با قرار وثیقه آزاد شدند ولی تحقیقات درباره احتمال ارتباط یک «کشور خارجی» با طرح احتمالی بمب‌گذاری ادامه دارد.
+
+به گزارش خبرگزاری فرانسه، این ۵ مرد که همگی ساکن لندن و در میانه دهه ۲۰ زندگی خود هستند، به ظن ارتکاب جرایم مرتبط با مواد منفجره و «آماده‌سازی برای انجام اقدام تروریستی» بازداشت شده بودند.
+
+پلیس پس از دریافت گزارش‌هایی درباره حضور سه خودروی ون سفیدرنگ «مشکوک» در نزدیکی پایگاه، تحقیقات را آغاز کرده بود. این سه خودرو نیز تحت بررسی گسترده کارشناسان نظامی و پزشکی قانونی قرار گرفته‌اند.
+
+روزنامه «دیلی میل» و خبرگزاری «پرس اسوشیشن» به نقل از منابعی گزارش دادند آزمایش‌های انجام‌شده روی مواد موجود در قسمت عقب خودروها نشان داده است که این مواد «مواد منفجره قابل استفاده» نبوده‌اند.
+
+ایران پیش‌تر هرگونه ارتباط با این حادثه را رد کرده بود. سفارت ایران در لندن در شبکه اجتماعی ایکس اعلام کرد «قاطعانه» گمانه‌زنی‌ها درباره دخالت تهران را رد و محکوم می‌کند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262590
+
+<div align="center"><img src="files/post_262590_VahidOOnLine_262590.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه الحدث شامگاه دوشنبه ۶ مهر به نقل از منابع خود گزارش داد جمهوری اسلامی در ازای کاهش تحریم‌های آمریکا با توقف غنی‌سازی اورانیوم موافقت کرده است.
+
+به گفته این منابع، میانجی‌ها بر جمهوری اسلامی فشار می‌آورند تا آن را به دادن امتیازهایی در زمینه برنامه هسته‌ای وادار کنند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262589
+
+<div align="center"><img src="files/post_262589_VahidOOnLine_262589.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک منبع آگاه به ایران‌اینترنشنال گفت زندانیان بندهای مختلف زندان تهران بزرگ (فشافویه)، از جمله بندهای زندانیان سیاسی، با برخوردهای خشونت‌آمیز مرتضی حسینی، رییس بازرسی این زندان، مواجه‌اند و اعتراض آنان تاکنون بی‌پاسخ مانده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262584
+
+<div align="center"><img src="files/post_262584_VahidOOnLine_262584.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سفر گزارش‌شده نتانیاهو به ابوظبی و رفت‌وآمد مقام‌های منطقه به امارات، پرسش تازه‌ای پیش کشیده است: این کشور در بحران ایران چه نقشی ایفا می‌کند و این دیدارها چه نسبتی با آینده مذاکرات و احتمال رویارویی دوباره دارند؟
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262583
+
+<div align="center"><video src="files/post_262583_VahidOOnLine_262583.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262583_VahidOOnLine_262583.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانشجویان دانشگاه علامه طباطبایی دوشنبه ۶ مهر در اعتراض به افزایش شهریه، وضعیت خوابگاه و تغذیه و حجاب اجباری تجمع کردند و شعارهای اعتراضی سر دادند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262582
+
+<div align="center"><video src="files/post_262582_VahidOOnLine_262582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262582_VahidOOnLine_262582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام محمدرضا آهنگر، جوان ۲۰ ساله و دانشجوی ساکن تهران بود که در کنار تحصیل کار می‌کرد و همراه دوستانش یک شرکت تولید محتوا راه انداخته بود. او ۱۸ دی ۱۴۰۴ در جریان اعتراضات در فلکه صادقیه تهران، بر اثر اصابت گلوله به سر جان باخت. نزدیکانش او را جوانی مسئولیت‌پذیر، مهربان و پر از ایده و آرزو توصیف کرده‌اند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262581
+
+<div align="center"><video src="files/post_262581_VahidOOnLine_262581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262581_VahidOOnLine_262581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادر جاویدنام عسل منصوری با روشن کردن شمعی بر مزار فرزندش گفت قاتلان دخترش را هرگز نمی‌بخشد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262580
+
+<div align="center"><video src="files/post_262580_VahidOOnLine_262580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262580_VahidOOnLine_262580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیوستن مادر جاویدنام معین عباسپور به پویش «یک شمع، یک نام، یک یاد» ـ گزارشگر
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 262579
 
@@ -168,129 +287,6 @@ IranintlTV
 
 مجتبی خامنه‌ای در همین پیام و در ستایش حسن نصرالله، دبیر کل پیشین حزب‌الله لبنان نوشت: «در تاریخ شامات، پس از انبیا و اوصیا، مردی به عظمت سید حسن نصرالله سر برنیاورد.»
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262522
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروهی از معلمان و کادر درمان، با انتشار ویدیوهایی در رسانه‌های اجتماعی از استعفای خود به دلیل مشکلات معیشتی می‌گویند. میزان انتشار این نوع ویدیوها به تازگی زیاد شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262521
-
-<div align="center"><video src="files/post_262521_VahidOOnLine_262521.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262521_VahidOOnLine_262521.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صحبت‌های مادر جاویدنام کیانوش عباد در زادروز فرزندش ـ گزارشگر
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262520
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سازمان حقوق بشری هه‌نگاو از بازداشت شش معلم و فعال صنفی در نورآباد ممسنی به دست نیروهای سپاه پاسداران خبر داد.
-بر اساس این گزارش، نیروهای حفاظت اطلاعات سپاه پاسداران به یک گردهمایی دوستانه معلمان در نورآباد ممسنی یورش بردند و این فعالان را بدون ارائه حکم قضایی و با ضرب‌وجرح بازداشت کردند. این افراد پس از بازجویی‌های اولیه به زندان نورآباد ممسنی منتقل شدند.
-گفت‌وگو با اسماعیل عبدی، فعال صنفی معلمان
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262519
-
-<div align="center"><img src="files/post_262519_VahidOOnLine_262519.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ساعاتی پس از انتشار خبر «بازگشت بیژن مرتضوی به ایران» در مجله «بیلبورد فارسی» و رسانه‌های داخلی، نیلا (نرگس) فرخی، همسر این خواننده و موسیقیدان سرشناس، این خبر را تکذیب کرد.
-
-به گزارش روزنامه فرهیختگان، نیلا فرخی با انتشار پیامی در اینستاگرام نوشت: «بازگشت به ایران باعث افتخار و آرزوی دیرینه بیژن مرتضوی است. او اگر برگردد با استقبال گسترده برمی‌‎گردد و حتما عکس‌هایش هم منتشر می‏‌شود.»
-
-صفحه اینستاگرام نیلا فرخی در دسترس عموم قرار ندارد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262518
-
-<div align="center"><img src="files/post_262518_VahidOOnLine_262518.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجتبی خامنه‌ای، رهبر جمهوری اسلامی، در پیامی نوشت «امروز کسانی ما را ابرقدرت چهارم دنیا می‌دانند» و اما بر اساس «محاسبات الهی»، کشوری که خود را متعلق به «عترت طاهره» می‌داند و برای «اقامه حق» هراسی ندارد، «قدرت اول جهان» است.
-
-رهبر جمهوری اسلامی در این پیام افزود که نیروهای دشمن به‌دلیل «ضربات دردآوری» که از «رزمندگان» و «محافظان تنگه هرمز» خورده‌اند، از دریای عرب جلوتر نمی‌آیند و «زود است که دریای عرب هم خود را از آنان خالی کند.»
-
-مجتبی خامنه‌ای همچنین نوشت بیش از ۳۰ میلیون ایرانی «جانفدایی خود را اعلام نمودند» و در فراخوانی برای سازماندهی، ظرفیت ۵۰۰ هزار نفری در ۱۰۰ دقیقه نخست تکمیل شد و افزود در سراسر کشور «آمادگی‌های مسلحانه» وجود دارد.
-
-او همچنین در دومین سالگرد کشته شدن حسن نصرالله، او را «امیر قهرمان عرب» خواند و نوشت پرچم او اکنون در دست نعیم قاسم است که «دلیرانه» در پیشاپیش صفوف حزب‌الله راه او را ادامه می‌دهد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262517
-
-<div align="center"><img src="files/post_262517_VahidOOnLine_262517.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وب‌سایت العربی الجدید، دوشنبه ششم مهر به نقل از سه مقام عراقی نوشت که تحقیقات درباره حمله به خط لوله شرق ـ غرب عربستان سعودی به مراحل پایانی رسیده و بر اساس آن، «عاملان حمله از ایران وارد عراق شده‌اند» و حمله را از استان میسان انجام داده‌اند.
-
-بر اساس این گزارش، عاملان حمله به‌طور غیرقانونی از ایران وارد خاک عراق شدند، پهپادها را از منطقه مرزی الطیب پرتاب کردند و سپس به ایران بازگشتند.
-
-العربی الجدید به نقل از این مقام‌های عراقی نوشت: «گروهی که از داخل عراق با آنها در ارتباط بود، به یک گروه مسلح مرتبط است و با گروه حوثی‌های یمن هماهنگی داشته است.»
-
-یکی از منابع افزود که وزارت خارجه عراق اطلاعات به‌دست‌آمده از تحقیقات را به وزارت خارجه جمهوری اسلامی اطلاع داده است؛ از جمله اطلاعات مربوط به هویت افراد مشارکت‌کننده در عملیات، ماهیت ارتباطات گروه اجراکننده و همچنین اطلاعات مربوط به ورود این افراد به خاک عراق و خروج آنها از این کشور.
-
-او گفت طرف عراقی اطلاعات و شواهدی را که در این زمینه در اختیار داشت، به تهران ارائه کرده، اما تهران به اطلاعات و شواهد ارائه‌شده از سوی بغداد پاسخ نداده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262516
-
-<div align="center"><video src="files/post_262516_VahidOOnLine_262516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262516_VahidOOnLine_262516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران‌اینترنشنال نشان می‌دهد ماموران سپاه در حال آموزش کار کردن با اسلحه به کودکانی هستند که از مدرسه تعطیل شده‌اند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262508
-
-<div align="center"><video src="files/post_262508_VahidOOnLine_262508.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262508_VahidOOnLine_262508.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران از نگاه جهان: دوشنبه ۶ مهر ۱۴۰۵
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262474
-
-<div align="center"><img src="files/post_262474_VahidOOnLine_262474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روزنامه کیهان که زیر نظر نماینده رهبر جمهوری اسلامی منتشر می‌شود، در گزارشی نوشت: «پیام روشن به دستگاه دیپلماسی این است که ترامپ را نباید با کرنش و نشان دادن اشتیاق برای مذاکره رام کرد؛ قمارباز را فقط با بالا بردن هزینه جنگ و زبان موشک در میدان مهار می‌کند. حفظ اهرم تنگه هرمز و فشار بر شریان‌های انرژی غرب، تنها منطقی است که کاخ سفید آن را می‌فهمد.»
-
-کیهان ضمن انتقاد از مواضع پزشکیان در سفر به نیویورک، اضافه کرد: «آنچه بیش از همه تعجب‌آور است، رفتار و مواضع شتاب‌زده دستگاه دیپلماسی در نیویورک بود. نمایش شور و شوق برای مذاکره، آن هم درست در آستانه انتخابات حساس میان‌دوره‌ای آمریکا، ارسال سیگنال ضعف به ترامپ بود.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>
