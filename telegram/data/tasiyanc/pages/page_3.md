@@ -1,8 +1,146 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/13 13:17
+📅 آخرین بروزرسانی: 1405/07/13 22:36
 
 ---
+
+## tasiyanc — post 10667
+
+<div align="center"><video src="files/post_10667_tasiyanc_10667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10667_tasiyanc_10667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ممنوعیت حجاب در جمهوری آذربایجان؛ کادر اجرایی مدارس از ورود دختران محجبه به کلاس های درسی جلوگیری می‌کند و این باعث گریه کردن دانش‌آموزان محجبه پشت درهای بسته شده است
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10664
+
+<div align="center"><img src="files/post_10664_tasiyanc_10664.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🙂 شنبه را با یک انتخاب فوتبالی شروع کن!
+امروز برنامه لیگ ملت‌های اروپا فقط یک ردیف بازی معمولی نیست؛
+
+از نبردهای عصرگاهی تا تقابل‌های حساس شب، هر سوت پایان می‌تواند جدول را زیرورو کند. ⚽️🔥
+
+اگر قرار باشد فقط یک بازی را برای تماشا انتخاب کنی، کدام دیدار را برمی‌داری؟ 👀
+
+🕹 حدس نتیجه‌ات را قبل از شروع مسابقه در آمیتیس بت ثبت کن و ببینیم کدام پیش‌بینی به واقعیت نزدیک‌تر می‌شود.
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+👾 دانلود مستقیم اپلیکیشن اندروید
+
+🌐 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📷 مشاهده پروفایل اینستاگرام
+
+🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰10
+</div>
+
+## tasiyanc — post 10663
+
+<div align="center"><video src="files/post_10663_tasiyanc_10663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10663_tasiyanc_10663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون فر بخوره ویدیو وایرال شده از بانوان پولدار تهرانی که میرن توی یه سرس کلاس ها شرکت میکنن پول میدن تا برن اونجا گریه کنن و تخلیه بشن.
+
+یسری انقدر پولدارن که نمیدونن پولاشونو چیکار کنن 😒
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10662
+
+<div align="center"><video src="files/post_10662_tasiyanc_10662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10662_tasiyanc_10662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10661
+
+<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
+
++اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10660
+
+<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+</div>
+
+## tasiyanc — post 10658
+
+<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
+</div>
+
+## tasiyanc — post 10657
+
+<div align="center"><video src="files/post_10657_tasiyanc_10657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10657_tasiyanc_10657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز تو تهران یه دونفر با هم کل میندازن که آخرش خیلی خوب تموم نمیشه:
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10656
 
@@ -147,158 +285,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10645
-
-<div align="center"><video src="files/post_10645_tasiyanc_10645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10645_tasiyanc_10645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
-
-جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10644
-
-<div align="center"><video src="files/post_10644_tasiyanc_10644.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10644_tasiyanc_10644.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقعیت : توی هند 🇮🇳 یه میمون وارد مشروب فروشی شده و انقد مشروب خورده به این روز افتاده😂
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴همیشه «یک» با «یک» برابر نیست
-بعضی وقتا مسیری که برای یک نفر ساده و همواره، برای یکی دیگه پر از مانع و سختیه !
-
-اونجا که حضار سالن به احترام این پسر نوجوان پاشد تشویقش کرد کیف کردم ....
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10642
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10641
-
-<div align="center"><img src="files/post_10641_tasiyanc_10641.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 جمعه را با فوتبال شروع کن؛ شب را با بازی‌های حساس تمام کن! ⚽️🔥
-برنامه لیگ ملت‌های اروپا برای جمعه ۱۰ مهر ۱۴۰۵ آماده است؛
-
-از شروع زودهنگام ساعت ۱۷:۳۰ تا رقابت‌های داغ ۱۹:۳۰ و سپس موج بازی‌های ساعت ۲۲:۱۵، یک شب کامل فوتبالی در انتظار شماست! 👀
-
-کدام تیم می‌تواند همه را غافلگیر کند؟ 🎯
-
-نتیجه بازی موردعلاقه‌ات را قبل از شروع مسابقات ثبت کن و این پست را برای رفیقات بفرست! 👇
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-📲 دانلود مستقیم اپلیکیشن اندروید
-
-🌐 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام
-
-📸 مشاهده پروفایل اینستاگرام
-
-لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
-🔠🔡🔡🔡🔡🔡🔠🔡🔡
-۱۸+ | مسئولانه بازی کنg9🅰
-</div>
-
-## tasiyanc — post 10640
-
-<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دکتر بسکابادی:
-اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
-باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
-پسر بودنم سخته
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10639
-
-<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
-
-تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🌟
-
-تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید ❤️
-دانلود برای آیفون  📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 دلار 260.000 ؛ داره می‌ره سمت 300
-
-سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10636
-
-<div align="center"><video src="files/post_10636_tasiyanc_10636.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10636_tasiyanc_10636.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چهره مثبتی که این بلاگر خارجی از ایران و ایرانی انجام داد ، متولیان فرهنگی با بودجه های کلان میلیاردی نتونستن انجام بدن!
-
-دم اون دوتا شیرزن با معرفت هموطن گرم❤️
-
-+شاید پولمون بی ارزش ترین باشه شاید پاسپورتمون بی ارزش باشه ولی مرام معرفت با اختلاف اوله جهانه
-برو همه جا بگو این مردم با این همه سختی بدبختی فشار اقتصادی هنوزم معرفت و مهربونیشون زندست
-
-اینجا ایرانه داداش هرکی واردش بشه یه تیکه از قلبش واسه همیشه اینجا میمونه
 
 ⚡ @Tasiyanc
 </div>

@@ -1,8 +1,184 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/13 13:17
+📅 آخرین بروزرسانی: 1405/07/13 22:36
 
 ---
+
+## tasiyanc — post 10711
+
+<div align="center"><video src="files/post_10711_tasiyanc_10711.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10711_tasiyanc_10711.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 طاعون، بیماری که نصف اروپا 
+🌍 را به کام مرگ کشاند! که الان تو روسیه انتشار پیدا کرده!
+
+طاعون یکی از مرگبارترین بیماری‌های تاریخ بشریته. عاملش باکتری Yersinia pestis و مخزنشم بیشتر جوندگان و کک‌های آلوده‌ست.
+
+•سال 1346 میلادی از حوالی قرقیزستان 🇰🇬 شروع شد و اروپا، آسیا و شمال آفریقا رو درگیر کرد.
+•گفته می‌شه این بیماری‌ تو دوره مرگ سیاه، حدود 75 تا 200 میلیون نفر رو کشت؛ فقط تو اروپا احتمالاً حدود یک‌سوم تا نصف جمعیت از بین رفت!
+•یعنی هرکسی سُرفه میکرد، بدن و سردرد می‌گرفت و نفسش تنگ و بی‌حال میشد، می‌مُرد
+•تازه طاعون «متوقف» نشد؛ قرنطینه، محدودکردن رفت‌وآمد و تغییر شرایط زندگی و جمعیت جوندگان به کنترلش کمک کرد.
+•قدیم‌ها فکر می‌کردن بیماری طاعون از هوای بد و بدبو منتقل می‌شه بخاطر همین یسری ماسک با منقارهای بلند ساخته بودن و داخل اون قسمتِ دراز، گیاهان معطر، ادویه و مواد خوشبو می‌ذاشتن تا به خیال خودشون هوای آلوده قبل از رسیدن به بینی، تصفیه بشه
+امروزه آنتی بیوتیک‌ها میتونن تا حدودی طاعون رو درمان کنن، ولی حتما باید زود تشخیص داده بشه...
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10708
+
+<div align="center"><video src="files/post_10708_tasiyanc_10708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10708_tasiyanc_10708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ادعای عجیب یکی از نیروهای آتش‌نشانی در مورد ساخت پلاک مشخصات برای دانش آموزان:
+
+امروز رفتم یه دبیرستان دخترانه برای کنترل مسائل امنیتی بین حرفامون با مسئولین مدرسه متوجه شدم که دارن برای دانش آموزان پلاک مشخصات فردی درست میکنن مثل همونایی که زمان جنگ استفاده میشد؛
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10707
+
+<div align="center"><img src="files/post_10707_tasiyanc_10707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آبتین شریفی، جوانی از ممسنی و رتبه 1400 کنکور تجربی، تنها یک هفته مانده به اعلام نتایج، بر اثر ایست قلبی از دنیا رفت.
+
+آبتین برای رسیدن به رویای پزشکی تلاش کرده بود، اما مرگ فرصت دیدن نتیجه زحماتش را ازش گرفت
+
+روحش شاد 🖤
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10706
+
+<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
+
+## tasiyanc — post 10704
+
+<div align="center"><img src="files/post_10704_tasiyanc_10704.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13
+
+https://t.me/+CHT8I544iFRiNzU0
+https://t.me/+CHT8I544iFRiNzU0
+
+
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
+
+## tasiyanc — post 10703
+
+<div align="center"><video src="files/post_10703_tasiyanc_10703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10703_tasiyanc_10703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سنگین ترین پرونده مهریه ایران اعلام شد:
+
+اقای جراح ۶۳۶۰ سکه مهریه برای خانم با وفاش زده بوده و الانم تو زندانه😐😂
+
+الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10702
+
+<div align="center"><a href="files/post_10702_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10701
+
+<div align="center"><img src="files/post_10701_tasiyanc_10701.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+
+⬅️ برداشت‌های آنی و بدون معطلی
+
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r13
+
+✅ https://DerbyBet.com
+
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10700
+
+<div align="center"><video src="files/post_10700_tasiyanc_10700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10700_tasiyanc_10700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه سوسک رفته بود خونه یه خانم، اونم این شکلی رفته بود بالا صندلی و به گربه‌اش التماس میکرد که سوسک رو بکشه 😅
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10697
 
@@ -47,8 +223,6 @@
 </div>
 
 ## tasiyanc — post 10694
-
-<div align="center"><a href="files/post_10694_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -168,162 +342,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 👇 https://t.me/+E--pAy0bkURiOWM0 https://t.me/+E--pAy0bkURiOWM0 
 🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان
 💵🅰12g
-</div>
-
-## tasiyanc — post 10687
-
-<div align="center"><img src="files/post_10687_tasiyanc_10687.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
-⭐
-👇
-
-https://t.me/+E--pAy0bkURiOWM0
-https://t.me/+E--pAy0bkURiOWM0
-
-
-🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان
-💵🅰12g
-</div>
-
-## tasiyanc — post 10686
-
-<div align="center"><video src="files/post_10686_tasiyanc_10686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10686_tasiyanc_10686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨مراد ویسی (تحلیل‌گر):
-جنگی که توی راهه، آخرین جنگ ترامپ با جمهوری اسلامی خواهد بود!
-اما به قدری این جنگ شدید و گسترده‌اس، که جنگ ۱۲ و ۴۰ روزه، پیشش یه شوخیه!
-شدت بمبارون‌ها خیلی شدیدتر خواهد بود، کشورای بیشتری درگیر میشن و این نبرد آخره.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10685
-
-<div align="center"><video src="files/post_10685_tasiyanc_10685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10685_tasiyanc_10685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تولد هالویینی یکی از کافه های تهران
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10684
-
-<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 4 October, روز جهانی حیواناته.
-
-+این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
-
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10682
-
-<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10681
-
-<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10679
-
-<div align="center"><img src="files/post_10679_tasiyanc_10679.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💰 یکشنبه‌ای که با یک انتخاب شروع می‌شود و با چندین شگفتی تمام! ⚽️🔥
-امروز ۱۲ مهر ۱۴۰۵، لیگ ملت‌های اروپا از ساعت ۱۶:۳۰ استارت می‌خورد و در ادامه، موج بازی‌ها در ساعت‌های ۱۹:۳۰ و ۲۲:۱۵ شب فوتبالی پرهیجانی می‌سازد.
-اما سؤال امروز اینجاست:
-
-👀 کدام تیم روی کاغذ مدعی است، اما ممکن است همه را غافلگیر کند؟
-از بین بازی‌های امروز یکی را انتخاب کن و قبل از شروع مسابقه ثبتش کن
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-🛒 دانلود مستقیم اپلیکیشن اندروید
-
-🛰️ آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام
-
-📷 مشاهده پروفایل اینستاگرام
-
-لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰11
-</div>
-
-## tasiyanc — post 10678
-
-<div align="center"><video src="files/post_10678_tasiyanc_10678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10678_tasiyanc_10678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت کشیشیان که توی عرصه تولید گوشت داره فعالیت میکنه با این تبلیغش تونسته کلی ویو بگیره و فروش محصولاتش تقریبا ۳ برابر شده:
-
-⚡ @Tasiyanc
 </div>
 

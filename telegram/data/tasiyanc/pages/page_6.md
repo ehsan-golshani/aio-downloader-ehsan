@@ -1,8 +1,163 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/13 13:17
+📅 آخرین بروزرسانی: 1405/07/13 22:36
 
 ---
+
+## tasiyanc — post 10602
+
+<div align="center"><video src="files/post_10602_tasiyanc_10602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10602_tasiyanc_10602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هجوم مسافران ایرانی‌ به جزیره کیش در پی بسته شدن پروازها به خارج !
+
+با افزایش نجومی قیمت دلار و بسته شدن مسیرهای هوایی به‌ویژه به  دوبی ، متقاضیان سفر به جزیره زیبای مرجانی کیش رشد فزاینده و  ‌چشمگیری داشته است و مورد استقبال هموطنان در داخل کشور قرار گرفته است
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10601
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡 💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش! اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم! 💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار 🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+ چطور کار می‌کنه؟ ◀️ اولین واریز و…
+</div>
+
+## tasiyanc — post 10600
+
+<div align="center"><img src="files/post_10600_tasiyanc_10600.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🛡 اولین شرطت رو بیمه کردیم! 🛡
+
+💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش!
+
+اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم!
+
+💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار
+🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+
+
+چطور کار می‌کنه؟
+◀️ اولین واریز و اولین شرطت رو ثبت کن
+◀️ شرط ترکیبی با حداقل ۳ انتخاب بزن
+◀️ اگه باختی… فرداش فری بت تو حسابه!
+
+⏳ فقط برای مشتریان جدید | فری‌بت تا ۷ روز قابل استفاده است
+
+🔥 بدون ریسک شروع کن، همین حالا ثبت‌نام کن!
+
+🔻http://betegram.com/affiliates?btag=3_l7
+</div>
+
+## tasiyanc — post 10599
+
+<div align="center"><video src="files/post_10599_tasiyanc_10599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10599_tasiyanc_10599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت.
+
+هر دلار: 242 هزار تومن
+هر سکه: 242 میلیون تومن
+هر گرم طلا: 24 میلیون و 200 هزار تومن
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
+متصل با اکثر اینترنت ها
+اختصاصی، کل سرور ها تست شده
+
+فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
+
+دانلود V2Box نسخه اندروید 🔐
+دانلود V2Box نسخه iOS 🔐
+
+دانلود Npv Tunnel نسخه اندروید 🔐
+دانلود Npv Tunnel نسخه iOS 🔐
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10597
+
+<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️‍🔥
+
+نمک آبرود زیبا « استان مازندران »
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10595
+
+<div align="center"><img src="files/post_10595_tasiyanc_10595.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r6🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10594
+
+<div align="center"><video src="files/post_10594_tasiyanc_10594.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10594_tasiyanc_10594.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا موزه ملی ماشین‌های تاریخی ایرانه 
+👑
+
+تو این موزه از کالسکه تاج‌گذاری «محمد رضا شاه پهلوی» تا کالسکه‌ای که «ناصرالدین شاه» داخلش ترور شد نگهداری میشه.
+کلکسیونی ماشینایی که داخل این موزه نگهداری میشه یکی از گرون‌ قیمت‌ ترین کلکسیونای ماشین داخل خاورمیانه هست.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10593
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅برترین و قدیمی ترین مجموعه تحلیلی ایران ینی انتن بت
+✅ 
+❗️اگ توم میخوای روزانه درامد دلاری داشته باشی کانالی انالیز انتن بت از دست نده
+💖 
+⚡️توی این کانال تحلیل و انالیز یاد میگیری تا خودت بتونی درامد دلاری داشته باشی از پیش بینی تخصصی فوتبال
+💖 ادرس عضویت کانالشون:
+💖🅰5…
+</div>
 
 ## tasiyanc — post 10592
 
@@ -144,143 +299,5 @@ https://t.me/+kt_bsasgniphZmZk
 
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10579
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
-
-Location 🇺🇸
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10578
-
-<div align="center"><video src="files/post_10578_tasiyanc_10578.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10578_tasiyanc_10578.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه دختر ۲۳ ساله انقدر رابطه مقعدی داشته که دچار بی اختیاری گازهای معده و مدفوع شده و با ایزی لایف میره بیرون و به گفته خانم دکتر هیچ درمانی ام براش وجود نداره.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10576
-
-<div align="center"><img src="files/post_10576_tasiyanc_10576.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r5🅰
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10575
-
-<div align="center"><video src="files/post_10575_tasiyanc_10575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10575_tasiyanc_10575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تغییر کاربری لنج های جنوب کشور «که از عمان و امارات بار میاوردن» به قایق های تفریحی
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10574
-
-<div align="center"><img src="files/post_10574_tasiyanc_10574.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این زن شوهری که نیم تن وزن داشتن باعث شدن یه ساختمون هنگام سکسشون بریزه.
-
-یه زوج در لیورپول که وزنشون روی همدیگه ۵۰۰ کیلو گرم بود(مرده ۲۹۰ و زنش ۲۰۰) توی اتاق خوابشون بودن حین رابطه جنسی بودن که ساختمون ۲۵۰ ساله فرو میریزه! همسایه گفته بودن که ساختمون خودش قدیمی بوده و پیش بینی میکردن که ساختمون فرو میریزه ولی بی توجهی کردن و تلمبه‌ها و وزن این زن و شوهر هم بی تاثیر نبوده.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10571
-
-<div align="center"><img src="files/post_10571_tasiyanc_10571.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری: گوگل ایرانیا رو تحریم کرده و از این به بعد مردم ایران دیگه نمیتونن حساب جدید جیمیل بسازن!
-
-« فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10570
-
-<div align="center"><video src="files/post_10570_tasiyanc_10570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10570_tasiyanc_10570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از دانشگاه آزاد تهران
-بزرگترین کلاب کشور رو مشاهده میکنید .
-
-دانشگاه آزاد اسلامی، با شعبه های متعدد سراسر ایران.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10568
-
-<div align="center"><img src="files/post_10568_tasiyanc_10568.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💰🛍 جشنواره اسلات AmitisBet شروع شد!
-
-از0️⃣3️⃣شهریور تا 2️⃣1️⃣مهر
-با یک شارژ 2️⃣ میلیونی و یا 5️⃣1️⃣ دلاری و انجام بازیهای اسلات
-
-در پایان دوره، روز دوشنبه 3️⃣1️⃣ مهر، معادل 5️⃣🔣 مجموع شارژت رو پاداش نقدی بگیر
-
-هر بازی 🟰 یک امتیاز برای ورود به قرعه‌کشی
-
-🛒 دانلود مستقیم اپلیکیشن اندروید
-
-📱 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام
-
-📱 مشاهده پروفایل اینستاگرام
-
-لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
 </div>
 
