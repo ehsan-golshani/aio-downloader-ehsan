@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 9836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی
+
+هر دلار 218000
+
+طلای ۱۸ عیار 22.500.000
+
+سکه تمام بهار 222.600.000
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9835
+
+<div align="center"><img src="files/post_9835_tasiyanc_9835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قاتل سریالی ای که باید براش سر تعظیم فرود آورد 💀
+
+آقای توی عکس اسمش پدرو رودریگزه، و برزیلیه، یه باند خلافکار دوس دختر باردارشو به قتل میرسونن،اونم میفته دنبال این گروه و تمام اعضای این گروه که ۳۰ نفرو بودنو میکشه بعد از این قتل ها میفته زندان و چندین سال از عمرشو تو زندان میمونه
+تو زندان هم ۴۷ زندانی که اکثرشون پدوفیل و یا متجاوز بودن رو هم به قتل میرسونه، با اینکه یک قاتل سریالیه تو برزیل بشدت براش احترام قائلن.
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9834
 
@@ -233,23 +259,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تسنیم:
-آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9809
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حملات به صورت گسترده و ترکیب جنگنده، پهپاد و موشک تاماهاک است
 
 🩸 @Tasiyanc
 </div>

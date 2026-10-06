@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 9514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc Mumbai 🇮🇳.ovpn
+</div>
+
+## tasiyanc — post 9513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 
+🛜
+🛜
+🛜
+🛜
+🛜
+
+آموزش اتصال 
+⛓
+
+
+
+💋 @Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9511
 
@@ -282,46 +310,5 @@ Negative prompt: cartoon, CGI, 3D render, illustration, painting, plastic skin, 
 ایران عالیه، کتاب شیطان پرستی نوشتن، بعد صفحه اولش: بسم الله الرحمن الرحیم.
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9491
-
-<div align="center"><img src="files/post_9491_tasiyanc_9491.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
-
-🌍 سایت بین‌المللی و معتبر LINEBET
-
-⚽️ پیش‌بینی فوتبال
-🎰 کازینو آنلاین
-💳 واریز و برداشت ریالی
-🎁 بونوس 100٪ اولین واریز
-🎁 بونوس 100٪ هر دوشنبه
-📞پشتیبانی فارسی فعال
-
-🎁کد هدیه ثبت‌نام: L5670
-
-🔗 دانلود اپلیکیشن اندروید 👉
-
-🔗 لینک سایت 👉
-✉️ https://t.me/+dukgrB6-zGsyNGM8
-
-🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
-sr30
-📚 آموزش کامل سایت👉
 </div>
 

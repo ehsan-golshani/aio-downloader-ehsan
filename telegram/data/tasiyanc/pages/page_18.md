@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 10346
+
+<div align="center"><video src="files/post_10346_tasiyanc_10346.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10346_tasiyanc_10346.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت مولتی لوک
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید نسخه جدید 
+
+نسخه جدید حتما دانلود کنید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده
+⭕️
+
+
+مناسب دانلود 
+⬇️ ترید 
+🤑 اینستاگرام 
+📸 جمنای 
+🤖
+
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10345
+
+<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
+
+سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
+ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10344
 
@@ -282,33 +327,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 پ‌ن کراشاتون لایک نداره؟
 
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10324
-
-<div align="center"><video src="files/post_10324_tasiyanc_10324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10324_tasiyanc_10324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این کسخل دیشب تو پونک تهران ، از بالای آپارتمان ۳ تا کوکتل مولوتوف سمت مردم پرت کرده و فرار کرده بود
-
-که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10323
-
-<div align="center"><video src="files/post_10323_tasiyanc_10323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10323_tasiyanc_10323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز هواپیمای مشهد به کرمانشاه نقص فنی پیدا می‌کنه تو آسمون و نزدیک بود سقوط کنه .
-
-یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
 @Tasiyanc
 </div>
 

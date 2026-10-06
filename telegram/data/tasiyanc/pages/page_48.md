@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 9537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+
+آموزش اتصال ⛓
+
+🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
+
+
+اتصال پر سرعت برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
+
+## tasiyanc — post 9536
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آیا میدانید زمان اختلال باید در کانال پروکسی ما نیز عضو شوید؟
+@TasiyanProxy
+@TasiyanProxy
+@TasiyanProxy
+ارائه پروکسی های پر سرعت 📡
+</div>
 
 ## tasiyanc — post 9535
 
@@ -323,33 +352,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 💋
-</div>
-
-## tasiyanc — post 9514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Mumbai 🇮🇳.ovpn
-</div>
-
-## tasiyanc — post 9513
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 
-📶
-
-تست شده تمام نت‌ها 
-🛜
-🛜
-🛜
-🛜
-🛜
-
-آموزش اتصال 
-⛓
-
-
-
-💋 @Tasiyanc 
-⭐️
 </div>
 

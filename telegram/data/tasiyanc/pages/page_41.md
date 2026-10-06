@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9727
 
@@ -280,34 +297,5 @@ til.ac/0L4vyJf
 🇫🇷 18 | 15 | 25 | 12
 
 @Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-(نسخه جدید دانلود کنید کانفیگای قبلی پاک کنید جدیدارو بزنید)
-
-
-
-🩸 @TASIYANC
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/14 23:19
+📅 آخرین بروزرسانی: 1405/07/15 03:05
 
 ---
+
+## ProxyMTProto — post 51787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ccc.horizon555.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn10.cdnwave.org
+Port: 443
+Secret: ee42c25e3a5bebdab61abbcacf2e970c896d61676e69742e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51785
 
@@ -164,24 +182,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: Unknown
 Port: 443
 Secret: dd1924acaec2bb63dac896a6d02a382f38
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gram.blog
-Port: 853
-Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 @ProxyMTProto
 </div>
 

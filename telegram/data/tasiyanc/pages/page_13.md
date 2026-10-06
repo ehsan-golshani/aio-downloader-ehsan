@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 10463
+
+<div align="center"><img src="files/post_10463_tasiyanc_10463.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما زیبایی دریاچه مرداب سراوان - رشت 🇮🇷 را می‌بینید تکه ای از بهشت!
+
+لذت قایقرانی توی دریاچه سراوان رو نمیشه با قایق سواری توی دریاچه های دیگه مقایسه کرد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10462
+
+<div align="center"><video src="files/post_10462_tasiyanc_10462.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10462_tasiyanc_10462.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣
+🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
+🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 
+‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
+</div>
 
 ## tasiyanc — post 10461
 
@@ -260,32 +286,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 🔴پارتی وایرال شده ی مختلط اروپایی تو تهران :
 
 برای این مرحله شما باید نسخه پرمیوم ایرانُ نصب کنین
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10440
-
-<div align="center"><img src="files/post_10440_tasiyanc_10440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلمی که بهنام زاپاتا از پیمان اکبری (مجری) روی تخت در حالی که لخته و با 2 دختره خوابیده منتشر کرده
-« مشاهده »
-</div>
-
-## tasiyanc — post 10437
-
-<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼امروز 20 September روز جهانی قدردانی از همسره
-👼
-
-بفرس براش 
-🌹
 
 
 💋 @Tasiyanc

@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 9667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9666
+
+<div align="center"><video src="files/post_9666_tasiyanc_9666.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9666_tasiyanc_9666.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9665
 
@@ -366,47 +430,6 @@ til.ac/0L4vyJf
 📱
 
 در صورت ارور چند بار بزنید
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9637
-
-<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9636
-
-<div align="center"><video src="files/post_9636_tasiyanc_9636.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9636_tasiyanc_9636.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای گیم - دانلود - وبگردی
-
-تست شده تمام نت‌ها
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-⭕️ در صورت ارور چند بار بزنید
 
 
 🩸 T.me/Tasiyanc

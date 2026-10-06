@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 10106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨نتانیاهو
+به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10104
 
@@ -233,33 +250,5 @@ Tasiyan | تاسیان pinned a photo
 « اطلاع رسانی کنید »
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10084
-
-<div align="center"><img src="files/post_10084_tasiyanc_10084.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 سرور پر سرعت نامحدود OpenVpn 📶
-
-مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 📸 یوتوب 🎥
-
-دریافت کانفیگ‌ها ➡️
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دلار 232 هزار تومن
-🟠 سکه 240 میلیون تومن
-🟠 طلا 24میلیون تومن
-🟠 نفت 100 دلار
-
-وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
 </div>
 

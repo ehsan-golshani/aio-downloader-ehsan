@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 10619
+
+<div align="center"><img src="files/post_10619_tasiyanc_10619.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه میلی‌گلد: مشکل حل شد نگران نباشید دارایی همه واریز میشه
+
+بعد از پیگیری‌های میلی دستور آزادسازی طلاهای میلی از بانک کارگشایی صادر شد خدمت تسویه و تحویل که به علت مسدودی دارایی‌های میلی در بانک کارگشایی مختل شده بود، فردا عصر پس از دریافت طلا از بانک کارگشایی به روال طبیعی بازخواهد گشت.
+همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
+﻿
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیجان را با ما تجربه کنید
+💐
+وینگو بینگو
+👆🅰‌7
+</div>
 
 ## tasiyanc — post 10617
 
@@ -278,40 +300,6 @@ Tasiyan | تاسیان pinned a file
 هر دلار: 242 هزار تومن
 هر سکه: 242 میلیون تومن
 هر گرم طلا: 24 میلیون و 200 هزار تومن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
-متصل با اکثر اینترنت ها
-اختصاصی، کل سرور ها تست شده
-
-فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
-
-دانلود V2Box نسخه اندروید 🔐
-دانلود V2Box نسخه iOS 🔐
-
-دانلود Npv Tunnel نسخه اندروید 🔐
-دانلود Npv Tunnel نسخه iOS 🔐
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10597
-
-<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️‍🔥
-
-نمک آبرود زیبا « استان مازندران »
-
 
 @Tasiyanc
 </div>

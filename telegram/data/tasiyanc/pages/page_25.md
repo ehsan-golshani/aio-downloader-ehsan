@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/14 23:21
+📅 آخرین بروزرسانی: 1405/07/15 03:07
 
 ---
+
+## tasiyanc — post 10139
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨/ترامپ به نیشن:
+اتش بس با این رژیم برای من تمام شده انها آشغال و تفاله هستند پایان رژیم ایران نزدیک است.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10138
+
+<div align="center"><video src="files/post_10138_tasiyanc_10138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10138_tasiyanc_10138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨در این ویدیو موتور یه پیک آتیش گرفته نکته جالب این ویدیو اینه که یه نفر داره شماره کارت پیک رو بلند میخونه و مردم عزیز دارن همونجا به حسابش پول میزنن تا بتونه یه موتور برا خودش بگیره « درود به غیرت و شرف ایرانی »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10137
 
@@ -351,22 +372,5 @@ sa18
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨نتانیاهو
-به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
-
-💋 @Tasiyanc
 </div>
 
