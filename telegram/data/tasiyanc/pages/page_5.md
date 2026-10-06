@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/13 22:36
+📅 آخرین بروزرسانی: 1405/07/14 04:27
 
 ---
+
+## tasiyanc — post 10625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
+
+## tasiyanc — post 10624
+
+<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
+
+https://t.me/+E4HUFuYfyUw1MjRk
+https://t.me/+E4HUFuYfyUw1MjRk
+
+🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
 
 ## tasiyanc — post 10623
 
@@ -297,21 +319,5 @@
 همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
 
 🌐 wingobingo.tv
-</div>
-
-## tasiyanc — post 10604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a file
-</div>
-
-## tasiyanc — post 10603
-
-<div align="center"><img src="files/post_10603_tasiyanc_10603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
-
-@Tasiyanc
 </div>
 

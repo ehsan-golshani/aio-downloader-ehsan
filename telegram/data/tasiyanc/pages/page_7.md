@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/13 22:36
+📅 آخرین بروزرسانی: 1405/07/14 04:27
 
 ---
+
+## tasiyanc — post 10581
+
+<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10580
+
+<div align="center"><video src="files/post_10580_tasiyanc_10580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10580_tasiyanc_10580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴این روزا دزدها در کمین هستن تا گوشی و اشیای گران‌قیمت مردمو سرقت کنن ، خیلی مراقب باشید بخصوص دختر خانوما
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10579
 
@@ -241,35 +266,6 @@ https://AmitisBet.com/
 
 از قیاسی یاد بگیریم 😂😂😂
 
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10559
-
-<div align="center"><video src="files/post_10559_tasiyanc_10559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10559_tasiyanc_10559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💸ترامپ :
-
-من توافقی که ایرانی‌ها پیشنهاد دادن رو رد کردم، اونا می‌خوان به توافقی برسن که طبقش تنگه هرمز فوراً باز بشه، چون دارن به‌شدت ضرر می‌کنن؛
-البته این چیزا رو تو اخبار جعلی نمی‌خونید و نمی‌بینید، ولی ما داریم به‌شدت پیروز می‌شیم. ما کنترل کامل تنگه هرمز رو داریم و حجم عظیمی از نفت داره از اونجا عبور می‌کنه. فقط دیشب 29 کشتی از تنگه رد شدن.
-اونا دنبال توافقن و منم با توافق کردن مشکلی ندارم؛ خودمم دوست دارم توافق کنم، ولی توافقی که پیشنهاد دادن قابل قبول نیست.
-کاری که می‌خوان بکنن اینه که فوراً تنگه هرمز رو باز کنن. می‌دونید چرا؟ چون دارن نابود میشن؛ پولی دیگه وارد کشورشون نمیشه، پولشون از تنگه هرمز میاد و در واقع خودشون سر خودشون کلاه گذاشتن. گفتن تنگه رو می‌بندیم تا برای دنیا مشکل درست کنیم؛ بعد من اومدم و بزرگ‌ترین محاصره نظامی تاریخ رو ایجاد کردیم؛ یه دیوار فولادی.
-حالا چی شده؟ دیگه پولی ندارن، چون خودشون می‌خواستن تنگه رو ببندن. منم گفتم خیلی خب، ما تنگه رو روی خودتون می‌بندیم، ولی بقیه می‌تونن ازش استفاده کنن.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10558
-
-<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
-
-دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
 
 @Tasiyanc
 </div>
