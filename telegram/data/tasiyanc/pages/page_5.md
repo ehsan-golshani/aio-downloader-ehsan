@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/14 17:53
+📅 آخرین بروزرسانی: 1405/07/14 23:21
 
 ---
+
+## tasiyanc — post 10639
+
+<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
+
+تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🌟
+
+تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید ❤️
+دانلود برای آیفون  📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 دلار 260.000 ؛ داره می‌ره سمت 300
+
+سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10636
+
+<div align="center"><video src="files/post_10636_tasiyanc_10636.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10636_tasiyanc_10636.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چهره مثبتی که این بلاگر خارجی از ایران و ایرانی انجام داد ، متولیان فرهنگی با بودجه های کلان میلیاردی نتونستن انجام بدن!
+
+دم اون دوتا شیرزن با معرفت هموطن گرم❤️
+
++شاید پولمون بی ارزش ترین باشه شاید پاسپورتمون بی ارزش باشه ولی مرام معرفت با اختلاف اوله جهانه
+برو همه جا بگو این مردم با این همه سختی بدبختی فشار اقتصادی هنوزم معرفت و مهربونیشون زندست
+
+اینجا ایرانه داداش هرکی واردش بشه یه تیکه از قلبش واسه همیشه اینجا میمونه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا 🇷🇸 صربستان 🆚 آلمان 🇩🇪 ⏰ ساعت ۲۲:۱۵ 🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام 🔼 با بالاترین ضرایب پیش بینی 💵واریز و برداشت ارزی و ریالی❗️ 🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️ 💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️ 🛡تا…
+</div>
+
+## tasiyanc — post 10634
+
+<div align="center"><img src="files/post_10634_tasiyanc_10634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا
+
+🇷🇸 صربستان 🆚 آلمان 🇩🇪
+⏰ ساعت ۲۲:۱۵
+
+🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام
+🔼 با بالاترین ضرایب پیش بینی
+
+💵واریز و برداشت ارزی و ریالی❗️
+🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️
+💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️
+🛡تا ۵ میلیون تومان بیمه شرط ❗️
+
+🎁 فرصت را از دست ندهید! همین حالا پیش‌بینی خود را ثبت کنید و از بونوس‌های ویژهٔ Betegram بهره‌مند شوید.
+
+🔵http://betegram.com/affiliates?btag=3_l7
+</div>
 
 ## tasiyanc — post 10632
 
@@ -221,106 +310,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 💐
 وینگو بینگو
 👆🅰‌7
-</div>
-
-## tasiyanc — post 10617
-
-<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
-💎
-
-
-🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
-
-
-🟠بازی وینگو چیه؟
-یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
-
-
-🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
-
-
-📆 یکشنبه ۱۲ مهر
-
-⏰ ساعت ۲۱:۳۰ (به وقت تهران)
-
-🎙 مجری: سهند
-
-
-🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
-
-لینک ورود به بازی:
-
-
-🌐 https://wingobingo.tv/fa/wingo/14640
-</div>
-
-## tasiyanc — post 10616
-
-<div align="center"><video src="files/post_10616_tasiyanc_10616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10616_tasiyanc_10616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠۵ ترفند ساده برای تشخیص تازگی مواد غذایی که هر کسی باید بدونه
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیدارهای مهم روز چهارشنبه ۸ مهر 💥بیشتر از ۴۰۰ آپشن پیش بینی برای هر بازی در بتگرام ✔️ شارژ حساب از طریق کارت بانکی،ووچر و ارزدیجیتال ✔️ ۱۰۰٪ بونوس رایگان بر روی اولین واریز ✔️ ۱۰٪ بونوس روزانه واریز رمز ارز ✔️ تا ۵ میلیون تومان بیمه شرط ویژه کاربران…
-</div>
-
-## tasiyanc — post 10614
-
-<div align="center"><img src="files/post_10614_tasiyanc_10614.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیدارهای مهم روز چهارشنبه ۸ مهر
-
-💥بیشتر از ۴۰۰ آپشن پیش بینی برای هر بازی در بتگرام
-
-✔️ شارژ حساب از طریق کارت بانکی،ووچر و ارزدیجیتال
-✔️ ۱۰۰٪ بونوس رایگان بر روی اولین واریز
-✔️ ۱۰٪ بونوس روزانه واریز رمز ارز
-✔️ تا ۵ میلیون تومان بیمه شرط ویژه کاربران جدید
-✔️ امکان فروش شرط های خود
-
-⚡️همین حالا ثبت‌ نام کنید و و از بونوس‌های ویژهٔ بتگرام بهره‌مند شوید.
-
-🔴http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10613
-
-<div align="center"><video src="files/post_10613_tasiyanc_10613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10613_tasiyanc_10613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو از یه خانوم ایرانی توی وان ترکیه که حسابی توی پیج های ترکیه وایرال شده.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10612
-
-<div align="center"><video src="files/post_10612_tasiyanc_10612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10612_tasiyanc_10612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن طرف چند میلیارد هزینه کرده واسه عروسیش کلی کلاس رقص رفتن بعد یه توله سگ فامیل تو جایی که نباید بیاد ، میاد میرینه به فیلم :
-
-پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
-
-@Tasiyanc
 </div>
 
