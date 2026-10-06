@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/14 10:39
+📅 آخرین بروزرسانی: 1405/07/14 17:53
 
 ---
+
+## tasiyanc — post 10565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10564
+
+<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لحظه چپ کردن BMW تو جردن تهران
+
+پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10563
+
+<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
+
++ دوست پسرش همون موقع :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10562
+
+<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این بانو قهرمان میس المپیا 2026 شد
+
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10561
 
@@ -248,55 +296,5 @@ https://jhet0n.online/fa/?btag=2786270
 منبع: Journal of Family Psychology
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10545
-
-<div align="center"><video src="files/post_10545_tasiyanc_10545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10545_tasiyanc_10545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10544
-
-<div align="center"><video src="files/post_10544_tasiyanc_10544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10544_tasiyanc_10544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10543
-
-<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران نصب کنین عالیه
-
-🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10541
-
-<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
-
-حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
-
-@Tasiyanc
 </div>
 

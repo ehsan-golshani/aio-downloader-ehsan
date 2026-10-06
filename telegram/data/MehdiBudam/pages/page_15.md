@@ -1,8 +1,50 @@
 # آرشیو کانال MehdiBudam - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/14 10:37
+📅 آخرین بروزرسانی: 1405/07/14 17:52
 
 ---
+
+## MehdiBudam — post 8118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor9
+
+
+slipnet-enc://AZhtkNTpdAO/CrmqNTLYW3zEIgiQyUyZXur7EuNygYGR9DnznzZehMci7GM2DIXGD4x0PGgzLpkQ+CyHImwOd7UBVIydt6tznIzYquPWW2PVaIJv64VU/t+77aofy1Oon3HRSCGOinoAn6JgAcYMkicPk32fu+xPQWFdMGeSUdH070x+Hv5pRItCMUP2C82DN0Snm/h1djr9E1UcZ207WcINa1bQoP2B6tQ8Qvo6yJgnR8tNCTBrFLf3KsiPJbpLkyN93PxEObBApennhuJhWExAAnYBHAeW+aFiQLz64Z6r8Bhxft+MDd9E6vrZ5oDczMTjD8IoR9e6PFQXfZZEOGBnEOkz4IjmxyB5TKaAOCJXdaOxVlFz0qgDL+BYwpwOQegBEX4XZFTjHn0wki/9KrZDFUHzd93srCR5BVHfKXE0ZrLLiXQ6BSYK0IBg5eX/MeWPG4lJuTdTFCHQ75/wJ7kIMlO4ObmiXo48tP9oZlTvxMOaEgrXPSO+rh02PjghkoRFRQH4P1DWiCaHvMeuhq2WrYJGvqQccGUJCWqtnLFjMfoaJBubepj3ggwBYbl6b2TcLgQpQvdiDWSXkIxT+XO+ab097Vftdobb8VDtIYjR7NdRvuPy0PvILxgHmp9sWIi/YK+HoDrjd+hCxW/1tpKxjrk1dfYC/uTnzc+3CkA5utDAumC+tGF3y1DB54wJEDKA15xQPeY5OnGzSDjVkwCI5fezNZcGRHhZFCo=
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor8
+
+
+slipnet-enc://ASzieen3v58N7dtP4wq8K4c2WsdUOvnRPVSnBUa17XsUhgeEOE5R/h0zq1lBgQR6JniDGdcFvJ7HitxwXvpFAb8IKIq4fi0BP3xg5myCsS1QK/PaFGooRBawT6Ks7Jhgag4AUVin6xrZQv3sH/9Ym3HJ9Az3tb5EIjwfe2aNbBbIv8PxY7UB2vglEHYMCqlIv/C5YQcTAWfHHBUnSdiZ5Kkhi+1KhYaiG6LWED3frHaONVd9J6ML+ZL959cjg0aGKIM2OsRa7EB4oFJ+8ee195QD1K+kCVwJxpJbKjLVrIaoDCCWQZXErT46C868eiMx5jT/accR8uPXAZkSq9QevOkd90U1FlEC5LwHAAaAJbAZQKrPT0Tm71sPlW3Mf3YmBlRo6cLY0ZS6K3100Al9oK5BET33IySVye8Z6Oi+XwslciC3v8tegrRqEvt88RImtn2ObEa051ikQmua3wXfx5HeX6ZO39QbOPa7KBpU09b/jt6cB+jLJk8EEo62WLd7cAtEGHzL7PQd7cyHdjPa2JMvaQ+9CnL31zegyYOF0YUHefbUV/v0OzuhxVN1DrV9cIc677hwLralADYYnHOSmLGkysyq5pSiPk8T873ktVDNU5DO6NPTyMMRrjIHdnrYDJF1ByienyRPwjcVxNaGmJ3aZ9x5480wRzKBQMqlSQ65y+ox+2MlIet2DOkTU2URjfeWWEYnYJ+2htvz31lawlC6rDGc+VRHgw==
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8116
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به اینم توجه کنید که تور کلا رو نسخه لایت و ویندوز کار نمیکنه افراد زیادی بخاطر همین میگن کلا وصل نمیشه.
+</div>
+
+## MehdiBudam — post 8115
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor7
+
+
+slipnet-enc://AXf4sCEHqZu01ldIMobOju0dPS2wmes9OZ0OgBKnFo1GMBKEHtZq1tSeOvHPIHhGRw03MAS6jlqrt2U22Evejkjtg5SpKqx0u50Dzk7YxJqwY47zGPb6fHa7lWaeK3cHuAszbX3aUWqmS1/ADSRnD1RfYA+VlZKbk966wpq1CrhwlPq4E1M33YBDA/UQVMV5bqFhtEqdhr/Ff4Eg/EJS3Jkw07O/rlWGRmhuuNnjBg3X8uNdf8oQaJGzoeDfgj7ZhdH/7SjLOgZiiqnZ+E8XCVAcf2vj8Lp4EFkMn+bmlmu7OOtEaS8UdTJQw3/cxtwTJhzAHpeJdDpt7mH+O1vJHFcEoJJTjXdTiznMsKTJXSPYwXg5cP/mMPRRdsWAzvErkd1JSTQeEdtPpCUZUG+Z58rLmt+gQ3Z8qSbyQPZnUiGWUPsyHN2L0bnFSpgdNP+4jnPD2TOoq62A+3lhgw1YzIMf07sxoHXH+jrSOZuzxhfQoGdy1T1TnwNXqvxlz2OpcA2ITAVmERz76xzkNMYh68XBt2J1SEDGYMziWhWxnYvHEtZ4iiywFCplANymgaOLiEw+05vmyGHbXgDsEWgQhml7FP5J9uXCczg8YIXGzZ6gsWpgB/jvjipSfN1Z8zCvobUKSO2hlwVFXWMp2UziPYu1dLNpl8ldJ/94qZSip7LLebdVlOOqvuTVguBv7UxGUzX0cmwEi7e5f2I8VbpH2GiQtBzO6sJu5wmt4jA=
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8114
 
@@ -140,29 +182,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اکثرا تست کردن میگن obfs4 کار نمیکنه اما شما اونم اضافه کنید.
-</div>
-
-## MehdiBudam — post 8096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️این روش آی پی شما را تغییر نمی‌دهد
-</div>
-
-## MehdiBudam — post 8094
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8093
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه مورد دیگه ای هم که هست بعضیا میگن فقط با پروکسی مد روشن وصل میشه و بدون اون وصل نمیشه.
 </div>
 

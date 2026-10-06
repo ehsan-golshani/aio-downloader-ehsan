@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/14 10:39
+📅 آخرین بروزرسانی: 1405/07/14 17:53
 
 ---
+
+## tasiyanc — post 10610
+
+<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
+</div>
+
+## tasiyanc — post 10609
+
+<div align="center"><video src="files/post_10609_tasiyanc_10609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10609_tasiyanc_10609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سونامی استعفاء معلمان و فریاد از خفقان معیشتی و کمبود درامد
+
+شدیدترین موج استعفا در ایران طی ۷۲ ساعت اخیر رخ داده! طی چند روز اخیر، شدیدترین موج استعفای تاریخ ایران اتفاق افتاده و پرستاران، معلمان و کارمندان به علت حقوق بسیار پایین، از کارشون استعفا دادن! به قدری این موج استفعا شدید بوده که خیلی از بیمارستان‌ها خالی از کادر درمان شده!
+خیلی از کلاس‌های درس هم دیگه معلمی برای آموزش وجود نداره و صدها نفر استعفا دادن.
+‌
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10608
+
+<div align="center"><img src="files/post_10608_tasiyanc_10608.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽ اسپانیا 🇪🇸 - 🇭🇷 کرواسی
+🏆 لیگ ملت‌های اروپا‌ 🏆
+🕔 سه‌شنبه ساعت ۲۲:۱۵
+📍 ورزشگاه رامون سانچز پیس‌خوان
+🎲 با بیش از ۶۵۰ نوع آپشن پیش‌بینی
+👆 ضرایب شگفت‌انگیز
+
+📊 نگاهی به آمار دو تیم:
+✅ اسپانیا: ۸ برد و ۲ تساوی در ۱۰ بازی اخیر.
+✅ کرواسی: ۶ برد و ۴ شکست در ۱۰ بازی اخیر.
+📈 میانگین گل در ۱۰ بازی اخیر اسپانیا: ۲.۳ گل در هر بازی.
+📈 میانگین گل در ۱۰ بازی اخیر کرواسی: ۳.۳ گل در هر بازی.
+
+🧠 بازی با برنامه، لذت را ماندگار می‌کند.
+
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+🟢 دریافت سرورفیلترشکن رایگان
+🅰r7
+💻 @BetForward
+</div>
+
+## tasiyanc — post 10607
+
+<div align="center"><img src="files/post_10607_tasiyanc_10607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨وحشتناک‌ترین خبر چند روز اخیر آمریکا مربوط به خوابگاه دانشگاه کرنله.
+
+
+چند پسر یک دختر دانشجو رو با کتامین مسموم می‌کنن و وقتی نیمه‌هوشیار بوده، بهش تجا*وز گروهی می‌کنن.
+
+بعدش توی گروه خوابگاه درباره این اتفاق پست می‌ذارن و به بقیه پسرها می‌گن توی فلان اتاق ک* رایگان هست و هرکی می‌خواد بیاد.
+مدیرای دانشگاه به جز دو نفری که اخراج میکنن به بقیه‌اشون می‌گن برای تنبیه مقاله بنویسن که چقدر کارشون زشت بوده!! و همین باعث اعتراض آمریکاییا شده.
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10606
 
@@ -243,49 +316,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 اینجور آدما باید برن زندان و گواهینامشون برای همیشه باطل بشه.
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10587
-
-<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری شگفت انگیز از هواپیمای AC 130 
-🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10586
-
-<div align="center"><video src="files/post_10586_tasiyanc_10586.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10586_tasiyanc_10586.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
-
-و به همین زیبایی پول مردم رو خوردن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10585
-
-<div align="center"><video src="files/post_10585_tasiyanc_10585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10585_tasiyanc_10585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده ؛ یه زوج ایرانی از عروسی‌شون ویدیو منتشر کردن و جای اینکه فامیلای دور و کسایی که حتی سالی یه بارم نمی بینن دعوت کنن،
-
-فقط رفیقای صمیمی‌شون رو دعوت و حسابی باهم عشق و حال کردن.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+kt_bsasgniphZmZk https://t.me/+kt_bsasgniphZmZk 🅰g5 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
 </div>
 

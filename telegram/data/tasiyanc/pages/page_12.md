@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/14 10:39
+📅 آخرین بروزرسانی: 1405/07/14 17:53
 
 ---
+
+## tasiyanc — post 10475
+
+<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10474
+
+<div align="center"><img src="files/post_10474_tasiyanc_10474.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 جدیدترین آمار نسبت دختران به پسران در دنیا منتشر شد، بر اساس این آمار کشورای:
+
+•روسیه🇷🇺
+•لتونی 🇱🇻
+•مولداوی 🇲🇩
+
+•بیشترین دخترای دنیا رو دارن، به حدی در این کشورها نسبت دخترا به پسرا بیشتره، که دخترا حاضرن پول، طلا، ماشین خرج کنن تا یه پسر گیرشون بیاد!
+•اکثر دخترای این کشورا، بور، سفید، چشم رنگی و بسیار زیبا هستن و گاها برای رفع نیازشون، دوس پسر اجاره میکنن
+•همچنین توی ایران ، نسبت پسرا به دخترا بیشتره و کشورای عربی مثل قطر، عربستان و... نزدیک ۷۰ درصد جمعیتشون پسرن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 فرانسه - رومانی ⏰ ساعت ۱۶:۳۰ 🌎 📲 آلمان - لهستان 😀 ساعت ۱۹:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
+</div>
+
+## tasiyanc — post 10472
+
+<div align="center"><img src="files/post_10472_tasiyanc_10472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 فرانسه - رومانی
+⏰ ساعت ۱۶:۳۰ 🌎
+
+📲 آلمان - لهستان
+😀 ساعت ۱۹:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R31
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10471
 
@@ -233,73 +294,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
-</div>
-
-## tasiyanc — post 10455
-
-<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 بلژیک - جمهوری چک
-⏰ ساعت ۱۷:۳۰ 🌎
-
-📲 اسلوونی - صربستان
-😀 ساعت ۲۲:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R30
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10453
-
-<div align="center"><img src="files/post_10453_tasiyanc_10453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درایران باستان به جای کلمات آقا و خانم که ریشه مغولی دارند به مردو زن میگفتند مهربان و مهربانو !
-
-مهربانو یعنی کسیکه مهر خلق میکند و مهربان یعنی نگهبان مهربانو
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10449
-
-<div align="center"><img src="files/post_10449_tasiyanc_10449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-29🅰
-🛒 ورود به سایت 👇
-✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 
