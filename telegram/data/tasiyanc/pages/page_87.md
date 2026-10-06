@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/07/14 04:27
+📅 آخرین بروزرسانی: 1405/07/14 10:39
 
 ---
+
+## tasiyanc — post 8465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در تبریز
+
+تایید یا تکذیب نمیشه
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8464
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 بازی ایران آمریکا آغاز شد
+</div>
 
 ## tasiyanc — post 8463
 
@@ -138,17 +154,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اسپانیااااااااااا میزنه
-</div>
-
-## tasiyanc — post 8445
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرررررررررررررررران تووووووووووورس
-</div>
-
-## tasiyanc — post 8444
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگگگگگگگگل
 </div>
 
