@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/15 13:08
+📅 آخرین بروزرسانی: 1405/07/15 20:37
 
 ---
+
+## tasiyanc — post 10064
+
+<div align="center"><video src="files/post_10064_tasiyanc_10064.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10064_tasiyanc_10064.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری / در حملات امشب از موشک‌های بارشی استفاده شده
+
+•موشک‌های بارشی (یا دارای کلاهک بارانی و خوشه‌ای)
+موشک‌هایی هستند که به جای داشتن یک سرجنگی یکپارچه و بزرگ
+، از تعداد زیادی ریزبمب یا بمب‌های کوچک تشکیل شده‌اند
+﻿
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10057
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 شلیک موشک از اصفهان ، خرم‌آباد ، تبریز ، کرمونشاه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
+نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 عبدالهی، فرمانده قرارگاه خاتم قبل حمله امشب:
+آمریکا به نفتکش‌های ایران هشدار داده که تخلیه کنن، اگه بزنه ما هم به پایگاه‌های آمریکا تو منطقه حمله می‌کنیم.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10053
 
@@ -226,67 +281,5 @@ sg17
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10038
-
-<div align="center"><video src="files/post_10038_tasiyanc_10038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10038_tasiyanc_10038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨صبح امروز جسد مهین اعتصام، ۳۳ ساله اهل هشتگرد البرز بعد از ۱۶ روز بی خبری و تلاش خانوادش پیدا شد
-
-مهین کلی تلاش کرد به جای پرایدش ماشین جدید بخره
-یکی از دوستای نزدیک خانوادگیشون گفت پراید و طلاها و پولایی که داریو بیار واست ماشین خوب بخرم
-ولی بین راه مهینو با روسری خودش خفه میکنه و به قتل میرسونه و جسدشو تو بیابونای نظراباد رها میکنه.
-+ قاتل حرومزاده دستگیر و جای جسد رو هم به پلیس نشون داده
-پ ن : ویدیو فوق مصاحبه پدر مهین می‌باشد که جزییات قتل را توضیح میدهد
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10037
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10035
-
-<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
-
-مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
-
-
-دریافت کانفیگ ها 👉
-
-@Tasiyanc 💋
-</div>
-
-## tasiyanc — post 10034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 
