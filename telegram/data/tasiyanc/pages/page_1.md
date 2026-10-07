@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10740
+
+<div align="center"><video src="files/post_10740_tasiyanc_10740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10740_tasiyanc_10740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 فوری،بی‌بی نتانیاهو توی مصاحبه جدیدش: حتی میتونم تاریخ دقیق سقوط جمهوری اسلامی رو بگم، ولی یه سری چیزا باید محرمانه باقی بمونه!
+
+وقتش که برسه، مردم ایران قیام میکنن و این خودِ مردم هستن که باعث سقوط جمهوری اسلامی میشن.
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10739
 
@@ -260,19 +273,6 @@ https://t.me/+EObzAJI5HS5jOTk8
 🔴 خبرنگار: خبر داری دلار شده ۲۷٠ تومن؟
 
 یه خانم تو تجمعات: اره ولی ما بخاطر وطنمون اومدیم، اگه ما نبودیم دلار حتی گرون ترم میشد
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10719
-
-<div align="center"><video src="files/post_10719_tasiyanc_10719.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10719_tasiyanc_10719.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اگر گوشی‌تون مدل بالا نیست ولی دوست داری عکس‌های باکیفیت بگیری، این ویدئو رو حتما ببین
-
 
 ⚡ @Tasiyanc
 </div>

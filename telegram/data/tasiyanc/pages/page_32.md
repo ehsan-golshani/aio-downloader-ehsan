@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9971
 
@@ -255,18 +263,5 @@ sg14
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9946
-
-<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
-
-
-💋 @Tasiyanc
 </div>
 

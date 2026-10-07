@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9798
+
+<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
+همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9797
 
@@ -279,16 +291,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠سردار نقدی: ساکنان اسرائیل به کشورهایشان برگردند و به سرعت فرار کنند
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9768
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ترامپ:
-
-تمام موشک‌های ایرانی که به سمت پایگاه ما در اردن شلیک شدند، مورد رهگیری قرار گرفتند، به جز یک موشک.
 
 🩸 @Tasiyanc
 </div>

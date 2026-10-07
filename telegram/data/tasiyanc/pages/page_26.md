@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10120
+
+<div align="center"><video src="files/post_10120_tasiyanc_10120.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10120_tasiyanc_10120.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود - Gemini  & ChatGpt- اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+درصورت ارور چند بار بزنید 
+⭕️
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10118
 
@@ -275,17 +304,6 @@ sa18
 
 مذاکره با ایران ممکنه انجام بشه ٬ به دنبال توافق با ایران نیستیم ٬ کاری که من در مورد ایران انجام می‌دهم بسیار فراتر از یک توافق هسته‌ای هست
 
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 🔩 فوری٬ ترامپ :
-
-حملات بیشتری علیه ایران انجام خواهیم داد. جنگ ایران بلافاصله پس از انتخابات میان‌دوره‌ای پایان خواهد یافت!
-
-پی‌نوشت : انتخابات میان‌دوره‌ای ۱۲ آبان هست
 🩸 @Tasiyanc
 </div>
 

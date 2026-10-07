@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 116
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 7485
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 29، روز جهانی مردهاست❤️‍🔥
+روزتون مبارك گوگولیای پشمالو
+</div>
 
 ## tasiyanc — post 7484
 
@@ -189,11 +196,5 @@ ESPRESSO 🔥☕.npvt
 🔑Password :  @Tasiyanc
 
  💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حملات مجدد آمریکا به قشم
 </div>
 

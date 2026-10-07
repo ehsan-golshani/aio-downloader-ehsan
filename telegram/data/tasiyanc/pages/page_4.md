@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏳ فرصت محدوده؛ زود جوین شید، می‌خوام بردارمش 👇🔥
+
+https://t.me/+ha2KmA-UHioxNDI0
+https://t.me/+ha2KmA-UHioxNDI0
+</div>
 
 ## tasiyanc — post 10674
 
@@ -266,24 +275,5 @@ https://t.me/+VGH5xHispzJlMjM8
 🔴وضعیت اینستاگرام فارسی روز به روز دارک‌تر میشه :|
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ اوپن‌Vpn پرسرعت 🌟
-
-1 کانفیگ نپستر نامحدود پرسرعت 🌟
-
-
-تست شده با تمام نت‌ها 🛜
-🛜🛜
-🛜
-🛜🛜
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-جهت دریافت کانفیگ ها کلیک کنید 👉
 </div>
 

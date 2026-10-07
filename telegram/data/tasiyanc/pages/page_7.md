@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10610
+
+<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
+</div>
 
 ## tasiyanc — post 10609
 
@@ -304,17 +314,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 🔴فک کن داری با خیال راحت تو مسیر خودت رانندگی میکنی، بی خبر از اینکه یه حرومزاده و حیوان دوپا رم کرده، سر پیچ تو جاده دو طرفه یهو تصمیم میگیره که سبقت میگیره و با سرعت میاد به سمت شما...!
 
 اینجور آدما باید برن زندان و گواهینامشون برای همیشه باطل بشه.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10587
-
-<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تصاویری شگفت انگیز از هواپیمای AC 130 
-🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
 
 @Tasiyanc
 </div>

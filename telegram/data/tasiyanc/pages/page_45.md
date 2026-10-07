@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9628
+
+<div align="center"><img src="files/post_9628_tasiyanc_9628.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📹20 تا فیلم برتر سینمایی پیشنهادی که میتونید ببینید !
+در دو ژانر متفاوت « عاشقانه و اکشن »
+
+سایت پیشنهادی دانلود و پخش بدون سانسور
+https://www.novigrad.top
+
+
+🩸 @TASIYANC
+</div>
 
 ## tasiyanc — post 9627
 
@@ -308,11 +323,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc ⚡ 05.ovpn
 </div>
 

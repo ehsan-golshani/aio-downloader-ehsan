@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10475
+
+<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10474
 
@@ -282,30 +294,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - جمهوری چک ⏰ ساعت ۱۷:۳۰ 🌎 📲 اسلوونی - صربستان 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me…
-</div>
-
-## tasiyanc — post 10455
-
-<div align="center"><img src="files/post_10455_tasiyanc_10455.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 بلژیک - جمهوری چک
-⏰ ساعت ۱۷:۳۰ 🌎
-
-📲 اسلوونی - صربستان
-😀 ساعت ۲۲:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R30
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 </div>
 

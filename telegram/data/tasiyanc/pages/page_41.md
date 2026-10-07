@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9743
+
+<div align="center"><img src="files/post_9743_tasiyanc_9743.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
+
+@HUNTTER_BET
+@HUNTTER_BET
+@HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9741
 
@@ -220,15 +232,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9708
-
-<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
-
-💋 @Tasiyanc
 </div>
 

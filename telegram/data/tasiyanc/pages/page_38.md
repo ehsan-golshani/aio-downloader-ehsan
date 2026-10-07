@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9828
+
+<div align="center"><video src="files/post_9828_tasiyanc_9828.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9828_tasiyanc_9828.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨« تایید نشده» یک خودروی ناشناس در شهرک گلستان شیراز، زنانی در خیابان تجمعات شبانه کرده بودند، زیر گرفت!
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9827
 
@@ -272,17 +285,5 @@ Demsexual
 sg10
 
 ✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9798
-
-<div align="center"><img src="files/post_9798_tasiyanc_9798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔹علی کریمی بازیکن سابق تراکتور و پرسپولیس:
-همینطوری که سال ۱۳۵۷ رسانه BBC؛ «روح الله خمینی» رو به مردم قالب کرد؛ حالا در سال ۱۴۰۵ یه سری بلاگر و افراد دیگه میخوان «رضا پهلوی» رو به مردم قالب کنن. مراقب باشید.
-
-
-🩸 @Tasiyanc
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10587
+
+<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تصاویری شگفت انگیز از هواپیمای AC 130 
+🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10586
 
@@ -254,13 +265,5 @@ https://AmitisBet.com/
 امروز تو تهران این پسر با موتور رفته بود جلوی دبیرستان دخترونه ویراژ میداد و مزاحمت ایجاد میکرد که توسط پلیس بازداشت و موتورشم توقیف شد!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
-
-@Tasiyanc
 </div>
 

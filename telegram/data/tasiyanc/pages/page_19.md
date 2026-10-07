@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10337
+
+<div align="center"><img src="files/post_10337_tasiyanc_10337.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتی یه فوت‌فتیش میخواد دزدی کنه 😂 :
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10336
 
@@ -257,18 +267,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کنسرت خیابونی گروه «لیان» در کیش حسابی تندروهارو فشاری کرده و معتقدن اینا همش تقصیر مسعوده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10308
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 OpenVPN - کانفیگ نامحدود
-
-🇦🇪
-🇩🇪
-🇳🇱
 
 💋 @Tasiyanc
 </div>

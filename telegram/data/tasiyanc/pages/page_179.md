@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 179
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 5596
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنون که کنارمون بودی این روزای سخت هم وطن🤍🕊
+</div>
 
 ## tasiyanc — post 5595
 
@@ -175,13 +181,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WAR 🔥.npvt
-</div>
-
-## tasiyanc — post 5566
-
-<div align="center"><img src="files/post_5566_tasiyanc_5566.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚀 4 SRVR.npvt
 </div>
 

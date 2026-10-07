@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10428
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
+</div>
 
 ## tasiyanc — post 10427
 
@@ -349,18 +355,6 @@ https://AmitisBet.com/
 
 اینا فقط چندتا از دستورای خفنشه؛
 بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10406
-
-<div align="center"><video src="files/post_10406_tasiyanc_10406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10406_tasiyanc_10406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
 
 💋 @Tasiyanc
 </div>

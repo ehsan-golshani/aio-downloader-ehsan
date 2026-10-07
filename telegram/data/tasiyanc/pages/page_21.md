@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
+</div>
 
 ## tasiyanc — post 10272
 
@@ -288,38 +294,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10241
-
-<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 
-📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-
-💖بونوس 100% واریز اول
-
-💖بونوس 100% واریز دوم
-
-💖بونوس 75% | 50% واریز سوم و چهارم
-
-💖بونوس 200% ویژه کازینو
-
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-
-🔥 کانال تلگرام وی پاری:
-
-✅ @wepari_irann
 </div>
 

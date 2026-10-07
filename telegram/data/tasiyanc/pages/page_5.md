@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ اوپن‌Vpn پرسرعت 🌟
+
+1 کانفیگ نپستر نامحدود پرسرعت 🌟
+
+
+تست شده با تمام نت‌ها 🛜
+🛜🛜
+🛜
+🛜🛜
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+جهت دریافت کانفیگ ها کلیک کنید 👉
+</div>
 
 ## tasiyanc — post 10652
 
@@ -287,18 +306,5 @@ https://AmitisBet.com/
 🎁 فرصت را از دست ندهید! همین حالا پیش‌بینی خود را ثبت کنید و از بونوس‌های ویژهٔ Betegram بهره‌مند شوید.
 
 🔵http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10632
-
-<div align="center"><video src="files/post_10632_tasiyanc_10632.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10632_tasiyanc_10632.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده ، این خانم میخواسته بره مهمونی و گرون ترین لباس یه آنلاین شاپ رو به قیمت ۱۰ میلیون سفارش داده.
-و حالا چیزی که به دستش رسیده:
-
-⚡ @Tasiyanc
 </div>
 

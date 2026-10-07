@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10695
+
+<div align="center"><video src="files/post_10695_tasiyanc_10695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10695_tasiyanc_10695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خاطره یه دختر تن فروش: یه دفعه یه سید بهم گفت بیا رابطه داشته باشیم، فقط تو زود بیا چون ممکنه خانمم بیاد خونه.
+رفتیم تو اتاق و شروع کرد صیغه خوندن، هر چی قرآن، آیت الکرسی، تابلو و کتاب دعا بود برعکس کرد و گفت زشته، گناه داره.
+یه دفعه وسط برنامه زنش اومد، گفت سید زودباش ...
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10694
 
@@ -308,14 +322,5 @@ https://AmitisBet.com/
 🔴 پسره برای نامزدش یه شب رویایی رمانتیک ساخته واسش گل خریده کنارش یه ایفون 18 پرومکس ۲۵۶ گیگ هم بهش هدیه داده، دختره همون لحظه میگه ۲۵۶ گیگ چیه اخه ۱ ترابایت میخواستم.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏳ فرصت محدوده؛ زود جوین شید، می‌خوام بردارمش 👇🔥
-
-https://t.me/+ha2KmA-UHioxNDI0
-https://t.me/+ha2KmA-UHioxNDI0
 </div>
 

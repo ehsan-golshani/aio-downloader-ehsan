@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 7420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم بره وار
+</div>
 
 ## tasiyanc — post 7419
 
@@ -189,19 +195,5 @@ FAST ⚡⚡🔥.npvt
 
  
 💘@Tasiyanc |  تاسیان اتصال امن
-</div>
-
-## tasiyanc — post 7389
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ نت مود 
-📱
-
-سرور سرعتی مناسب وب‌گردی و ..⚡
-
-آموزش اتصال 
-⛓
-@Tasiyanc 
-💠
 </div>
 

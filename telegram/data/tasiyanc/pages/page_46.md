@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc ⚡ 05.ovpn
+</div>
 
 ## tasiyanc — post 9605
 
@@ -309,18 +315,5 @@ til.ac/0L4vyJf
 🟠با این حال، هنوز خبری از تسلیم تهران نیست و برخی کارشناسان معتقدن جمهوری اسلامی ممکنه قبل از پذیرفتن خواسته‌های آمریکا، دوباره دست به اقدام نظامی بزند
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9577
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
 </div>
 

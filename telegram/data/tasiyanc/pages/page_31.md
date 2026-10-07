@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9992
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سخنگوی دولت رسما اعلام کرد:
+
+نرخ کارت جایگاه سوخت از بامداد ۱۷ شهریور به ۱۰ هزار تومان افزایش خواهد یافت.
+
++ سهمیه اول و دوم ثابت ، نرخ سوم ۱۰ هزار تومان شد
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9991
 
@@ -321,13 +333,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سد مهدی دهمردی بریم تو کارت یا ن 😐
-</div>
-
-## tasiyanc — post 9972
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
-
-💋 @Tasiyanc
 </div>
 

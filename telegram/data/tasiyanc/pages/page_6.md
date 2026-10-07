@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10632
+
+<div align="center"><video src="files/post_10632_tasiyanc_10632.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10632_tasiyanc_10632.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده ، این خانم میخواسته بره مهمونی و گرون ترین لباس یه آنلاین شاپ رو به قیمت ۱۰ میلیون سفارش داده.
+و حالا چیزی که به دستش رسیده:
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10631
 
@@ -309,15 +322,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10610
-
-<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 177
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 5664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+WİFİ موشک.npvt
+</div>
 
 ## tasiyanc — post 5663
 
@@ -188,11 +194,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
-</div>
-
-## tasiyanc — post 5627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی
 </div>
 

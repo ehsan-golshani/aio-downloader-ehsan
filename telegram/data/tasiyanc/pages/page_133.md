@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 6873
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال شدید رو خطوط همراه داریم دلیلش نمیدونم
+</div>
 
 ## tasiyanc — post 6872
 
@@ -205,14 +211,5 @@ T.me/Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قطر یکی زد به کمک های اولیه
-</div>
-
-## tasiyanc — post 6844
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✊امروز تولد مودی ترین خردادیه
-دونالد ترامپ متولد ۱۴ ژوئن ۱۹۴۶ است و امروز (یکشنبه ۱۴ ژوئن ۲۰۲۶) وارد ۸۰ سالگی می‌شود.
-@Tasiyanc 
-✅
 </div>
 

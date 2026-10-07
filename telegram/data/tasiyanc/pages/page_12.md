@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10498
+
+<div align="center"><video src="files/post_10498_tasiyanc_10498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10498_tasiyanc_10498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت
+
+✔️دو شرط رایگان در روز
+⭐️
+
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
+⭐️
+
+🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
+🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
+
+💱
+0️⃣
+1️⃣
+🔣شارژ بیشتر برای شارژ با روش رمزارز
+
+⭐مجهز به سیستم پی اس ووچر
+👑
+
+
+😀ورود به سایت:
+😀g1🅰
+
+📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+❤️کانال تلگرام 
+😀
+
+📎 https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10494
 
@@ -251,18 +289,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
 
 گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10475
-
-<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
-
 💋 @Tasiyanc
 </div>
 

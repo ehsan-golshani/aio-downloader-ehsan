@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 10406
+
+<div align="center"><video src="files/post_10406_tasiyanc_10406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10406_tasiyanc_10406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینجا تهران ، تصاویر وایرال شده مرکز خرید اپال
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10405
 
@@ -236,16 +248,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 🔴یه کافه تو رشت میخواست افتتاح شه که همه چیش صورتی بود ، از وسایلای داخل کافه تا نما و پوشش کارکنانش
 این وسط بعضی از کصمغزا کیر دادن که اینا منظورشون به چیز دیگه‌س از اینکار.
 و اینطوری بخاطر رنگ کافه جلوی افتتاحشو گرفتن و اعلام کردم فلا افتتاح نمیشن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10382
-
-<div align="center"><img src="files/post_10382_tasiyanc_10382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/15 20:37
+📅 آخرین بروزرسانی: 1405/07/16 01:48
 
 ---
+
+## tasiyanc — post 9708
+
+<div align="center"><img src="files/post_9708_tasiyanc_9708.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9707
 
@@ -276,17 +286,5 @@ https://Winamit.com/fa
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9683
-
-<div align="center"><img src="files/post_9683_tasiyanc_9683.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۲۰ تا از برترین گیم‌ها برای موبایل از نگاه کاربران ۲۰۲۶
-
-+ بازی efutball از قلم افتاده
-
-🩸 @Tasiyanc
 </div>
 
