@@ -1,8 +1,88 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/15 03:07
+📅 آخرین بروزرسانی: 1405/07/15 13:08
 
 ---
+
+## tasiyanc — post 10581
+
+<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10580
+
+<div align="center"><video src="files/post_10580_tasiyanc_10580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10580_tasiyanc_10580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴این روزا دزدها در کمین هستن تا گوشی و اشیای گران‌قیمت مردمو سرقت کنن ، خیلی مراقب باشید بخصوص دختر خانوما
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
+
+Location 🇺🇸
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10578
+
+<div align="center"><video src="files/post_10578_tasiyanc_10578.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10578_tasiyanc_10578.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه دختر ۲۳ ساله انقدر رابطه مقعدی داشته که دچار بی اختیاری گازهای معده و مدفوع شده و با ایزی لایف میره بیرون و به گفته خانم دکتر هیچ درمانی ام براش وجود نداره.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10577
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10576
+
+<div align="center"><img src="files/post_10576_tasiyanc_10576.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r5🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 10575
 
@@ -186,91 +266,6 @@ https://AmitisBet.com/
 
 از قیاسی یاد بگیریم 😂😂😂
 
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10559
-
-<div align="center"><video src="files/post_10559_tasiyanc_10559.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10559_tasiyanc_10559.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💸ترامپ :
-
-من توافقی که ایرانی‌ها پیشنهاد دادن رو رد کردم، اونا می‌خوان به توافقی برسن که طبقش تنگه هرمز فوراً باز بشه، چون دارن به‌شدت ضرر می‌کنن؛
-البته این چیزا رو تو اخبار جعلی نمی‌خونید و نمی‌بینید، ولی ما داریم به‌شدت پیروز می‌شیم. ما کنترل کامل تنگه هرمز رو داریم و حجم عظیمی از نفت داره از اونجا عبور می‌کنه. فقط دیشب 29 کشتی از تنگه رد شدن.
-اونا دنبال توافقن و منم با توافق کردن مشکلی ندارم؛ خودمم دوست دارم توافق کنم، ولی توافقی که پیشنهاد دادن قابل قبول نیست.
-کاری که می‌خوان بکنن اینه که فوراً تنگه هرمز رو باز کنن. می‌دونید چرا؟ چون دارن نابود میشن؛ پولی دیگه وارد کشورشون نمیشه، پولشون از تنگه هرمز میاد و در واقع خودشون سر خودشون کلاه گذاشتن. گفتن تنگه رو می‌بندیم تا برای دنیا مشکل درست کنیم؛ بعد من اومدم و بزرگ‌ترین محاصره نظامی تاریخ رو ایجاد کردیم؛ یه دیوار فولادی.
-حالا چی شده؟ دیگه پولی ندارن، چون خودشون می‌خواستن تنگه رو ببندن. منم گفتم خیلی خب، ما تنگه رو روی خودتون می‌بندیم، ولی بقیه می‌تونن ازش استفاده کنن.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10558
-
-<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
-
-دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️عضویت کانال آنالیز محدوده رفقا؛ اگه اهل بتی ، خودتو برسون 👇🔥
-
-https://t.me/+NB1g7r1k_5I2ODE0
-https://t.me/+NB1g7r1k_5I2ODE0
-</div>
-
-## tasiyanc — post 10556
-
-<div align="center"><img src="files/post_10556_tasiyanc_10556.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+NB1g7r1k_5I2ODE0
-https://t.me/+NB1g7r1k_5I2ODE0
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰g4
-</div>
-
-## tasiyanc — post 10555
-
-<div align="center"><video src="files/post_10555_tasiyanc_10555.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10555_tasiyanc_10555.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ایلان ماسک مجوزهای مهمی برای اتصال مستقیم گوشی‌‌ها به ماهواره استارلینک گرفته؛
-
-فناوری‌ای که در صورت فراهم شدن دسترسی تو ایران، می‌تونه وابستگی به اینترنت و زیرساخت‌های ارتباطی داخلی رو خیلی خیلی کمتر کنه.
-اینترنت ماهواره‌ای حالا یه قدم دیگه به گوشی‌های معمولی نزدیک‌تر شده؛
-فناوری Starlink Direct to Cell قراره کاری کنه که گوشی‌های سازگار، تو جاهایی که آنتن موبایل وجود نداره، مستقیماً به ماهواره استارلینک وصل بشن؛ یعنی دیگه لزوماً نیازی به دیش استارلینک نیست.
-اسپیس ایکس هم داره این فناوری رو با همکاری اپراتورهای کشورهای مختلف گسترش میده.
-برای ایران هم اگه این فناوری قابل استفاده بشه، می‌تونه قطع کامل ارتباطات رو خیلی سخت‌تر یا عملا غیرممکن کنه.
-@TaSiyanc
-</div>
-
-## tasiyanc — post 10554
-
-<div align="center"><video src="files/post_10554_tasiyanc_10554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10554_tasiyanc_10554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر تو دبی خونه خریده و داره از کص‌و کونش 🍑 تشکر میکنه که باعث شدن خونه بخره.
 
 @Tasiyanc
 </div>
