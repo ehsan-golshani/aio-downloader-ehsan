@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/16 01:48
+📅 آخرین بروزرسانی: 1405/07/16 05:29
 
 ---
+
+## tasiyanc — post 10431
+
+<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀
+
+
+📆 بورنموث - لیورپول
+
+⏰ ساعت ۱۶:۳۰ 
+🌎
+
+
+📲 آث میلان - لچه
+
+😀 ساعت ۲۲:۱۵ 
+🌎
+
+ 
+
+📺بونوس خوش آمدگویی ورزشی
+🎁
+
+🎁 بالاترین حد مبلغ شرط
+🎁
+
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️
+
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️
+
+
+✈️ https://t.me/BerryBetOfficial
+R29
+
+🔗 ثبت نام و ورود به بخش پیشبینی
+💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10430
+
+<div align="center"><img src="files/post_10430_tasiyanc_10430.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اینجا جزایره فارو در دانمارکه
+🇩🇰 که مهاجر می‌پذیره
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10428
 
@@ -310,52 +367,5 @@ https://AmitisBet.com/
 
 
 🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
-</div>
-
-## tasiyanc — post 10408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
-
-دریافت کانفیگ‌ها 👉
-
-به هیچ عنوان از دست ندید گادن 💥
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10407
-
-<div align="center"><video src="files/post_10407_tasiyanc_10407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10407_tasiyanc_10407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترفندای خفن ChatGPT که دیگه لازم نیست برای هر ادیت یا ایده، پرامپت کیلویی بنویسی!
-
-بعضی وقتا کافیه به جای توضیح طولانی، یه دستور کوتاه و دقیق بزنی
-
-/retouch → روتوش چهره و تمیز کردن تصویر
-/outfit → عوض کردن لباس با رفرنس
-/rimlight → اضافه کردن نور حاشیه‌ای
-/upscale → افزایش کیفیت و جزئیات
-/frontangle → تبدیل زاویه به نمای روبه‌رو
-/threequarterangle → نمای سه‌رخ حرفه‌ای
-/profileangle → ساخت نمای نیم‌رخ
-/removebg → حذف کامل پس‌زمینه
-/recolor → تغییر رنگ لباس یا فضا
-/cinematic → تبدیل عکس به حال‌وهوای سینمایی
-/poster → ساخت پوستر خفن از روی عکس
-/avatar → تبدیل عکس به آواتار حرفه‌ای
-/productshot → تبدیل عکس ساده به شات تبلیغاتی
-/expand → باز کردن کادر و ساخت فضای بیشتر
-/cleanup → حذف آیتم‌های اضافه از تصویر
-
-اینا فقط چندتا از دستورای خفنشه؛
-بقیه‌شو توی ویدیو ببین و این پست رو ذخیره کن
-
-💋 @Tasiyanc
 </div>
 

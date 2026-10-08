@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/16 01:48
+📅 آخرین بروزرسانی: 1405/07/16 05:29
 
 ---
+
+## tasiyanc — post 10500
+
+<div align="center"><video src="files/post_10500_tasiyanc_10500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10500_tasiyanc_10500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 لمس کون دوس دخترتون میتونه باعث افزایش سلامت و طول عمر و شادی شما و طرف مقابل بشه!
+
+به صورت علمی ثابت شده که لمس دوس دختر به طور کلی عمر رو طولانی نمی کنه، اما اگه باسنش رو لمس کنین، کمک بزرگی به افزایش عمر و سلامتی و شادی شما و دختره می‌کنه!
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10499
+
+<div align="center"><video src="files/post_10499_tasiyanc_10499.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10499_tasiyanc_10499.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت 
+✔️دو شرط رایگان در روز
+⭐️ 
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
+⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 
+💱
+0️⃣
+1️⃣
+🔣شارژ بیشتر برای شارژ با روش رمزارز 
+⭐مجهز…
+</div>
 
 ## tasiyanc — post 10498
 
@@ -255,40 +290,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🏆بری‌بت ✔️دو شرط رایگان در روز⭐️ 🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز ⭐مجهز…
-</div>
-
-## tasiyanc — post 10477
-
-<div align="center"><video src="files/post_10477_tasiyanc_10477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10477_tasiyanc_10477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت
-✔️دو شرط رایگان در روز⭐️
-🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️
-
-🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
-🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
-💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز
-⭐مجهز به سیستم پی اس ووچر👑
-
-😀ورود به سایت:😀g31🅰
-📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-❤️کانال تلگرام 😀
-📎 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10476
-
-<div align="center"><video src="files/post_10476_tasiyanc_10476.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10476_tasiyanc_10476.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
-
-گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
-💋 @Tasiyanc
 </div>
 

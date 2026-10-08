@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/16 01:48
+📅 آخرین بروزرسانی: 1405/07/16 05:29
 
 ---
+
+## tasiyanc — post 10635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا 🇷🇸 صربستان 🆚 آلمان 🇩🇪 ⏰ ساعت ۲۲:۱۵ 🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام 🔼 با بالاترین ضرایب پیش بینی 💵واریز و برداشت ارزی و ریالی❗️ 🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️ 💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️ 🛡تا…
+</div>
+
+## tasiyanc — post 10634
+
+<div align="center"><img src="files/post_10634_tasiyanc_10634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا
+
+🇷🇸 صربستان 🆚 آلمان 🇩🇪
+⏰ ساعت ۲۲:۱۵
+
+🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام
+🔼 با بالاترین ضرایب پیش بینی
+
+💵واریز و برداشت ارزی و ریالی❗️
+🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️
+💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️
+🛡تا ۵ میلیون تومان بیمه شرط ❗️
+
+🎁 فرصت را از دست ندهید! همین حالا پیش‌بینی خود را ثبت کنید و از بونوس‌های ویژهٔ Betegram بهره‌مند شوید.
+
+🔵http://betegram.com/affiliates?btag=3_l7
+</div>
 
 ## tasiyanc — post 10632
 
@@ -296,31 +325,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 ⚡️همین حالا ثبت‌ نام کنید و و از بونوس‌های ویژهٔ بتگرام بهره‌مند شوید.
 
 🔴http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10613
-
-<div align="center"><video src="files/post_10613_tasiyanc_10613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10613_tasiyanc_10613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو از یه خانوم ایرانی توی وان ترکیه که حسابی توی پیج های ترکیه وایرال شده.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10612
-
-<div align="center"><video src="files/post_10612_tasiyanc_10612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10612_tasiyanc_10612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن طرف چند میلیارد هزینه کرده واسه عروسیش کلی کلاس رقص رفتن بعد یه توله سگ فامیل تو جایی که نباید بیاد ، میاد میرینه به فیلم :
-
-پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
-
-@Tasiyanc
 </div>
 

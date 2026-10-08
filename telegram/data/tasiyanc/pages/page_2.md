@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/16 01:48
+📅 آخرین بروزرسانی: 1405/07/16 05:29
 
 ---
+
+## tasiyanc — post 10721
+
+<div align="center"><img src="files/post_10721_tasiyanc_10721.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مار شکار کوچیک نمی‌زنه؛😨
+فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵
+
+
+https://t.me/+EObzAJI5HS5jOTk8
+https://t.me/+EObzAJI5HS5jOTk8
+
+💯حال کردم به همتون پول دراوردن رو یاد بدم
+من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
+</div>
+
+## tasiyanc — post 10720
+
+<div align="center"><video src="files/post_10720_tasiyanc_10720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10720_tasiyanc_10720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرنگار: خبر داری دلار شده ۲۷٠ تومن؟
+
+یه خانم تو تجمعات: اره ولی ما بخاطر وطنمون اومدیم، اگه ما نبودیم دلار حتی گرون ترم میشد
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10719
 
@@ -301,34 +331,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیشب یه سوسک رفته بود خونه یه خانم، اونم این شکلی رفته بود بالا صندلی و به گربه‌اش التماس میکرد که سوسک رو بکشه 😅
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10697
-
-<div align="center"><video src="files/post_10697_tasiyanc_10697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10697_tasiyanc_10697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10696
-
-<div align="center"><video src="files/post_10696_tasiyanc_10696.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10696_tasiyanc_10696.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز October 5، روز جهانی فَحشاس.
-
-امروز باید تعارف بزارید کنار و غرق شهوت ، خوشی و هوس باشید
 
 
 ⚡ @Tasiyanc
