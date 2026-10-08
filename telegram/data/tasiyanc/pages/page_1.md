@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/16 11:48
+📅 آخرین بروزرسانی: 1405/07/16 19:30
 
 ---
+
+## tasiyanc — post 10753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ با اعلام رسمی سخنگوی قوه قضائیه، بی‌حجابی رسما جرم اعلام شد و از این به بعد در سراسر کشور، برای دخترای بی حجاب پرونده ی قضایی تشکیل میشه و محاکمه میشن‌.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10752
+
+<div align="center"><video src="files/post_10752_tasiyanc_10752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10752_tasiyanc_10752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اینجایی که مشاهده میکنید تگزاس نیست، کوهدشت لرستانه که یه چند نفر با همدیگه به مشکل خورده بودن و تصمیم گرفتن با کلاشینکف حلش کنن.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
+</div>
+
+## tasiyanc — post 10750
+
+<div align="center"><img src="files/post_10750_tasiyanc_10750.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+wLFODtl1yCEwYzFk
+https://t.me/+wLFODtl1yCEwYzFk
+
+🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
+</div>
+
+## tasiyanc — post 10749
+
+<div align="center"><img src="files/post_10749_tasiyanc_10749.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون فرفری شه
+
+🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
+این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10748
+
+<div align="center"><img src="files/post_10748_tasiyanc_10748.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پرونده‌ سنگین تجاوز در فوتبال دیواندره!
+
+توی باشگاه فوتبال «ستارگان دیواندره» دو مربی به اسم میثم و ادیب در مدت زمان پنج سال حضور در این باشگاه، به بیش از پنجاه کودک تعرض جنسی کردن!
+اونا به کودکان وعده میدادن در ازای برقراری رابطه جنسی با بچه‌ها، اونارو توی ترکیب اصلی میذارن و به تیم‌های بهتری میفرستن.
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10747
+
+<div align="center"><video src="files/post_10747_tasiyanc_10747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10747_tasiyanc_10747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 امروز 16 مهر، روزِ بزرگداشت داریوش بزرگه 👑
+
+وقتی داریوش بزرگ تو سال 522 پیش از میلاد به تخت رسید، شاهنشاهی هخامنشی با موجی از شورش‌ها روبه‌رو شد از ماد و بابل تا پارس، ایلام، ارمنستان و...
+طبق کتیبه بیستون : داریوش طی 19 نبرد مدعیان مختلف سلطنت رو شکست داد و دوباره کنترل شاهنشاهی رو به دست گرفت و بعد از پایان شورش‌ها هم قلمرو هخامنشی گسترش پیدا کرد؛ از سمت شرق تا حوالی دره سند و از غرب تا تراکیه و بخش‌هایی از بالکان. داریوش بزرگ شرح این نبردها و شورشیان شکست‌خورده رو روی کتیبه معروف بیستون برای آیندگان ثبت کرد.
+👑 داریوش بزرگ :
+ایران را فقط مرگ می تواند از تاریخ پاک کند و حتی مرگ هم از ما میترسد.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد مساوی استقلال 💠ضریب 1.43 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
+</div>
+
+## tasiyanc — post 10745
+
+<div align="center"><img src="files/post_10745_tasiyanc_10745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد مساوی استقلال
+
+💠ضریب 1.43
+
+⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
+
+💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16
+
+🆔@Aron_tip 🆔 @Aron_tip
+🆔@Aron_tip 🆔 @Aron_tip
+</div>
 
 ## tasiyanc — post 10744
 
@@ -168,134 +279,6 @@ https://t.me/+5cdraE3AwpgyOTlk
 پشمام ریخته از این حد حرومزادگی
 
 🚨تو کارخانه شیرخشک سازی،کارگر با کارفرما دعواش میشه،برای انتقام مخفیانه ۲۰ لیتر اسید توی مخزن شیر میریزه و لحظه‌ی آخری آزمایشگاه کارخانه متوجه این قضیه میشه و از یک جنایت بزرگ جلوگیری میشه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10733
-
-<div align="center"><video src="files/post_10733_tasiyanc_10733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10733_tasiyanc_10733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو تهران یه پسره جلو چندتا دختر جو گیر میشه و میخوست به سبک فیلمای سریع و خشن از پنجره یه ماشین بپره تو یه ماشین دیگه که رید :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r14 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10731
-
-<div align="center"><img src="files/post_10731_tasiyanc_10731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r14
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10730
-
-<div align="center"><video src="files/post_10730_tasiyanc_10730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10730_tasiyanc_10730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 7 October، روزِ «تو برام مهمی» هست
-
-
-+این روز رو به کسی که براش اهمیت میدی بفرست ❤️‍🔥
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10729
-
-<div align="center"><video src="files/post_10729_tasiyanc_10729.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10729_tasiyanc_10729.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تمجید جذاب پهبادی در آسمان از لیونل مسی !
-
-مراسم زیبای و ویژه برای وداع با مسی
-
-📣 208 مسابقه
-🎯 126 گل
-🎯 67 پاس گل
-🥇طلای المپیک 2008
-🏆 جام جهانی 2022
-🏆 کوپا آمریکا 2021
-🏆 کوپا آمریکا 2024
-🏆 فینالیسیما 2022
-🔴136 پیروزی - 29 شکست و 43 تساوی
-﻿
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💌اهل پیش پیش بینی و شرط بندی؟💌 این گروه همفکری مختص تو پس😋 💖اینجا میتونی با هزاران ادم حرفه ای مشورت کنی و تحلیل کنی و پیش بینی بهتری داشته باشی و سود کنی😬 💖وقتی از رو دست حرفه ای ها بازی کنی قطعا سود میکنی پس همین حالا عضو شو و شرط بندی شرو کن و درامد…
-</div>
-
-## tasiyanc — post 10727
-
-<div align="center"><video src="files/post_10727_tasiyanc_10727.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10727_tasiyanc_10727.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💌اهل پیش پیش بینی و شرط بندی؟💌
-
-این گروه همفکری مختص تو پس😋
-
-💖اینجا میتونی با هزاران ادم حرفه ای مشورت کنی و تحلیل کنی و پیش بینی بهتری داشته باشی و سود کنی😬
-
-💖وقتی از رو دست حرفه ای ها بازی کنی قطعا سود میکنی پس همین حالا عضو شو و شرط بندی شرو کن و درامد دلاری داشته باش💖🅰14
-
-💖ادرس عضویت بزرگ ترین گروه شرط بندی ایران:
-https://t.me/+KpqdIyXNfcMzOWFk
-https://t.me/+KpqdIyXNfcMzOWFk
-</div>
-
-## tasiyanc — post 10726
-
-<div align="center"><video src="files/post_10726_tasiyanc_10726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10726_tasiyanc_10726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠واقعا آرژانتینی ها تو یه سیاره دیگه زندگی می کنن
-وضعیت خیابان های بوینس آیرس !
-
-صحنه‌های دیوانه‌وار از حال و هوای آرژانتین 🇦🇷
-در آستانه مسابقه خداحافظی لیونل مسی؛ کل کشور امروز به خیابان‌ها آمده است شما مقایسه کنید با کشور پرتغال و بازیکناشون که حسابی به رونالدو بی لطفی کردن
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10724
-
-<div align="center"><video src="files/post_10724_tasiyanc_10724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10724_tasiyanc_10724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سوزناکتر از این ویدیو مگه هست؟؛
-
-مادر جاویدنام نازنین زهرا صالحی، دختر ۱۳ ساله‌ای که در اعتراضات دی ماه کشته شد،
-رفته پرونده بچه‌اش رو گرفته، همه نمرات دخترش رو ۷-۸ دادن تا مادرش زجر بکشه !
-مامانش اشک میریزه و میگه دخترم شاگرد ممتاز بود، حداقل براش غیبت میزدین...
 
 ⚡ @Tasiyanc
 </div>
