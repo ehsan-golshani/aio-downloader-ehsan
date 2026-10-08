@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/16 19:30
+📅 آخرین بروزرسانی: 1405/07/17 00:40
 
 ---
+
+## tasiyanc — post 10689
+
+<div align="center"><video src="files/post_10689_tasiyanc_10689.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10689_tasiyanc_10689.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 توی سوئیس شما با حقوق ۲ ساعت کارگری میتونی این ایفون ۱۸ پرومکس رو با یک سال اینترنت رایگان خریداری کنی.
+توی ممه‌لکت ما به همت آخوندا باید ۵۰ ماه کار کنی تا یه آیفون مونتاژ چین CHA بخری بدبخت
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10688
 
@@ -274,17 +289,5 @@ https://t.me/+ha2KmA-UHioxNDI0
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

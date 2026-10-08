@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/16 19:30
+📅 آخرین بروزرسانی: 1405/07/17 00:40
 
 ---
+
+## tasiyanc — post 10713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
+💖اسپانسر لالیگا و سری آ ایتالیا💖
+
+👑شارژ اول و هر شنبه دوبل شارژ می شوید
+✔️بدون نیاز به فیلترشکن
+
+ادرس عضویت کانال:👇
+▪️https://t.me/+1zHLYMANkAEwODBi
+</div>
 
 ## tasiyanc — post 10712
 
@@ -343,20 +356,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 💖برای دانلود اپلیکیشن کلیک کنید➡️
 کانال اطلاع رسانی سایت:🅰12
 ✉️https://t.me/+1zHLYMANkAEwODBi
-</div>
-
-## tasiyanc — post 10689
-
-<div align="center"><video src="files/post_10689_tasiyanc_10689.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10689_tasiyanc_10689.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 توی سوئیس شما با حقوق ۲ ساعت کارگری میتونی این ایفون ۱۸ پرومکس رو با یک سال اینترنت رایگان خریداری کنی.
-توی ممه‌لکت ما به همت آخوندا باید ۵۰ ماه کار کنی تا یه آیفون مونتاژ چین CHA بخری بدبخت
-
-
-
-⚡ @Tasiyanc
 </div>
 

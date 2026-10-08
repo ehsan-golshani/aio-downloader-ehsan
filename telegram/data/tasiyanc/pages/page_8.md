@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/16 19:30
+📅 آخرین بروزرسانی: 1405/07/17 00:40
 
 ---
+
+## tasiyanc — post 10604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a file
+</div>
 
 ## tasiyanc — post 10603
 
@@ -282,18 +288,6 @@ https://t.me/+kt_bsasgniphZmZk
 🔴لیان یون‌ژی، دختر شش‌ساله چینی، رکورد جهانی در حل مکعب روبیک (در بخش زنان) به نام خود ثبت کرد.
 
 این کودک چینی در عرض سه روز،ابتدا میانگین زمانی ۴٫۵۲ ثانیه و سپس به ۴٫۲۷ ثانیه بهبود بخشید؛او به تنها دختر مکعب‌باز در جهان است که میانگین زمان حل آن کمتر از ۴٫۵ ثانیه است
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10581
-
-<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
 
 @Tasiyanc
 </div>

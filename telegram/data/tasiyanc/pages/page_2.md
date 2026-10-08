@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/16 19:30
+📅 آخرین بروزرسانی: 1405/07/17 00:40
 
 ---
+
+## tasiyanc — post 10734
+
+<div align="center"><video src="files/post_10734_tasiyanc_10734.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10734_tasiyanc_10734.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمام ریخته از این حد حرومزادگی
+
+🚨تو کارخانه شیرخشک سازی،کارگر با کارفرما دعواش میشه،برای انتقام مخفیانه ۲۰ لیتر اسید توی مخزن شیر میریزه و لحظه‌ی آخری آزمایشگاه کارخانه متوجه این قضیه میشه و از یک جنایت بزرگ جلوگیری میشه
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10733
 
@@ -268,18 +282,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 از مدل «La Infernal Ferrari» فقط 3 تا توی کل دنیا وجود داره و قیمتش حدود 5.5 میلیون یوروئه، یعنی 1.65 تریلیون تومان
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-
-ادرس عضویت کانال:👇
-▪️https://t.me/+1zHLYMANkAEwODBi
 </div>
 

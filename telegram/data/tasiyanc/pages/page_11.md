@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/16 19:30
+📅 آخرین بروزرسانی: 1405/07/17 00:40
 
 ---
+
+## tasiyanc — post 10538
+
+<div align="center"><video src="files/post_10538_tasiyanc_10538.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10538_tasiyanc_10538.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جدیدا بین بعضی از دخترا یه چیزی مد شده که زیر ناف‌شون جمله «Gate of heaven» رو که به معنی «دروازه بهشت هست» رو تتو میکنن.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10537
 
@@ -262,22 +275,5 @@ G2🅰
 🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-
-•آموزش اتصال ⚡️
-
-
-
-•اتصال امن برای همه 🇮🇷
-
- @TASIYANC
 </div>
 
