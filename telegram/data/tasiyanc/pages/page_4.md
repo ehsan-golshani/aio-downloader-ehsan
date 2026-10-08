@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/16 05:29
+📅 آخرین بروزرسانی: 1405/07/16 11:48
 
 ---
+
+## tasiyanc — post 10679
+
+<div align="center"><img src="files/post_10679_tasiyanc_10679.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰 یکشنبه‌ای که با یک انتخاب شروع می‌شود و با چندین شگفتی تمام! ⚽️🔥
+امروز ۱۲ مهر ۱۴۰۵، لیگ ملت‌های اروپا از ساعت ۱۶:۳۰ استارت می‌خورد و در ادامه، موج بازی‌ها در ساعت‌های ۱۹:۳۰ و ۲۲:۱۵ شب فوتبالی پرهیجانی می‌سازد.
+اما سؤال امروز اینجاست:
+
+👀 کدام تیم روی کاغذ مدعی است، اما ممکن است همه را غافلگیر کند؟
+از بین بازی‌های امروز یکی را انتخاب کن و قبل از شروع مسابقه ثبتش کن
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+🛰️ آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📷 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰11
+</div>
+
+## tasiyanc — post 10678
+
+<div align="center"><video src="files/post_10678_tasiyanc_10678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10678_tasiyanc_10678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت کشیشیان که توی عرصه تولید گوشت داره فعالیت میکنه با این تبلیغش تونسته کلی ویو بگیره و فروش محصولاتش تقریبا ۳ برابر شده:
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10677
 
@@ -248,35 +288,5 @@ https://AmitisBet.com/
 
 https://t.me/+VGH5xHispzJlMjM8
 https://t.me/+VGH5xHispzJlMjM8
-</div>
-
-## tasiyanc — post 10658
-
-<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+VGH5xHispzJlMjM8
-https://t.me/+VGH5xHispzJlMjM8
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
-</div>
-
-## tasiyanc — post 10657
-
-<div align="center"><video src="files/post_10657_tasiyanc_10657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10657_tasiyanc_10657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز تو تهران یه دونفر با هم کل میندازن که آخرش خیلی خوب تموم نمیشه:
-
-⚡ @Tasiyanc
 </div>
 

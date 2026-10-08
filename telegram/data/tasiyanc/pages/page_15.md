@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/16 05:29
+📅 آخرین بروزرسانی: 1405/07/16 11:48
 
 ---
+
+## tasiyanc — post 10433
+
+<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
+آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10432
+
+<div align="center"><video src="files/post_10432_tasiyanc_10432.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10432_tasiyanc_10432.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀 
+📆 بورنموث - لیورپول 
+⏰ ساعت ۱۶:۳۰ 
+🌎 
+📲 آث میلان - لچه 
+😀 ساعت ۲۲:۱۵ 
+🌎   
+📺بونوس خوش آمدگویی ورزشی
+🎁 
+🎁 بالاترین حد مبلغ شرط
+🎁 
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️ 
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️ 
+✈️ https://t.me/BerryBetOfficial…
+</div>
 
 ## tasiyanc — post 10431
 
@@ -305,67 +345,5 @@ https://AmitisBet.com/
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت
-📱
-سریع، آسان و آنی
-👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10409
-
-<div align="center"><video src="files/post_10409_tasiyanc_10409.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10409_tasiyanc_10409.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛍 شنبه ۲۸ شهریور؛ انگلستان امروز بدون توقف می‌دود!
-تاتنهام–ویلا ۱۵:۰۰؛ ضربه‌ی اول و شروع فشار.
-اورتون–نیوکاسل ۱۷:۳۰؛ جدالی که وسط روز را سنگین می‌کند.
-برایتون–هال ۱۷:۳۰؛ نبردی که ریتم را دوشاخه می‌کند.
-ایپسویچ–آرسنال ۱۷:۳۰؛ بازی‌ای که همیشه بیشتر از ظاهرش می‌جوشد.
-ناتینگهام–کاونتری ۲۰:۰۰؛ پایانی که روز را کامل می‌بندد.
-پریمیرلیگ امروز پنج ضربه‌ی پشت‌سرهم می‌زند.
-
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 
-3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-
-🌄 آدرس ثابت وبسایت
-
-
-🌐 عضویت کانال تلگرام
-
-
-📱 مشاهده پروفایل اینستاگرام
-
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
 </div>
 

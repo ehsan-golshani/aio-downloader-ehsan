@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/16 05:29
+📅 آخرین بروزرسانی: 1405/07/16 11:48
 
 ---
+
+## tasiyanc — post 10479
+
+<div align="center"><video src="files/post_10479_tasiyanc_10479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10479_tasiyanc_10479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت ✔️دو شرط رایگان در روز⭐️ 🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز ⭐مجهز…
+</div>
 
 ## tasiyanc — post 10477
 
@@ -280,33 +296,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋‎ @Tasiyanc
-</div>
-
-## tasiyanc — post 10459
-
-<div align="center"><video src="files/post_10459_tasiyanc_10459.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10459_tasiyanc_10459.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴مراسم انتخاب همسر توسط قبیلهٔ وودابه در سواحل آفریقا ؛ که مراسم «گرول» نام دارد و یکی از جالب‌ترین آیین‌های خواستگاری در جهان است.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10458
-
-<div align="center"><video src="files/post_10458_tasiyanc_10458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10458_tasiyanc_10458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی شهری در جمهوری‌چک به جای آب ، شراب از پله ها سرازیر میشود 🍷🇨🇿
-
-هر سال در جشن برداشت انگور Vinobraní na Kuksu در جمهوری چک، یک اتفاق جالب رخ می‌دهد؛ به‌جای آب، شراب از پلکان باروک تاریخی Kuks جاری می‌شود.
-این پلکان که در قرن هجدهم ساخته شده، در طول جشن به‌طور موقت به یک آبشار شراب تبدیل می‌شود. مردم هم برای تماشای این مراسم و چشیدن شراب‌های محلی در آنجا جمع می‌شوند.\nاین رسم بخشی از جشن‌های سنتی برداشت انگور در منطقه بوهمیاست و ترکیبی از فرهنگ شراب، موسیقی و تاریخ معماری Kuks به شمار می‌رود
-﻿
-💋 @Tasiyanc
 </div>
 
