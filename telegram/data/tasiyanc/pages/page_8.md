@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/17 18:50
+📅 آخرین بروزرسانی: 1405/07/17 23:36
 
 ---
+
+## tasiyanc — post 10621
+
+<div align="center"><video src="files/post_10621_tasiyanc_10621.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10621_tasiyanc_10621.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سنجاقک‌ها زیباترین مدل رابطه جنسی رو دارن.
+
+اونا بهم متصل میشن و شکل قلب تشکیل میدن و تو همین حالت پرواز میکنن و... تا کارشون تموم بشه.
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10620
+
+<div align="center"><img src="files/post_10620_tasiyanc_10620.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 تا ۵۰۰ درصد بونوس محافظ پیش‌بینی 🎲
+⏩ روزانه با ثبت حداقل ۱۰ میلیون ریال پیش‌بینی میکس با حداقل ۴ انتخاب بر روی رویدادهای ورزشی مورد علاقه خود، در صورتی که حداکثر یک انتخاب برگه پیش‌بینی شما ناموفق شود، بت‌فوروارد با توجه به تعداد سایر انتخاب‌های موفق برگه پیش‌بینی شما تا ۵۰۰ درصد مبلغ پیش‌بینی را تا سقف ۱۰۰ میلیون ریال به عنوان اعتبار پیش‌بینی رایگان ورزشی به شما هدیه خواهد داد.
+
+
+اطلاعات بیش‌تر و قوانین بونوس:
+🔗 bwrd.link/BTSHLD
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+🟢 دریافت سرورفیلترشکن رایگان
+🅰r8
+💻 @BetForward
+</div>
+
+## tasiyanc — post 10619
+
+<div align="center"><img src="files/post_10619_tasiyanc_10619.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه میلی‌گلد: مشکل حل شد نگران نباشید دارایی همه واریز میشه
+
+بعد از پیگیری‌های میلی دستور آزادسازی طلاهای میلی از بانک کارگشایی صادر شد خدمت تسویه و تحویل که به علت مسدودی دارایی‌های میلی در بانک کارگشایی مختل شده بود، فردا عصر پس از دریافت طلا از بانک کارگشایی به روال طبیعی بازخواهد گشت.
+همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
+﻿
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیجان را با ما تجربه کنید
+💐
+وینگو بینگو
+👆🅰‌7
+</div>
 
 ## tasiyanc — post 10617
 
@@ -238,81 +295,5 @@ Tasiyan | تاسیان pinned a file
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🛡 اولین شرطت رو بیمه کردیم! 🛡 💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش! اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم! 💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار 🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+ چطور کار می‌کنه؟ ◀️ اولین واریز و…
-</div>
-
-## tasiyanc — post 10600
-
-<div align="center"><img src="files/post_10600_tasiyanc_10600.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛡 اولین شرطت رو بیمه کردیم! 🛡
-
-💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش!
-
-اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم!
-
-💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار
-🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+
-
-چطور کار می‌کنه؟
-◀️ اولین واریز و اولین شرطت رو ثبت کن
-◀️ شرط ترکیبی با حداقل ۳ انتخاب بزن
-◀️ اگه باختی… فرداش فری بت تو حسابه!
-
-⏳ فقط برای مشتریان جدید | فری‌بت تا ۷ روز قابل استفاده است
-
-🔥 بدون ریسک شروع کن، همین حالا ثبت‌نام کن!
-
-🔻http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10599
-
-<div align="center"><video src="files/post_10599_tasiyanc_10599.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10599_tasiyanc_10599.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت.
-
-هر دلار: 242 هزار تومن
-هر سکه: 242 میلیون تومن
-هر گرم طلا: 24 میلیون و 200 هزار تومن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
-متصل با اکثر اینترنت ها
-اختصاصی، کل سرور ها تست شده
-
-فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
-
-دانلود V2Box نسخه اندروید 🔐
-دانلود V2Box نسخه iOS 🔐
-
-دانلود Npv Tunnel نسخه اندروید 🔐
-دانلود Npv Tunnel نسخه iOS 🔐
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10597
-
-<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️‍🔥
-
-نمک آبرود زیبا « استان مازندران »
-
-
-@Tasiyanc
 </div>
 

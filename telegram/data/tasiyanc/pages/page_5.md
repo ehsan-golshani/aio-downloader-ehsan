@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/17 18:50
+📅 آخرین بروزرسانی: 1405/07/17 23:36
 
 ---
+
+## tasiyanc — post 10685
+
+<div align="center"><video src="files/post_10685_tasiyanc_10685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10685_tasiyanc_10685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده تولد هالویینی یکی از کافه های تهران
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10684
+
+<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 4 October, روز جهانی حیواناته.
+
++این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
+
+
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10682
+
+<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 10681
 
@@ -221,73 +281,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 اپلیکیشن اختصاصی آمیتیس‌بت📱
 سریع، آسان و آنی👑
 https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10664
-
-<div align="center"><img src="files/post_10664_tasiyanc_10664.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂 شنبه را با یک انتخاب فوتبالی شروع کن!
-امروز برنامه لیگ ملت‌های اروپا فقط یک ردیف بازی معمولی نیست؛
-
-از نبردهای عصرگاهی تا تقابل‌های حساس شب، هر سوت پایان می‌تواند جدول را زیرورو کند. ⚽️🔥
-
-اگر قرار باشد فقط یک بازی را برای تماشا انتخاب کنی، کدام دیدار را برمی‌داری؟ 👀
-
-🕹 حدس نتیجه‌ات را قبل از شروع مسابقه در آمیتیس بت ثبت کن و ببینیم کدام پیش‌بینی به واقعیت نزدیک‌تر می‌شود.
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-🌐 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام
-
-📷 مشاهده پروفایل اینستاگرام
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰10
-</div>
-
-## tasiyanc — post 10663
-
-<div align="center"><video src="files/post_10663_tasiyanc_10663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10663_tasiyanc_10663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون فر بخوره ویدیو وایرال شده از بانوان پولدار تهرانی که میرن توی یه سرس کلاس ها شرکت میکنن پول میدن تا برن اونجا گریه کنن و تخلیه بشن.
-
-یسری انقدر پولدارن که نمیدونن پولاشونو چیکار کنن 😒
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10662
-
-<div align="center"><video src="files/post_10662_tasiyanc_10662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10662_tasiyanc_10662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10661
-
-<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
-
-+اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
-
-⚡ @Tasiyanc
 </div>
 

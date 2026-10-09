@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/17 18:50
+📅 آخرین بروزرسانی: 1405/07/17 23:36
 
 ---
+
+## tasiyanc — post 10770
+
+<div align="center"><video src="files/post_10770_tasiyanc_10770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10770_tasiyanc_10770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 پروتز ممه رنگی هم اومد و به ایران هم رسیده گویا
+
+فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10769
+
+<div align="center"><video src="files/post_10769_tasiyanc_10769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10769_tasiyanc_10769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 دانش آموزای آذربایجانی بر علیه تصمیم دولت آذربایجان مبنی بر اخراج معلما و دانش آموزای باحجاب اعتراضات برگزار کردن درصورتی که ۹۹ درصد معترضان خودشون بی حجابن :
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10768
+
+<div align="center"><video src="files/post_10768_tasiyanc_10768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10768_tasiyanc_10768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 بازگشت ناو آبراهام لینکلن به خانه 🇺🇸
+
+ناو آبراهام لینکلن بعد از بیش از ده ماه عملیات در خاورمیانه و جنگ با ایران به ( بندر سن‌دیگو - کالیفرنیا) رسید تمام 5 هزار نفر نیرو و پرسنل این ناو با سلامت کامل به خانه برگشتن
+
+بر اساس آخرین گزارشات «USNI NEWS» تا 5 اکتبر ناوشکن های ارتش ایالات متحده در منطقه حضور دارن؛
+
+•USS George Washington
+•USS George H.W. Bush
+•USS Boxer
+•USS Donald Cook
+•USS Ross
+•USS Shoup
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10767
+
+<div align="center"><img src="files/post_10767_tasiyanc_10767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 حداقل حقوق کارگرها تو خاورمیانه:
+
+🇮🇷 ایران : 63 دلار !
+🇦🇲 ارمنستان : 200 دلار
+🇰🇼 کویت : 245 دلار
+🇶🇦 قطر : 275 دلار
+🇦🇿 آذربایجان : 320 دلار
+🇮🇶 عراق : 350 دلار
+🇹🇷 ترکیه : 525 دلار
+🇴🇲 عمان : 800 دلار
+🇸🇦 عربستان : 1000 دلار
+🇦🇪 امارات : 1600 دلار
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10766
 
@@ -201,67 +271,5 @@ https://t.me/+ramzL0orpc5hMTBk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10750
-
-<div align="center"><img src="files/post_10750_tasiyanc_10750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+wLFODtl1yCEwYzFk
-https://t.me/+wLFODtl1yCEwYzFk
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10749
-
-<div align="center"><img src="files/post_10749_tasiyanc_10749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون فرفری شه
-
-🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
-این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10748
-
-<div align="center"><img src="files/post_10748_tasiyanc_10748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پرونده‌ سنگین تجاوز در فوتبال دیواندره!
-
-توی باشگاه فوتبال «ستارگان دیواندره» دو مربی به اسم میثم و ادیب در مدت زمان پنج سال حضور در این باشگاه، به بیش از پنجاه کودک تعرض جنسی کردن!
-اونا به کودکان وعده میدادن در ازای برقراری رابطه جنسی با بچه‌ها، اونارو توی ترکیب اصلی میذارن و به تیم‌های بهتری میفرستن.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10747
-
-<div align="center"><video src="files/post_10747_tasiyanc_10747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10747_tasiyanc_10747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 امروز 16 مهر، روزِ بزرگداشت داریوش بزرگه 👑
-
-وقتی داریوش بزرگ تو سال 522 پیش از میلاد به تخت رسید، شاهنشاهی هخامنشی با موجی از شورش‌ها روبه‌رو شد از ماد و بابل تا پارس، ایلام، ارمنستان و...
-طبق کتیبه بیستون : داریوش طی 19 نبرد مدعیان مختلف سلطنت رو شکست داد و دوباره کنترل شاهنشاهی رو به دست گرفت و بعد از پایان شورش‌ها هم قلمرو هخامنشی گسترش پیدا کرد؛ از سمت شرق تا حوالی دره سند و از غرب تا تراکیه و بخش‌هایی از بالکان. داریوش بزرگ شرح این نبردها و شورشیان شکست‌خورده رو روی کتیبه معروف بیستون برای آیندگان ثبت کرد.
-👑 داریوش بزرگ :
-ایران را فقط مرگ می تواند از تاریخ پاک کند و حتی مرگ هم از ما میترسد.
-
-⚡ @Tasiyanc
 </div>
 
