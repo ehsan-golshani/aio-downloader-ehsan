@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/17 04:54
+📅 آخرین بروزرسانی: 1405/07/17 11:21
 
 ---
+
+## tasiyanc — post 10738
+
+<div align="center"><img src="files/post_10738_tasiyanc_10738.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه خبر خوب
+ـ نارین خانم دختر 15 ساله سنندجی که تا سر حد مرگ توسط پدر حرومیش و نامادریش شکنجه میشد زیر نظر پزشک تحت درمان قرار گرفته و بالاخره حال روحی و جسمیش بهبود یافته و لبخندشو می‌بینید
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10737
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+5cdraE3AwpgyOTlk https://t.me/+5cdraE3AwpgyOTlk 🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
+</div>
 
 ## tasiyanc — post 10736
 
@@ -256,40 +273,5 @@ https://t.me/+EObzAJI5HS5jOTk8
 قبول کنید حرف حق رو زد....
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10717
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10716
-
-<div align="center"><video src="files/post_10716_tasiyanc_10716.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10716_tasiyanc_10716.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r14
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

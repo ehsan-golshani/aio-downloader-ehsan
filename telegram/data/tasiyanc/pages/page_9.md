@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/17 04:54
+📅 آخرین بروزرسانی: 1405/07/17 11:21
 
 ---
+
+## tasiyanc — post 10585
+
+<div align="center"><video src="files/post_10585_tasiyanc_10585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10585_tasiyanc_10585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو وایرال شده ؛ یه زوج ایرانی از عروسی‌شون ویدیو منتشر کردن و جای اینکه فامیلای دور و کسایی که حتی سالی یه بارم نمی بینن دعوت کنن،
+
+فقط رفیقای صمیمی‌شون رو دعوت و حسابی باهم عشق و حال کردن.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+kt_bsasgniphZmZk https://t.me/+kt_bsasgniphZmZk 🅰g5 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
+</div>
 
 ## tasiyanc — post 10583
 
@@ -243,31 +262,5 @@ https://AmitisBet.com/
 پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10563
-
-<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
-
-+ دوست پسرش همون موقع :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10562
-
-<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این بانو قهرمان میس المپیا 2026 شد
-
-
-
-@Tasiyanc
 </div>
 

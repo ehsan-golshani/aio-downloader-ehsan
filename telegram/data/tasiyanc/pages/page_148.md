@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/07/17 04:54
+📅 آخرین بروزرسانی: 1405/07/17 11:21
 
 ---
+
+## tasiyanc — post 6424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبر فوری
+هم اکنون حمله اسرائیل به چند سایت راداری در تهران
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨کانال ۱۲ اسرائیل:
+طی چندساعت اخیر به ۲۰ هدف تو ایران حمله کردیم
+
+@TasiyanProxy
+</div>
 
 ## tasiyanc — post 6422
 
@@ -197,21 +214,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 آموزش اتصال ⛓
 
 🔺@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه خبر ها + پروکسی های تاسیان
-
-@Tasiyanproxy
-@Tasiyanproxy
-</div>
-
-## tasiyanc — post 6400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ آسمان ایران کلیر شد
-@Tasiyanc
 </div>
 

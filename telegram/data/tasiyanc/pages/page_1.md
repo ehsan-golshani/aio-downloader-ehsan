@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/17 04:54
+📅 آخرین بروزرسانی: 1405/07/17 11:21
 
 ---
+
+## tasiyanc — post 10758
+
+<div align="center"><video src="files/post_10758_tasiyanc_10758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10758_tasiyanc_10758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖ویدئوی وایرال شده از وضعیت کاملا طبیعی یه دبیرستان دخترونه تو تهران؛
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖یه املاكی که تو رامسر ویلا اجاره میده تصمیم گرفته تولید محتوا کنه تا مشتری جذب کنه که سریعا وایرال شده :
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10756
 
@@ -265,22 +286,5 @@ https://t.me/+tRN5PSCR5uQ4YmE0
 واسطه‌هایی که این پول رو منتقل کردن، به دلیلِ ریسکِ بالا، 20 درصد کارمزد گرفتن که چهار برابر کارمزد معمول بوده.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10738
-
-<div align="center"><img src="files/post_10738_tasiyanc_10738.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خبر خوب
-ـ نارین خانم دختر 15 ساله سنندجی که تا سر حد مرگ توسط پدر حرومیش و نامادریش شکنجه میشد زیر نظر پزشک تحت درمان قرار گرفته و بالاخره حال روحی و جسمیش بهبود یافته و لبخندشو می‌بینید
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+5cdraE3AwpgyOTlk https://t.me/+5cdraE3AwpgyOTlk 🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
 </div>
 
