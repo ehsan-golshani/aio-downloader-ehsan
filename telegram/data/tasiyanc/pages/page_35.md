@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/07/17 00:40
+📅 آخرین بروزرسانی: 1405/07/17 04:54
 
 ---
+
+## tasiyanc — post 9916
+
+<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9915
+
+<div align="center"><video src="files/post_9915_tasiyanc_9915.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9915_tasiyanc_9915.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوری که صداسیما مراسم عروسی محمدرضاشاه با ملکه ثریا رو نشون میده اما‌ در واقعیت :
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9914
 
@@ -279,34 +304,5 @@ til.ac/0L4vyJf
 وقتشه دلار به جیب بزنی ✅
 همین حالا وارد کانال  Evil Bet شو👇
 https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9895
-
-<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
-
-⭕️پس همین الان وارد کانال Evil Bet شو
-چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
-
-💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
-
-🔗 آدرس عضویت کانال vip:
-https://t.me/+TmGWkUYH_8c0OWZk
-https://t.me/+TmGWkUYH_8c0OWZk
-</div>
-
-## tasiyanc — post 9893
-
-<div align="center"><video src="files/post_9893_tasiyanc_9893.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9893_tasiyanc_9893.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه چیه هرچی کچله داف خوب تور می‌کنه؟ یه کچل معرفی کنید که اینطوری نی ، اونوقت کسی نی مارو اینطوری بخواد ..
-
-💋 @Tasiyanc
 </div>
 

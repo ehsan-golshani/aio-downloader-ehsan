@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/17 00:40
+📅 آخرین بروزرسانی: 1405/07/17 04:54
 
 ---
+
+## tasiyanc — post 10736
+
+<div align="center"><img src="files/post_10736_tasiyanc_10736.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+5cdraE3AwpgyOTlk
+https://t.me/+5cdraE3AwpgyOTlk
+
+🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
+</div>
+
+## tasiyanc — post 10735
+
+<div align="center"><video src="files/post_10735_tasiyanc_10735.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10735_tasiyanc_10735.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسیم مقصودلو؛ خواهر امیرتتلو :
+خبرهایی که در مورد آزادی امیر پخش شده فیکه و هیچ تغییر در پروندش ایجاد نشده. اون فیلم هم که گفتم شرط عفو شدنش پاک کردن تتوهاشه مال پارساله که اونم دروغ بود.
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10734
 
@@ -257,30 +291,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r14
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10715
-
-<div align="center"><img src="files/post_10715_tasiyanc_10715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩پاییز امسال چه پارچه‌هایی ترندن؟
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10714
-
-<div align="center"><video src="files/post_10714_tasiyanc_10714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10714_tasiyanc_10714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴زلاتان ابراهیموویچ که دیروز 45 ساله شد، برای هدیه تولد خودش یه فراری به خودش هدیه داد تا خودش خودشو خوشحال کنه
-از مدل «La Infernal Ferrari» فقط 3 تا توی کل دنیا وجود داره و قیمتش حدود 5.5 میلیون یوروئه، یعنی 1.65 تریلیون تومان
-
-⚡ @Tasiyanc
 </div>
 

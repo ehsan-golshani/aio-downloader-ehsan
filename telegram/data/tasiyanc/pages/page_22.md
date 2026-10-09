@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/07/17 00:40
+📅 آخرین بروزرسانی: 1405/07/17 04:54
 
 ---
+
+## tasiyanc — post 10268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10267
+
+<div align="center"><video src="files/post_10267_tasiyanc_10267.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10267_tasiyanc_10267.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوق حسااااس استقلال و السد رو با آپشن های تخصصی در MelBet پیشبینی کنید! 
+🔥
+
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+
+🇮🇷 پشتیبانی از زبان فارسی
+
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌
+✅ Link 🔜 MelBet1.net
+
+✅‌ Link 🔜 MelBet1.net
+</div>
 
 ## tasiyanc — post 10265
 
@@ -325,26 +373,5 @@ Join Join Join
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10236
-
-<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
-
-👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
 </div>
 

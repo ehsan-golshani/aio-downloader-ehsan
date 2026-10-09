@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/17 00:40
+📅 آخرین بروزرسانی: 1405/07/17 04:54
 
 ---
+
+## tasiyanc — post 10649
+
+<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
+یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10648
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
+</div>
 
 ## tasiyanc — post 10647
 
@@ -296,33 +314,5 @@ https://AmitisBet.com/
 به دستگاه‌های امنیتی دستور داده‌ام برای مقابله با تهدیدهای احتمالی دیگر آماده باشند.»
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10628
-
-<div align="center"><video src="files/post_10628_tasiyanc_10628.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10628_tasiyanc_10628.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هشدار
-به هیچ‌وجه در مراسم های تولد، کیک را به صورت کسی نکوبید , اکثر کیک ها داخلشون خلال چوبی و ... وجود داره که ممکنه طرف کور شه یا آسیب جدی ببینه .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10626
-
-<div align="center"><video src="files/post_10626_tasiyanc_10626.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10626_tasiyanc_10626.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرهنگ حلقه گم شده جامعه امروز !
-
-
-🔴هموطن عزیزم با تور قسطی رفتی وان نوش جونت ولی آبرو ریزی نکن دیگه بقدر کافی همه جا گند زدین ظرفیت نداری کم بخور این فیلماتون رو پیجهای خارجی گذاشتن دارن مسخره می‌کنن،همه دست و پاها تتو قیافه ها داغون .
-
-⚡ @Tasiyanc
 </div>
 

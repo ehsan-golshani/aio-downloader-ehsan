@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/07/17 00:40
+📅 آخرین بروزرسانی: 1405/07/17 04:54
 
 ---
+
+## tasiyanc — post 9253
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ابد و یک روز؟؟؟؟
+</div>
+
+## tasiyanc — post 9252
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا ابد و یک روز؟؟؟؟
+</div>
 
 ## tasiyanc — post 9249
 
@@ -254,21 +266,5 @@ r22
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨معاون اقتصادی وزارت  این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد. @Tasiyanc
-</div>
-
-## tasiyanc — post 9223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معاون اقتصادی وزارت 
-
-این نرخ (بنزین ۸۷تومنی) بعد از ۱۰ روز در تمامی نقاط کشور اجرا خواهد شد.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 9222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گنلمه دار خلقتده ... وررسن باده خلوتده
 </div>
 
