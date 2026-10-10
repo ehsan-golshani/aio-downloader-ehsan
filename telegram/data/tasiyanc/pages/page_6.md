@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 10684
+
+<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 4 October, روز جهانی حیواناته.
+
++این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
+
+
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10682
 
@@ -272,31 +297,5 @@ https://AmitisBet.com/
 📷 مشاهده پروفایل اینستاگرام
 
 🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰10
-</div>
-
-## tasiyanc — post 10663
-
-<div align="center"><video src="files/post_10663_tasiyanc_10663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10663_tasiyanc_10663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون فر بخوره ویدیو وایرال شده از بانوان پولدار تهرانی که میرن توی یه سرس کلاس ها شرکت میکنن پول میدن تا برن اونجا گریه کنن و تخلیه بشن.
-
-یسری انقدر پولدارن که نمیدونن پولاشونو چیکار کنن 😒
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10662
-
-<div align="center"><video src="files/post_10662_tasiyanc_10662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10662_tasiyanc_10662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
-
-⚡ @Tasiyanc
 </div>
 

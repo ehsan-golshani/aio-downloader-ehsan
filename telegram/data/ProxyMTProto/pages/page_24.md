@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 51537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: premium.speed-benz.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51536
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: akenai.tg
 Port: 853
 Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: for-iranian-users.ir.gole-baghche.info.
-Port: 88
-Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 @ProxyMTProto
 </div>
 

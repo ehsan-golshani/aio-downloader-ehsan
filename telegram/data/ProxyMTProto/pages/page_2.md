@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 51978
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lte.mishutkin.click
+Port: 443
+Secret: ee67af30bbe3543b32fd7b6966a61417e26c74652e6d69736875746b696e2e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51977
 
@@ -172,15 +181,6 @@ Secret: dd79e344818749bd7ac519130220c25d09
 Server: Unknown
 Port: 443
 Secret: dd161011f2e6890fb06a45b244c6ff4e7c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 5.75.206.230
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

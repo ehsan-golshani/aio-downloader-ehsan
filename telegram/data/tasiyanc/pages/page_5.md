@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 10706
+
+<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
 
 ## tasiyanc — post 10704
 
@@ -314,30 +338,5 @@ https://t.me/+E--pAy0bkURiOWM0
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10684
-
-<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 4 October, روز جهانی حیواناته.
-
-+این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
-
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

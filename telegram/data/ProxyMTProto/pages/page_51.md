@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 50996
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.esdata.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50995
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: media9.happtg.org
 Port: 443
 Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50976
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sahel.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

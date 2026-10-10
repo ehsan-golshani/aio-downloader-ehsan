@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 67
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 50676
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ssh.meow0.co.uk
+Port: 22
+Secret: dd79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50675
 
@@ -172,15 +181,6 @@ Secret: ee6be95a795ee766da019cd30044b837c16e6f64652e6561737970726f78792e636664
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50656
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
 @ProxyMTProto
 </div>
 

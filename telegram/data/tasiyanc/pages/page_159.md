@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 159
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 6185
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  👑
+
+دانلود اندروید  Wg tunnel 🕹
+
+دانلود iOS 📱
+آموزش⏩
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6184
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+GANG 🇳🇱🇬🇧🚀 (1).npvt
+</div>
 
 ## tasiyanc — post 6183
 
@@ -192,17 +210,5 @@ Premium GOD SV 🚀🔥.npvt
 ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6160
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشنا اگه زیاد باشه یه وایرم میزارم
-</div>
-
-## tasiyanc — post 6159
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VIP تاسیان 🪙 GOLD.npvt
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 50976
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sahel.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50975
 
@@ -172,15 +181,6 @@ Secret: ee5d739d0cab70b86961816e3a9c27d4c17777772e636c6f7564666c6172652e636f6d
 Server: Unknown
 Port: 25565
 Secret: ee1603010200010001fc030386e24c3add617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: terra.startnetwork.shop
-Port: 443
-Secret: dd0f2aa66e2419918464ead0544ec65121
 @ProxyMTProto
 </div>
 

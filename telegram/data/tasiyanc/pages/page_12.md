@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 10554
+
+<div align="center"><video src="files/post_10554_tasiyanc_10554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10554_tasiyanc_10554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر تو دبی خونه خریده و داره از کص‌و کونش 🍑 تشکر میکنه که باعث شدن خونه بخره.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10553
+
+<div align="center"><video src="files/post_10553_tasiyanc_10553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10553_tasiyanc_10553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت آیفون 16 پرومکس توسط سارق در محله منیریه تهران
+
+دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10552
 
@@ -269,31 +295,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r3🅰
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
-</div>
-
-## tasiyanc — post 10532
-
-<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
-
-📢 در سایت بری بت وارد حساب کاربری خود شوید.
-
-💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
-
-🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
-
-✅ ورود به سایت:👇🅰g2
-⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-🌟 کانال رسمی ما در تلگرام: 👇
-🔗 https://t.me/BerryBetOfficial
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 51256
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 2443
+Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51255
 
@@ -172,15 +181,6 @@ Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51236
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ykima.davay.click
-Port: 443
-Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 9538
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
+</div>
+
+## tasiyanc — post 9537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+
+آموزش اتصال ⛓
+
+🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
+
+
+اتصال پر سرعت برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9536
 
@@ -324,20 +349,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc | تاسیان
-</div>
-
-## tasiyanc — post 9515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بسیجی‌ها تو سواحل میانکاله مازندران زنجیره انسانی تشکیل دادن تا جلوی بی‌حجابی در کنار ساحل رو بگیرن:
-
-@Tasiyanc 
-💋
-</div>
-
-## tasiyanc — post 9514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Mumbai 🇮🇳.ovpn
 </div>
 

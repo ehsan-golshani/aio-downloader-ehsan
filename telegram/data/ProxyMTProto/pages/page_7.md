@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 51878
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: price.syscloudio.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51877
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: dns.vdl.lat
 Port: 443
 Secret: eece59031f1109f05387b7155534c7ac87646e732e76646c2e6c6174
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51858
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 22
-Secret: dd79e344818749bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

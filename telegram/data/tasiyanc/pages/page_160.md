@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 160
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 6160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ری اکشنا اگه زیاد باشه یه وایرم میزارم
+</div>
+
+## tasiyanc — post 6159
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+VIP تاسیان 🪙 GOLD.npvt
+</div>
 
 ## tasiyanc — post 6158
 
@@ -170,24 +182,6 @@ vip 🚀🔥 @Tasiyanc.conf
 
 دانلود برنامه Wg tunnel 🕹
 
-آموزش ویدیویی ⏩
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6138
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐 یه دونه هم ری اکشن نزدید
-</div>
-
-## tasiyanc — post 6137
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی کانفیگ وایرگارد متد جدید 👑
-
-تست شده 🎚
-دانلود برنامه Wg tunnel 🕹
 آموزش ویدیویی ⏩
 
 @Tasiyanc ✅

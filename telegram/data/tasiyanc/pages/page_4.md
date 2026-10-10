@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/19 00:00
+📅 آخرین بروزرسانی: 1405/07/19 03:27
 
 ---
+
+## tasiyanc — post 10729
+
+<div align="center"><video src="files/post_10729_tasiyanc_10729.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10729_tasiyanc_10729.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تمجید جذاب پهبادی در آسمان از لیونل مسی !
+
+مراسم زیبای و ویژه برای وداع با مسی
+
+📣 208 مسابقه
+🎯 126 گل
+🎯 67 پاس گل
+🥇طلای المپیک 2008
+🏆 جام جهانی 2022
+🏆 کوپا آمریکا 2021
+🏆 کوپا آمریکا 2024
+🏆 فینالیسیما 2022
+🔴136 پیروزی - 29 شکست و 43 تساوی
+﻿
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10728
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💌اهل پیش پیش بینی و شرط بندی؟💌 این گروه همفکری مختص تو پس😋 💖اینجا میتونی با هزاران ادم حرفه ای مشورت کنی و تحلیل کنی و پیش بینی بهتری داشته باشی و سود کنی😬 💖وقتی از رو دست حرفه ای ها بازی کنی قطعا سود میکنی پس همین حالا عضو شو و شرط بندی شرو کن و درامد…
+</div>
 
 ## tasiyanc — post 10727
 
@@ -285,29 +316,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10706
-
-<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10705
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
-⭐
-👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
-🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
-💵
 </div>
 

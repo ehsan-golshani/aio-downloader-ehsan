@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/18 23:58
+📅 آخرین بروزرسانی: 1405/07/19 03:25
 
 ---
+
+## ProxyMTProto — post 51276
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51275
 
@@ -172,14 +181,5 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 🌐 Have a Telegram Web Proxy and want to share it? Submit via @SProxyRobot and get featured on @ProxyMTProto 🚀
 
 🌐 Есть Telegram Web Proxy? Добавьте его через @SProxyRobot и разместите в @ProxyMTProto 🚀
-</div>
-
-## ProxyMTProto — post 51256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 2443
-Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
-@ProxyMTProto
 </div>
 
