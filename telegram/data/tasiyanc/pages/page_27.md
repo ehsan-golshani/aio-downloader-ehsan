@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10143
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت وایرال شده دهه 50 👑 Name: Tehran 1350 Prompt 🤖🤖 Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and…
+</div>
+
+## tasiyanc — post 10142
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بی‌بی نتانیاهو: نیروهای ما عملیات خود را در تپه علی الطاهر در جنوب لبنان آغاز کرده‌اند
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10141
 
@@ -325,31 +339,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10110
-
-<div align="center"><video src="files/post_10110_tasiyanc_10110.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10110_tasiyanc_10110.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فیلم وایرال شده عروسی اسرائیلی‌ها با آهنگ ایرانی در کمتر از یک روز ۵ میلیون ویو خورد !
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sa18
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

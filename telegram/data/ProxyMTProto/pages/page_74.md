@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/07/17 23:34
+📅 آخرین بروزرسانی: 1405/07/18 03:41
 
 ---
+
+## ProxyMTProto — post 50499
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: t.meow-network.com
+Port: 443
+Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50498
 
@@ -172,15 +181,6 @@ Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 Server: support.nettoyou2.co.uk
 Port: 443
 Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b49617669746f2e7275
 @ProxyMTProto
 </div>
 

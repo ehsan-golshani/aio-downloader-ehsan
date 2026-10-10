@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10515
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توی تهران دو تا پسر به اسم راشا و پارسا باهم دعواشون میشه.
+اسم خواهرِ پارسا، ستایش بوده و راشا برای انتقام از پارسا، دوستش به اسم مروارید رو می‌فرسته تا طرح رفاقت با ستایش بریزه.
+
+بعد از اینکه ستایش و مروارید باهم دوست میشن و اعتماد بینشون شکل میگیره مروارید، ستایش رو برای تولدش دعوت می‌کنه خونشون.
+
+اما اونجا راشا به کمک مروارید، به خواهر پارسا یعنی ستایش که فقط 17 سالش بوده تجاوز میکنن، کتکش میزنن و فیلمشو میفرستن برای پارسا!!
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10513
+
+<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گندم کوچولو
+
+لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10512
 
@@ -294,36 +319,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - اسلوونی ⏰ ساعت ۱۷:۳۰ 🌎 📲 ایتالیا - فنلاند 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
-</div>
-
-## tasiyanc — post 10487
-
-<div align="center"><img src="files/post_10487_tasiyanc_10487.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
-
-📆 بلژیک - اسلوونی
-⏰ ساعت ۱۷:۳۰ 🌎
-
-📲 ایتالیا - فنلاند
-😀 ساعت ۲۲:۳۰ 🌎
-
- 
-📺بونوس خوش آمدگویی ورزشی🎁
-🎁 بالاترین حد مبلغ شرط🎁
-🏆واریز جوایز در کمتر از 24 ساعت⭐️
-👩‍💻پشتیبانی از طریق چت زنده⌨️
-
-✈️ https://t.me/BerryBetOfficial
-R1
-🔗 ثبت نام و ورود به بخش پیشبینی💵
-https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 31🅰 🛒 ورود به سایت 👇 ✅ https://oqleixugysh.shop/fa/affiliates/?…
 </div>
 

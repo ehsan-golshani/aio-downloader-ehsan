@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 9404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فووووری
+
+ترامپ: توافق با ایران را لغو خواهیم کرد
+</div>
+
+## tasiyanc — post 9403
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
+</div>
 
 ## tasiyanc — post 9402
 
@@ -230,20 +244,5 @@ g26
 
 تست شده تمام نت‌ها ⚡️
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9373
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت اینترنت چطوره؟
-</div>
-
-## tasiyanc — post 9372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 نوید محمدزاده : از فلسطین حمایت کردم ، بازم خواهم کرد ، با اسراییل حال نمیکنم ، تموم تهدید های شما هم ب تخممه
-
-بعد این حرفاش ۹۰۰ هزار نفر آنفالوش کردن فعلا
-@Tasiyanc ⭐️
 </div>
 

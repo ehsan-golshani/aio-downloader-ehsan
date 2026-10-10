@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10557
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️عضویت کانال آنالیز محدوده رفقا؛ اگه اهل بتی ، خودتو برسون 👇🔥
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+</div>
+
+## tasiyanc — post 10556
+
+<div align="center"><img src="files/post_10556_tasiyanc_10556.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+NB1g7r1k_5I2ODE0
+https://t.me/+NB1g7r1k_5I2ODE0
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰g4
+</div>
 
 ## tasiyanc — post 10555
 
@@ -267,29 +294,5 @@ https://t.me/+aeze7JXKVfU2NmNk
 پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10536
-
-<div align="center"><video src="files/post_10536_tasiyanc_10536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10536_tasiyanc_10536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10535
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

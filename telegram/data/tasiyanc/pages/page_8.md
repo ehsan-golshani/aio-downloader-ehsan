@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10623
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تعداد 139 سرور پر سرعت V2Ray 🔐🔐🔐
+
+⚡️ پروتکل : 𝐕𝐥𝐞𝐬𝐬 | 𝐕𝐦𝐞𝐬𝐬 | 𝐒𝐒 | 𝐓𝐫𝐨𝐣𝐚𝐧
+
+متصل با تمام اپراتورها 🛜🛜🛜🛜🛜🛜
+
+اختصاصی، کل سرور ها تست شده
+
+فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
+
+دانلود V2Box نسخه اندروید🔐
+دانلود V2Box نسخه iOS 🔐
+
+دانلود Npv Tunnel نسخه اندروید🔐
+دانلود Npv Tunnel نسخه iOS🔐
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10622
+
+<div align="center"><video src="files/post_10622_tasiyanc_10622.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10622_tasiyanc_10622.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴پشماتون فر بخوره ببینید اینو
+
+یه دختر ۲۲ ساله تو تعویض روغنی با دوست پسرش در حال سکس بوده ژل روان کننده نداشتن بجاش از روغن ترمز استفاده کردن، روغن ترمز باعث خوردگی شدید پوست گوشت آلت تناسلی دوست پسرش شده و‌ بر اثر سوختگی درجه ۳ پسره فوت کرده، دختره ام بعد ۲۰ روز تو ICU بودن اومده پیش دکتر
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10621
 
@@ -276,24 +313,5 @@ Tasiyan | تاسیان pinned a file
 🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10602
-
-<div align="center"><video src="files/post_10602_tasiyanc_10602.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10602_tasiyanc_10602.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨هجوم مسافران ایرانی‌ به جزیره کیش در پی بسته شدن پروازها به خارج !
-
-با افزایش نجومی قیمت دلار و بسته شدن مسیرهای هوایی به‌ویژه به  دوبی ، متقاضیان سفر به جزیره زیبای مرجانی کیش رشد فزاینده و  ‌چشمگیری داشته است و مورد استقبال هموطنان در داخل کشور قرار گرفته است
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🛡 اولین شرطت رو بیمه کردیم! 🛡 💠 تازه‌وارد بتگرام شدی؟ نگران اولین شرطت نباش! اگه اولین شرط میکس باخت بخوره، ۱۰۰٪ مبلغ شرط رو به حسابت برمی‌گردونیم! 💰 تا سقف ۵,۰۰۰,۰۰۰ تومان / ۲۵ دلار 🎫 حداقل ۳ انتخاب با ضریب ۱.۴۰+ چطور کار می‌کنه؟ ◀️ اولین واریز و…
 </div>
 

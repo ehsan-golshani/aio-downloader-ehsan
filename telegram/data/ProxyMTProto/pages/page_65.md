@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/07/17 23:34
+📅 آخرین بروزرسانی: 1405/07/18 03:41
 
 ---
+
+## ProxyMTProto — post 50683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn2.kvakzon.top
+Port: 2443
+Secret: eea3046b756505c4772f1041996e592d2663646e322e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50682
 
@@ -172,15 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: shin.startnetwork.shop
 Port: 443
 Secret: ddf91f0b9ebf2d72aa67c93402c5c1554f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jadid.zhigool.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
 @ProxyMTProto
 </div>
 

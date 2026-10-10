@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r14 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
+</div>
+
+## tasiyanc — post 10731
+
+<div align="center"><img src="files/post_10731_tasiyanc_10731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
+🅰r14
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+🌐@Aron_tip @Aron_tip
+🌐@Aron_tip @Aron_tip
+</div>
 
 ## tasiyanc — post 10730
 
@@ -278,42 +296,5 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 💖برای دانلود اپلیکیشن کلیک کنید➡️
 کانال اطلاع رسانی سایت:🅰13
 ✉️https://t.me/+1zHLYMANkAEwODBi
-</div>
-
-## tasiyanc — post 10711
-
-<div align="center"><video src="files/post_10711_tasiyanc_10711.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10711_tasiyanc_10711.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 طاعون، بیماری که نصف اروپا 
-🌍 را به کام مرگ کشاند! که الان تو روسیه انتشار پیدا کرده!
-
-طاعون یکی از مرگبارترین بیماری‌های تاریخ بشریته. عاملش باکتری Yersinia pestis و مخزنشم بیشتر جوندگان و کک‌های آلوده‌ست.
-
-•سال 1346 میلادی از حوالی قرقیزستان 🇰🇬 شروع شد و اروپا، آسیا و شمال آفریقا رو درگیر کرد.
-•گفته می‌شه این بیماری‌ تو دوره مرگ سیاه، حدود 75 تا 200 میلیون نفر رو کشت؛ فقط تو اروپا احتمالاً حدود یک‌سوم تا نصف جمعیت از بین رفت!
-•یعنی هرکسی سُرفه میکرد، بدن و سردرد می‌گرفت و نفسش تنگ و بی‌حال میشد، می‌مُرد
-•تازه طاعون «متوقف» نشد؛ قرنطینه، محدودکردن رفت‌وآمد و تغییر شرایط زندگی و جمعیت جوندگان به کنترلش کمک کرد.
-•قدیم‌ها فکر می‌کردن بیماری طاعون از هوای بد و بدبو منتقل می‌شه بخاطر همین یسری ماسک با منقارهای بلند ساخته بودن و داخل اون قسمتِ دراز، گیاهان معطر، ادویه و مواد خوشبو می‌ذاشتن تا به خیال خودشون هوای آلوده قبل از رسیدن به بینی، تصفیه بشه
-امروزه آنتی بیوتیک‌ها میتونن تا حدودی طاعون رو درمان کنن، ولی حتما باید زود تشخیص داده بشه...
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10708
-
-<div align="center"><video src="files/post_10708_tasiyanc_10708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10708_tasiyanc_10708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ادعای عجیب یکی از نیروهای آتش‌نشانی در مورد ساخت پلاک مشخصات برای دانش آموزان:
-
-امروز رفتم یه دبیرستان دخترانه برای کنترل مسائل امنیتی بین حرفامون با مسئولین مدرسه متوجه شدم که دارن برای دانش آموزان پلاک مشخصات فردی درست میکنن مثل همونایی که زمان جنگ استفاده میشد؛
-
-⚡ @Tasiyanc
 </div>
 

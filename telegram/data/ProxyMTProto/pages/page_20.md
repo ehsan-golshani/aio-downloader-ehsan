@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/07/17 23:34
+📅 آخرین بروزرسانی: 1405/07/18 03:41
 
 ---
+
+## ProxyMTProto — post 51585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.detourcloak.site
+Port: 443
+Secret: dd77fa53c2b5473d4715b2493f8db21eb3
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51584
 
@@ -171,15 +180,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 Server: ir.envytations.co.uk.
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ==
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ultra.mishutkin.click
-Port: 443
-Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

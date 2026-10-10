@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10536
+
+<div align="center"><video src="files/post_10536_tasiyanc_10536.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10536_tasiyanc_10536.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امنیت مملکت انقد بالاست ملت موبایلشونو میکنن تو خشتکشون دزد نبره :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10535
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10534
 
@@ -252,31 +276,6 @@ G2🅰
 ‌
 امروز با حضور وزیر صمت زامیاد Z25 در شرکت سایپا رونمایی شد.
 
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10515
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی تهران دو تا پسر به اسم راشا و پارسا باهم دعواشون میشه.
-اسم خواهرِ پارسا، ستایش بوده و راشا برای انتقام از پارسا، دوستش به اسم مروارید رو می‌فرسته تا طرح رفاقت با ستایش بریزه.
-
-بعد از اینکه ستایش و مروارید باهم دوست میشن و اعتماد بینشون شکل میگیره مروارید، ستایش رو برای تولدش دعوت می‌کنه خونشون.
-
-اما اونجا راشا به کمک مروارید، به خواهر پارسا یعنی ستایش که فقط 17 سالش بوده تجاوز میکنن، کتکش میزنن و فیلمشو میفرستن برای پارسا!!
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10513
-
-<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گندم کوچولو
-
-لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
 
 
 💋 @Tasiyanc

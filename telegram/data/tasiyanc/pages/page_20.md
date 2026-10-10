@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10350
+
+<div align="center"><video src="files/post_10350_tasiyanc_10350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10350_tasiyanc_10350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گزارش‌های غیررسمی از حمله‌ اسرائیل که در آخرین لحظه لغو شد!
+
+طبق ادعاهایی که بعضی رسانه‌ها و منابع غیررسمی مطرح کردن، قرار بوده دیروز  حمله‌ای به ایران انجام بشه؛
+حتی گفته شده جنگنده‌ها وارد آسمان ایران شدن و در بخش‌هایی از غرب کشور و جنوب‌غرب تهران دیده شدن، اما بدون انجام حمله برگشتن.
+همزمان اومدن گفتن صبح دیروز به بعضی مکان‌های حساس دولتی تو تهران دستور تخلیه دادن
+اما فعلاً مشخص نیست واقعاً حمله‌ای قرار بود صورت بگیره یا نه. البته ادعای «درز اطلاعات و لو رفتن عملیات» هم مطرح شد...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10348
 
@@ -309,29 +335,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10327
-
-<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
-
-نیرویی خواستید مشتاق همکاری هستیم 😐
 
 
 💋 @Tasiyanc

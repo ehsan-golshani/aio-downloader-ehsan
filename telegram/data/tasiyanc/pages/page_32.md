@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10004
+
+<div align="center"><video src="files/post_10004_tasiyanc_10004.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10004_tasiyanc_10004.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پدر جاوید نام امیرمحمد کریمی( از جان باختگان دی ماه) با خودکشی به زندگی خود پایان داد!
+امیرمحمد کریمی ۱۹ ساله و عضو تیم ملی تکواندو بود و ۱۹ دی ماه در مرودشت کشته شد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10003
+
+<div align="center"><video src="files/post_10003_tasiyanc_10003.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10003_tasiyanc_10003.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرگزاری مهر:
+
+ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10002
 
@@ -279,47 +308,6 @@ sg15
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9984
-
-<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۶ کانفیگ پرمیوم سرعتی OpenVpn 
-📶
-
-مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
-
-
-👈 دریافت کانفیگ ها 
-➡️
-
-
-لوکیشن : 
-🇩🇰
-🇪🇸
-🇫🇮
-🇮🇪
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9983
-
-<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
-
 
 
 💋 @Tasiyanc

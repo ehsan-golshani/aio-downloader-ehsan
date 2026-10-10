@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10328
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق جدیدترین تحقیقات، پسرا و مردایی که شکمشون به دلیل چاقی بزرگ شده، زیر نافشون چربی جمع میشه و طول آلتشون کوتاه تر میشه و چاقی باعث کوتاه شدن آلت در دراز مدت میشه.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10327
+
+<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
+
+نیرویی خواستید مشتاق همکاری هستیم 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10326
 
@@ -277,31 +300,6 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
 اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
 خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10298
-
-<div align="center"><img src="files/post_10298_tasiyanc_10298.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ استقلال ایران در لیگ نخبگان آسیا در مصاف با السد قطر با 3 تقه تونست ببره
-
-+ استقلال یکی از جوان‌ترین تیمای ایرانه امسال
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10297
-
-<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی !
-توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
-
-یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
-
-عکس مربوط به کلاب M4 Dundas هست
 💋 @Tasiyanc
 </div>
 

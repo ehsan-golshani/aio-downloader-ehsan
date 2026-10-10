@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 8195
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه دریافت کانفیگ 👉
+</div>
+
+## tasiyanc — post 8194
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی مخصوص نت ملی بگیرید حتما داشته باشید عضویت اجباری نداریم فقط مجموعه خودمونه
+
+دریافت کانفیگ 👉
+</div>
 
 ## tasiyanc — post 8192
 
@@ -156,17 +170,5 @@
 نتیجه ؟ هدف حمله زمینی ایالات متحده آمریکا رو نشون میده
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️حمله به فرودگاه ایرانشهر در سیستان و بلوچستان @TasiyanProxy
-</div>
-
-## tasiyanc — post 8163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بندرعباس عزیز زیر حملات شدید آمریکا 💔
 </div>
 

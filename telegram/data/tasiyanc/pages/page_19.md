@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 10372
+
+<div align="center"><video src="files/post_10372_tasiyanc_10372.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10372_tasiyanc_10372.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐کانفیگ حجم نامحدود نپسترنت
+
+آموزش اتصال ⛓
+
+⭕️ حتما برنامه Npv Tunnel رو آپدیت کنید
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 
+📸 جمنای 🤖
+
+
+
+💋 @TASIYANC
+</div>
+
+## tasiyanc — post 10371
+
+<div align="center"><img src="files/post_10371_tasiyanc_10371.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قتل فجیع ۵ نفر از اعضای خانواده در تهران
+
+ساعتی قبل جسد پنج زن و مرد که گفته می‌شود قربانی یک قتل عام خانوادگی شده بودند، در بلوار سیمون بولیوار تهران کشف شد ، عاملان جنایت دستگیر شدند
+
+دوتا برادر بعد از فوت پدرشون تصمیم میگیرن تمام اموال باباشونو بالا بکشن،
+دو تا خواهر و دو برادر و مادر خودشونو به قتل میرسونن و یه چاه میکنن و جنازه هارو میندازن توش و تمام اموالو بالا میکشن، با یه دختر اوکی میشه یکیشون که دختره می‌فهمه خیلی پولدارن مشکوک میشه ، میفهمه خانوادشونو به قتل رسوندن، سریع به پلیس گزارش می‌کنه و دستگیر میشن
+﻿
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10370
 
@@ -294,31 +330,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10350
-
-<div align="center"><video src="files/post_10350_tasiyanc_10350.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10350_tasiyanc_10350.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 گزارش‌های غیررسمی از حمله‌ اسرائیل که در آخرین لحظه لغو شد!
-
-طبق ادعاهایی که بعضی رسانه‌ها و منابع غیررسمی مطرح کردن، قرار بوده دیروز  حمله‌ای به ایران انجام بشه؛
-حتی گفته شده جنگنده‌ها وارد آسمان ایران شدن و در بخش‌هایی از غرب کشور و جنوب‌غرب تهران دیده شدن، اما بدون انجام حمله برگشتن.
-همزمان اومدن گفتن صبح دیروز به بعضی مکان‌های حساس دولتی تو تهران دستور تخلیه دادن
-اما فعلاً مشخص نیست واقعاً حمله‌ای قرار بود صورت بگیره یا نه. البته ادعای «درز اطلاعات و لو رفتن عملیات» هم مطرح شد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
-
-
-⚡ @Tasiyanc
 </div>
 

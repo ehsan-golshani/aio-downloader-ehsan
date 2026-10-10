@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 9912
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از کرمان  « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شلیک موشک از اصفهان « تایید یا رد نمیشه »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9910
 
@@ -286,41 +302,5 @@ https://t.me/+TmGWkUYH_8c0OWZk
 خب یکی نیست بگه حرومزاده تو گوه خوردی بچه‌دار شدی
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9889
-
-<div align="center"><video src="files/post_9889_tasiyanc_9889.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9889_tasiyanc_9889.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ایران عالیه
-
-یه رستوران که قیمت هارو به خاطر نوسانات قیمت به صورت لحظه ای تغییر میده و‌ تابلو صرافی طور گذاشته.
-+همون لحظه ساندویچ ۳۰۰ تومنی رو نخری ۱ ساعت بعد باید ۴۰۰ تومن به همون ساندویچ بدی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (پیشنهادی)
-
-دانلود آیفون نسخه جدید 
-
-دانلود نسخه 123.1 اندروید
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 

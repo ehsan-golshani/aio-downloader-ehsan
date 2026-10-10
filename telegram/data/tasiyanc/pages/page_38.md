@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/17 23:36
+📅 آخرین بروزرسانی: 1405/07/18 03:43
 
 ---
+
+## tasiyanc — post 9865
+
+<div align="center"><video src="files/post_9865_tasiyanc_9865.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9865_tasiyanc_9865.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨حمله موشکی اسرائیل به مسجدی در مرز جنوب لبنان که هنگام اذان ، بلندگوهایش را سمت اسرائیل گرفته بود
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 9864
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برخی مضرات رابطه جنسی که نمیدونستی!!
+
+۱.طول بیشتر از ۱۰ سانت به دیواره رحم برخورد و باعث درد زیادی میشه!
+۲.رابطه مقعدی خیلی خطرناکه و باعث انتقال مریضی میشه و هم دردناکه!
+۳.استفاده از قرص های تاخیری معمولا باعث گیجی و سردرد و ضرر میشه!
+۴.رابطه دهانی با زنان، این نوع رابطه مضر نیست اما ممکنه خیلیا بدشون بیاد!
+۵.رابطه جنسی با پیرزن‌ها و پیرمرد‌ها
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9863
 
@@ -307,36 +334,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐کانفیگ حجم نامحدود نپسترنت
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید  (نصب کنید)
-
-دانلود آیفون نسخه جدید 
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9839
-
-<div align="center"><img src="files/post_9839_tasiyanc_9839.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ترامپ:
-
-دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
-
-🩸@Tasiyanc
 </div>
 
