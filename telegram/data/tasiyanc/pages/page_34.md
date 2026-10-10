@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 9979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساده‌ترین گوشی شیائومی ۵۰ میلیون تومان شد!!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9978
 
@@ -264,19 +272,6 @@ til.ac/0L4vyJf
 تصور کنید سوار ماشینی می‌شید که درهای پروانه‌ایش با اپلیکیشن باز می‌شه و هوش مصنوعی شما رو به مقصد می‌رسونه.
 +این تاکسی های تسلا رو یه یارویی شخصا تست کرده خیلی خفنن ایلان ماسک داره دنیا رو تغییر میده:
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9953
-
-<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
-
-سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
-🔗https://www.novigrad.top
 
 💋 @Tasiyanc
 </div>

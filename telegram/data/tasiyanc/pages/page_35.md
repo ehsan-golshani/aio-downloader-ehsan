@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 9953
+
+<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
+
+سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
+🔗https://www.novigrad.top
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9952
 
@@ -285,52 +298,5 @@ til.ac/0L4vyJf
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9927
-
-<div align="center"><img src="files/post_9927_tasiyanc_9927.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-🌐آدرس سایت👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-📲 کانال تلگرامی #وی_پاری :
-
-✅ @Wepari2
 </div>
 

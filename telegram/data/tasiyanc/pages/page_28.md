@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10138
+
+<div align="center"><video src="files/post_10138_tasiyanc_10138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10138_tasiyanc_10138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨در این ویدیو موتور یه پیک آتیش گرفته نکته جالب این ویدیو اینه که یه نفر داره شماره کارت پیک رو بلند میخونه و مردم عزیز دارن همونجا به حسابش پول میزنن تا بتونه یه موتور برا خودش بگیره « درود به غیرت و شرف ایرانی »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10137
 
@@ -360,13 +372,5 @@ sa18
 به مردم ایران قولی دادم و پای آن هستم ما متعهد به‌ سقوط نظام در ایران هستیم.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10105
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
-
-💋 @Tasiyanc
 </div>
 

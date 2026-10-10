@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10574
+
+<div align="center"><img src="files/post_10574_tasiyanc_10574.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این زن شوهری که نیم تن وزن داشتن باعث شدن یه ساختمون هنگام سکسشون بریزه.
+
+یه زوج در لیورپول که وزنشون روی همدیگه ۵۰۰ کیلو گرم بود(مرده ۲۹۰ و زنش ۲۰۰) توی اتاق خوابشون بودن حین رابطه جنسی بودن که ساختمون ۲۵۰ ساله فرو میریزه! همسایه گفته بودن که ساختمون خودش قدیمی بوده و پیش بینی میکردن که ساختمون فرو میریزه ولی بی توجهی کردن و تلمبه‌ها و وزن این زن و شوهر هم بی تاثیر نبوده.
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10571
 
@@ -263,25 +275,5 @@ https://t.me/+NB1g7r1k_5I2ODE0
 دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10552
-
-<div align="center"><video src="files/post_10552_tasiyanc_10552.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10552_tasiyanc_10552.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی جدید
-
-«گنگ‌ترین عکسی که میتونی با پدر و مادرت داشته باشی»
-
-
-STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual blueprint; do not redesign or reinterpret. Use the 3 uploaded portraits ONLY for identity: Face 1 → seated older man LEFT, Face 2 → seated older woman RIGHT, Face 3 → younger man standing CENTER BACK. EXACTLY 3 people. 9:16 full-body portrait. Match reference camera, crop, framing, proportions, poses and spacing. Two older subjects sit together on ONE large ornate dark antique leather armchair; younger man stands directly behind them, centered, head between theirs. Show entire chair, both seated subjects head-to-shoes, standing man to mid-thigh. Preserve cane, prayer beads, hands, legs and shoe positions exactly. All wear black. Man: black suit, shirt, trousers, polished shoes, holding vertical black decorative cane with prayer beads. Woman: elegant black formal outfit, gloves, vintage black hat, pointed shoes. Younger man: fitted black suit and shirt, no tie. Dark textured charcoal studio background and floor, subtle vignette. Dramatic low-key black-and-white lighting, soft upper front-left key, deep shadows, gentle rim light, fine film grain. ABSOLUTE IDENTITY LOCK: preserve each reference face exactly—geometry, eyes, nose, lips, jaw, hairline, facial hair, age and natural skin texture. No beautification, blending or identity drift. Ultra-photorealistic professional 85mm photography, natural anatomy, realistic skin/fabric/leather/wood. No CGI, painting, 3D, HDR, extra people, limbs, fingers, text, watermark or UI. 250
-
-
-🟢وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
 </div>
 

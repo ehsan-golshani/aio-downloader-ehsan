@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10482
+
+<div align="center"><video src="files/post_10482_tasiyanc_10482.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10482_tasiyanc_10482.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨همزمان با تهدید‌های ترامپ در سازمان ملل علیه جمهوری اسلامی؛ این ویدیو از آزمایش بمب اتمی در روبیکا و شبکه های مجازی داخلی وایرال شده
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10481
 
@@ -273,18 +287,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10462
-
-<div align="center"><video src="files/post_10462_tasiyanc_10462.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10462_tasiyanc_10462.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👁سود روزانه میخوای؟بیا بری بت💝 0️⃣2️⃣
-🔤سود برد برای اولین واریز روزانه👀 😎کافیست با مبلغ دلخواه حساب خود را شارژ کرده و برگه شرطبندی سود برد را فعال نمایید
-🥹 💵10% شارژ بیشتر برای شارژ با روش کریپتو🙌 
-‼️ برای اطلاعات بیشتر به صفحه بونوس‌های سایت بری بت مراجعه…
 </div>
 

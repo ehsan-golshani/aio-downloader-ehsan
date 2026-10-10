@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 8233
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر ❤️
+</div>
 
 ## tasiyanc — post 8232
 
@@ -158,14 +164,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴برق ایرانشهر انگار کاملا رفته
-
-@Tasiyanc✅
-</div>
-
-## tasiyanc — post 8212
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢 حمله آمریکا به شهر ویسیان لرستان
 
 @Tasiyanc✅
 </div>

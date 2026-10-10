@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 9751
+
+<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9750
 
@@ -211,14 +221,6 @@ til.ac/0L4vyJf
 🚨 مقام آمریکایی:
 
 نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
-
 🩸 @Tasiyanc
 </div>
 

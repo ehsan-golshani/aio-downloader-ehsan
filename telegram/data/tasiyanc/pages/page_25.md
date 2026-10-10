@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Mix_Safe @miix_viip
+هر هفته قرعه کشی داریم 😏👆👆
+
+فرم های شرطبندی با آنالیز های حرفه ای📊
+#VIP #رایگان 🛡️
+</div>
 
 ## tasiyanc — post 10224
 
@@ -223,14 +233,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10191
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
 
 💋 @Tasiyanc
 </div>

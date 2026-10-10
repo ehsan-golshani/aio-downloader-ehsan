@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10190
 
@@ -364,13 +372,6 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 جهت دریافت کانفیگ ها کلیک کنید
 
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10163
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🍏 ساعاتی قبل شرکت اپل با انتشار این ویدیو از آیفون 18پرو و پرومکس رونمایی کرد؛ ـ قیمت آیفون ۱۸ از ۱,۱۹۹ دلار شروع میشه تا ۲,۱۰۰ دلار! تو ایران با احتساب هزینه رجیستر و گمرک قیمتش نزدیک ۶۰۰ میلیون تومان میشه با قیمت دلار ۲۳۵ هزار تومانی . 
 💋 @Tasiyanc
 </div>
 

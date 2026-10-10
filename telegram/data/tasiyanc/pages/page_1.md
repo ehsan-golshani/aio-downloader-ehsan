@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10789
+
+<div align="center"><img src="files/post_10789_tasiyanc_10789.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سایت ادم حوا توی بروزرسانی جدیدش دخترای ۱۳ ساله رو واسه کیس ازدواج معرفی کرده 😐😐😐
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10788
 
@@ -340,27 +352,6 @@ https://raw.githubuser…s/main/v2ray_links.txt
 •USS Ross
 •USS Shoup
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10767
-
-<div align="center"><img src="files/post_10767_tasiyanc_10767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 حداقل حقوق کارگرها تو خاورمیانه:
-
-🇮🇷 ایران : 63 دلار !
-🇦🇲 ارمنستان : 200 دلار
-🇰🇼 کویت : 245 دلار
-🇶🇦 قطر : 275 دلار
-🇦🇿 آذربایجان : 320 دلار
-🇮🇶 عراق : 350 دلار
-🇹🇷 ترکیه : 525 دلار
-🇴🇲 عمان : 800 دلار
-🇸🇦 عربستان : 1000 دلار
-🇦🇪 امارات : 1600 دلار
 
 ⚡ @Tasiyanc
 </div>

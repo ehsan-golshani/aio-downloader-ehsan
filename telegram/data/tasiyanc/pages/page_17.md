@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10437
+
+<div align="center"><video src="files/post_10437_tasiyanc_10437.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10437_tasiyanc_10437.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼امروز 20 September روز جهانی قدردانی از همسره
+👼
+
+بفرس براش 
+🌹
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10436
 
@@ -315,13 +332,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 بانو در حین تلاش برای شکستن رکورد بیشترین تعداد سکس تو ۲۴ ساعت، دقایقی بعد از آغاز عملیات یکی از مردایی که باهاش رابطه داشت پاشید تو صورتش و بیناییش بشدت به مشکل خورد و راهی بیمارستان شد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
 </div>
 

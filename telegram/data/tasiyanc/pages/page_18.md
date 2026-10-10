@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
 
 ## tasiyanc — post 10412
 
@@ -316,18 +324,4 @@ Act as a motivational coach
 ## tasiyanc — post 10393
 
 ## tasiyanc — post 10392
-
-## tasiyanc — post 10390
-
-<div align="center"><video src="files/post_10390_tasiyanc_10390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10390_tasiyanc_10390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴استایل بانو سیدنی سویینی دیشب در اکران سریالش :
-
-حالا که به چشم خریدار نگاه میکنم میبینم سیدنی سویینی خیلی بدم نیست و من داشتم کفران نعمت میکردم 🤣
-
-⚡ @Tasiyanc
-</div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10105
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وقوع زلزله 4/5 ریشتری در بندر دیر
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10104
 
@@ -248,18 +256,5 @@ Tasiyan | تاسیان pinned a photo
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10083
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 دلار 232 هزار تومن
-🟠 سکه 240 میلیون تومن
-🟠 طلا 24میلیون تومن
-🟠 نفت 100 دلار
-
-وضعیت ممه‌لکت :|
-
-💋 @Tasiyanc
 </div>
 

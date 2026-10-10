@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10345
+
+<div align="center"><video src="files/post_10345_tasiyanc_10345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10345_tasiyanc_10345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: دیوید کیز، مشاور سابق نتانیاهو با انتشار این ویدیو مدعی شد که جمهوری اسلامی، ۲ هفته و ۳ روز و ۶ ساعت و ۱۴ دقیقه دیگه سقوط می‌کنه!
+
+سنوار فکر میکرد جاش توی غزه امنه، ولی نبود. نصرالله فکر می‌کرد جاش توی لبنان امنه، ولی نبود. تمام فرماندهان سپاه فکر میکردن جاشون تو پناهگاه امنه، ولی همشون ترور شدن.
+ایران در آستانه بزرگترین تغییر خودش قرار داره، حالا وقتشه مردم ایران بیان بیرون و حقشون رو بگیرن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10344
 
@@ -297,18 +312,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10323
-
-<div align="center"><video src="files/post_10323_tasiyanc_10323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10323_tasiyanc_10323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز هواپیمای مشهد به کرمانشاه نقص فنی پیدا می‌کنه تو آسمون و نزدیک بود سقوط کنه .
-
-یه بوئینگ ۷۳۷ تو مسیر مشهد به کرمانشاه، موقع تیک‌اف نقص فنی پیدا کرد. خلبان هم وضعیت اضطراری اعلام کرد و صحیح و سالم برگشت تو همون فرودگاه مشهد فرود اومد.
-@Tasiyanc
 </div>
 

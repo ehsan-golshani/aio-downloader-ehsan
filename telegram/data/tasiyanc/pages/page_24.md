@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10250
+
+<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون 
+📱
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10249
 
@@ -330,15 +359,5 @@
 
 شوهرشم توی روز طلاق به زنِ اعتراف کرده که حتی روز عروسی با ساقدوش بهش خیانت کرده!
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Mix_Safe @miix_viip
-هر هفته قرعه کشی داریم 😏👆👆
-
-فرم های شرطبندی با آنالیز های حرفه ای📊
-#VIP #رایگان 🛡️
 </div>
 

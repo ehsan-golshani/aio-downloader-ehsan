@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10727
+
+<div align="center"><video src="files/post_10727_tasiyanc_10727.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10727_tasiyanc_10727.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💌اهل پیش پیش بینی و شرط بندی؟💌
+
+این گروه همفکری مختص تو پس😋
+
+💖اینجا میتونی با هزاران ادم حرفه ای مشورت کنی و تحلیل کنی و پیش بینی بهتری داشته باشی و سود کنی😬
+
+💖وقتی از رو دست حرفه ای ها بازی کنی قطعا سود میکنی پس همین حالا عضو شو و شرط بندی شرو کن و درامد دلاری داشته باش💖🅰14
+
+💖ادرس عضویت بزرگ ترین گروه شرط بندی ایران:
+https://t.me/+KpqdIyXNfcMzOWFk
+https://t.me/+KpqdIyXNfcMzOWFk
+</div>
 
 ## tasiyanc — post 10726
 
@@ -287,31 +307,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
 ⭐
 👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
-🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
-💵
-</div>
-
-## tasiyanc — post 10704
-
-<div align="center"><img src="files/post_10704_tasiyanc_10704.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
-⭐
-👇🅰g13
-
-https://t.me/+CHT8I544iFRiNzU0
-https://t.me/+CHT8I544iFRiNzU0
-
-
 🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
 💵
 </div>

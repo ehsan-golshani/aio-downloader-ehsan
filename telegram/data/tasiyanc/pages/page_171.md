@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 171
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 5879
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ جدید OpenVPN  ♻️
+تست کنین بگین
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 5878
 
@@ -171,11 +179,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بهرحال ما ک قطعیم
-</div>
-
-## tasiyanc — post 5853
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مثل برخی چنلا باید روزی ۲۰۰ پیام واسه سرور رایگان رضایت بفرستیم؟
 </div>
 

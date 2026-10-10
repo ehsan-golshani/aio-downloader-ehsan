@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10661
+
+<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
+
++اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10660
 
@@ -276,19 +288,5 @@ https://AmitisBet.com/
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
 🔠🔡🔡🔡🔡🔡🔠🔡🔡
 ۱۸+ | مسئولانه بازی کنg9🅰
-</div>
-
-## tasiyanc — post 10640
-
-<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دکتر بسکابادی:
-اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
-باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
-پسر بودنم سخته
-
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/18 20:01
+📅 آخرین بروزرسانی: 1405/07/19 00:00
 
 ---
+
+## tasiyanc — post 10640
+
+<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دکتر بسکابادی:
+اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
+باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
+پسر بودنم سخته
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10639
 
@@ -301,14 +315,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
 ﻿
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیجان را با ما تجربه کنید
-💐
-وینگو بینگو
-👆🅰‌7
 </div>
 
