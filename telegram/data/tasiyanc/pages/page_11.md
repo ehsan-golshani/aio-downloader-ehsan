@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/18 15:12
+📅 آخرین بروزرسانی: 1405/07/18 20:01
 
 ---
+
+## tasiyanc — post 10571
+
+<div align="center"><img src="files/post_10571_tasiyanc_10571.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری: گوگل ایرانیا رو تحریم کرده و از این به بعد مردم ایران دیگه نمیتونن حساب جدید جیمیل بسازن!
+
+« فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10570
+
+<div align="center"><video src="files/post_10570_tasiyanc_10570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10570_tasiyanc_10570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ویدیو وایرال شده از دانشگاه آزاد تهران
+بزرگترین کلاب کشور رو مشاهده میکنید .
+
+دانشگاه آزاد اسلامی، با شعبه های متعدد سراسر ایران.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10568
+
+<div align="center"><img src="files/post_10568_tasiyanc_10568.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰🛍 جشنواره اسلات AmitisBet شروع شد!
+
+از0️⃣3️⃣شهریور تا 2️⃣1️⃣مهر
+با یک شارژ 2️⃣ میلیونی و یا 5️⃣1️⃣ دلاری و انجام بازیهای اسلات
+
+در پایان دوره، روز دوشنبه 3️⃣1️⃣ مهر، معادل 5️⃣🔣 مجموع شارژت رو پاداش نقدی بگیر
+
+هر بازی 🟰 یک امتیاز برای ورود به قرعه‌کشی
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+📱 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📱 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
+</div>
+
+## tasiyanc — post 10567
+
+<div align="center"><video src="files/post_10567_tasiyanc_10567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10567_tasiyanc_10567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10566
 
@@ -212,88 +283,5 @@ STRICT REFERENCE RECREATION. Use the scene reference as the EXACT visual bluepri
 🟢وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
 
 #N @Tasiyanc
-</div>
-
-## tasiyanc — post 10551
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10550
-
-<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10549
-
-<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
-https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 10547
-
-<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖
-
-🎖️معتبرترین سایت روسی فعال در ایران🎖️
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-💎هدایا سایت جهانی ژتون بت:
-➕واریز اول دو برابر شارژ میشی😍
-➕15% فری بت هدیه برای شارژ بانکی
-➕15% شارژ اضافی برای شارژ ارزی
-➕50% بونوس جمعه برای شرط بندی
-➕50% بونوس دوشنبه برای کازینو
-➕100 اسپین رایگان هفتگی
-➕20% کش بک روزانه برای کازینو
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-🥇دنیای افرهای بی نظیر در ژتون بت👀
-
-🖥️ادرس ورود به سایت:
-https://jhet0n.online/fa/?btag=2786270
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-💖کانال اطلاع رسانی:👇🅰3
-🔔https://t.me/+wZXhBXGTHmsxMTk0
 </div>
 

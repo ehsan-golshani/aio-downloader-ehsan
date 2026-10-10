@@ -1,8 +1,91 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/18 15:12
+📅 آخرین بروزرسانی: 1405/07/18 20:01
 
 ---
+
+## tasiyanc — post 10551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10550
+
+<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10549
+
+<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
+https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 10547
+
+<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول دو برابر شارژ میشی😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15% شارژ اضافی برای شارژ ارزی
+➕50% بونوس جمعه برای شرط بندی
+➕50% بونوس دوشنبه برای کازینو
+➕100 اسپین رایگان هفتگی
+➕20% کش بک روزانه برای کازینو
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🥇دنیای افرهای بی نظیر در ژتون بت👀
+
+🖥️ادرس ورود به سایت:
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇🅰3
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
 
 ## tasiyanc — post 10546
 
@@ -207,76 +290,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10530
-
-<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده
-
-غروب، پاییزی .
-🍃
-
-
-A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
-
-
-وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10529
-
-<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
-قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
-می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
-این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
-این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10527
-
-<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10526
-
-<div align="center"><video src="files/post_10526_tasiyanc_10526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10526_tasiyanc_10526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : دشمنان پس‌از حمله ۷ اکتبر خیال کردن ما فرومیپاشیم ولی ما بپا خواستیم و مثل شیر جنگیدیم و نابودشون کردیم!
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10525
-
-<div align="center"><video src="files/post_10525_tasiyanc_10525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10525_tasiyanc_10525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
-
-#N @Tasiyanc
 </div>
 
