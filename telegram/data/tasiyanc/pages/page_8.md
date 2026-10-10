@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/18 03:43
+📅 آخرین بروزرسانی: 1405/07/18 09:24
 
 ---
+
+## tasiyanc — post 10626
+
+<div align="center"><video src="files/post_10626_tasiyanc_10626.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10626_tasiyanc_10626.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرهنگ حلقه گم شده جامعه امروز !
+
+
+🔴هموطن عزیزم با تور قسطی رفتی وان نوش جونت ولی آبرو ریزی نکن دیگه بقدر کافی همه جا گند زدین ظرفیت نداری کم بخور این فیلماتون رو پیجهای خارجی گذاشتن دارن مسخره می‌کنن،همه دست و پاها تتو قیافه ها داغون .
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
+
+## tasiyanc — post 10624
+
+<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
+
+https://t.me/+E4HUFuYfyUw1MjRk
+https://t.me/+E4HUFuYfyUw1MjRk
+
+🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
 
 ## tasiyanc — post 10623
 
@@ -276,42 +313,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨ برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥 هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀 یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز…
-</div>
-
-## tasiyanc — post 10605
-
-<div align="center"><img src="files/post_10605_tasiyanc_10605.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨
-
-برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥
-
-هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀
-یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز باشه! 🏆
-
-🎟 بلیت رایگان برای همه بازی‌ها
-🎯 انتخاب شماره و شرکت در بازی
-💰 جوایز ویژه و‌ میلیونی
-
-همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
-
-🌐 wingobingo.tv
-</div>
-
-## tasiyanc — post 10604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a file
-</div>
-
-## tasiyanc — post 10603
-
-<div align="center"><img src="files/post_10603_tasiyanc_10603.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق گزارشات همونطور که تو آمریکا وقتی کارمندای پنتاگون پیتزا زیاد سفارش بدن یعنی جنگ نزدیکه، تو ایران هروقت تو پادگانا غذای خوب به سربازا بدن یعنی جنگ نزدیکه، حالا طی چند روز اخیر کیفیت غذای پادگانا خیلی بالا رفته و سربازا میگن جنگ نزدیکه.
-
-@Tasiyanc
 </div>
 

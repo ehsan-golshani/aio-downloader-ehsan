@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/18 03:43
+📅 آخرین بروزرسانی: 1405/07/18 09:24
 
 ---
+
+## tasiyanc — post 10690
+
+<div align="center"><img src="files/post_10690_tasiyanc_10690.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
+🔹
+✅وان ایکس رتبه یک دنیاس ✔️
+
+⏬چرا انتخاب همه 1xbet هست:
+⬅️واریز اول دو برابر شارژ میشی
+⬅️هفتگی کلی هدیه میده
+⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
+⬅️پر اپشن ترین سایت دنیاس
+⬅️اسپانسر تیم های مختلف اروپاس
+⬅️حرفه ای ترین اپلیکیشن داره
+⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
+پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
+
+😴ادرس سایت:
+https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
+🎁کد هدیه ثبت نام:1xuu
+
+💖برای دانلود اپلیکیشن کلیک کنید➡️
+کانال اطلاع رسانی سایت:🅰12
+✉️https://t.me/+1zHLYMANkAEwODBi
+</div>
+
+## tasiyanc — post 10689
+
+<div align="center"><video src="files/post_10689_tasiyanc_10689.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10689_tasiyanc_10689.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 توی سوئیس شما با حقوق ۲ ساعت کارگری میتونی این ایفون ۱۸ پرومکس رو با یک سال اینترنت رایگان خریداری کنی.
+توی ممه‌لکت ما به همت آخوندا باید ۵۰ ماه کار کنی تا یه آیفون مونتاژ چین CHA بخری بدبخت
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10688
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇 https://t.me/+E--pAy0bkURiOWM0 https://t.me/+E--pAy0bkURiOWM0 
+🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان
+💵🅰12g
+</div>
 
 ## tasiyanc — post 10687
 
@@ -251,51 +304,5 @@ https://t.me/+ha2KmA-UHioxNDI0
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10670
-
-<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨امروز 3 October روز جهانی دوست پسره
-
-بفرست واسش 🌹
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10669
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10668
-
-<div align="center"><img src="files/post_10668_tasiyanc_10668.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r11
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

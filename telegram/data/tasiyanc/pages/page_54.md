@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/07/18 03:43
+📅 آخرین بروزرسانی: 1405/07/18 09:24
 
 ---
+
+## tasiyanc — post 9450
+
+<div align="center"><img src="files/post_9450_tasiyanc_9450.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 19 August، روز جهانی عکاسیه📸
+یه روز واسه ثبت کردن لحظه‌ها و منظره‌هایی که حالتو خوب می‌کنن امروز وقتشه انجام بدی .
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9448
+
+<div align="center"><img src="files/post_9448_tasiyanc_9448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️ به دنیای پیش‌بینی فوتبال و کازینو با LINEBET خوش آمدید
+
+🌍 سایت بین‌المللی و معتبر LINEBET
+
+⚽️ پیش‌بینی فوتبال
+🎰 کازینو آنلاین
+💳 واریز و برداشت ریالی
+🎁 بونوس 100٪ اولین واریز
+🎁 بونوس 100٪ هر دوشنبه
+📞پشتیبانی فارسی فعال
+
+🎁کد هدیه ثبت‌نام: L5670
+
+🔗 دانلود اپلیکیشن اندروید 👉
+
+🔗 لینک سایت 👉
+✉️ https://t.me/+dukgrB6-zGsyNGM8
+
+🌐 برای ورود به سایت از IP کشورهای آسیایی یا کانادا استفاده کنید.🇹🇷🇨🇦🇮🇳
+
+📚 آموزش کامل سایت👉
+</div>
 
 ## tasiyanc — post 9447
 
@@ -249,39 +300,5 @@ Decarys 🔥.ovpn
 
 @Tasiyanc 
 ⭐️
-</div>
-
-## tasiyanc — post 9430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برید به ChatGpt بگید ...
-
-Roast me , no filter , no mercy
-
-اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
-
-#N
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بلومبرگ میگه با رد ترامپ واسه تمدید دوباره آتش بس دیگه امیدی واسه صلح ایران و آمریکا نیست.
-
-#N
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9428
-
-<div align="center"><img src="files/post_9428_tasiyanc_9428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴فیلم تجاوز دو مرد به یک دختر ، متاسفم که وجدان ندارن دوتایی سر یه آدم مظلوم ...
-
-مشاهده فیلم
-
-@Tasiyanc
 </div>
 

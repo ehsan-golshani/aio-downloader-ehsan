@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/18 03:43
+📅 آخرین بروزرسانی: 1405/07/18 09:24
 
 ---
+
+## tasiyanc — post 10539
+
+<div align="center"><img src="files/post_10539_tasiyanc_10539.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+aeze7JXKVfU2NmNk
+https://t.me/+aeze7JXKVfU2NmNk
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
+</div>
+
+## tasiyanc — post 10538
+
+<div align="center"><video src="files/post_10538_tasiyanc_10538.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10538_tasiyanc_10538.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴جدیدا بین بعضی از دخترا یه چیزی مد شده که زیر ناف‌شون جمله «Gate of heaven» رو که به معنی «دروازه بهشت هست» رو تتو میکنن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10537
+
+<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
+
+پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10536
 
@@ -236,48 +281,5 @@ G2🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10518
-
-<div align="center"><video src="files/post_10518_tasiyanc_10518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10518_tasiyanc_10518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-
-•آموزش اتصال ⚡️
-
-
-
-•اتصال امن برای همه 🇮🇷
-
- @TASIYANC
-</div>
-
-## tasiyanc — post 10516
-
-<div align="center"><img src="files/post_10516_tasiyanc_10516.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨زامیاد Z25 به عنوان جایگزین نیسان آبی رونمایی شد
-‌
-امروز با حضور وزیر صمت زامیاد Z25 در شرکت سایپا رونمایی شد.
-
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/18 03:41
+📅 آخرین بروزرسانی: 1405/07/18 09:22
 
 ---
+
+## ProxyMTProto — post 51828
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 443
+Secret: eece59031f1109f05387b7155534c7ac87646e732e76646c2e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir.grumpyoldmen.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: neomap.club
+Port: 443
+Secret: 3082e7f2e4ebb3abec0b8011fc493653
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51825
 
@@ -154,33 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: gram.blog
 Port: 853
 Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51808
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Qeshm.island.ir.igakwvwa.info
-Port: 7443
-Secret: 1603010200010001fc030386e24c3add
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.vdl.lat
-Port: 443
-Secret: eece59031f1109f05387b7155534c7ac87646e732e76646c2e6c6174
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

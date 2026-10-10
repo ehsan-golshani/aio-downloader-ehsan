@@ -1,8 +1,49 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/18 03:43
+📅 آخرین بروزرسانی: 1405/07/18 09:24
 
 ---
+
+## tasiyanc — post 10735
+
+<div align="center"><video src="files/post_10735_tasiyanc_10735.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10735_tasiyanc_10735.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نسیم مقصودلو؛ خواهر امیرتتلو :
+خبرهایی که در مورد آزادی امیر پخش شده فیکه و هیچ تغییر در پروندش ایجاد نشده. اون فیلم هم که گفتم شرط عفو شدنش پاک کردن تتوهاشه مال پارساله که اونم دروغ بود.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10734
+
+<div align="center"><video src="files/post_10734_tasiyanc_10734.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10734_tasiyanc_10734.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمام ریخته از این حد حرومزادگی
+
+🚨تو کارخانه شیرخشک سازی،کارگر با کارفرما دعواش میشه،برای انتقام مخفیانه ۲۰ لیتر اسید توی مخزن شیر میریزه و لحظه‌ی آخری آزمایشگاه کارخانه متوجه این قضیه میشه و از یک جنایت بزرگ جلوگیری میشه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10733
+
+<div align="center"><video src="files/post_10733_tasiyanc_10733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10733_tasiyanc_10733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 دیشب تو تهران یه پسره جلو چندتا دختر جو گیر میشه و میخوست به سبک فیلمای سریع و خشن از پنجره یه ماشین بپره تو یه ماشین دیگه که رید :
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10732
 
@@ -242,59 +283,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10714
-
-<div align="center"><video src="files/post_10714_tasiyanc_10714.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10714_tasiyanc_10714.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴زلاتان ابراهیموویچ که دیروز 45 ساله شد، برای هدیه تولد خودش یه فراری به خودش هدیه داد تا خودش خودشو خوشحال کنه
-از مدل «La Infernal Ferrari» فقط 3 تا توی کل دنیا وجود داره و قیمتش حدود 5.5 میلیون یوروئه، یعنی 1.65 تریلیون تومان
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10713
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-
-ادرس عضویت کانال:👇
-▪️https://t.me/+1zHLYMANkAEwODBi
-</div>
-
-## tasiyanc — post 10712
-
-<div align="center"><img src="files/post_10712_tasiyanc_10712.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👽توم میخوای توی سایت اول دنیا شرط بندی کنی💖
-🔹
-✅وان ایکس رتبه یک دنیاس ✔️
-
-⏬چرا انتخاب همه 1xbet هست:
-⬅️واریز اول دو برابر شارژ میشی
-⬅️هفتگی کلی هدیه میده
-⬅️تسویه حسابش لحظه ای و مثل سایتا ایرانی اذیت نمیکنه و مثل بانک امن
-⬅️پر اپشن ترین سایت دنیاس
-⬅️اسپانسر تیم های مختلف اروپاس
-⬅️حرفه ای ترین اپلیکیشن داره
-⬅️تبلیغاتشم قطعا دور زمینا فوتبال دیدین
-پس بی شک مناسب ترین و امن ترین انتخاب برای شرط بندی 1xbet هست✅
-
-😴ادرس سایت:
-https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=registration
-🎁کد هدیه ثبت نام:1xuu
-
-💖برای دانلود اپلیکیشن کلیک کنید➡️
-کانال اطلاع رسانی سایت:🅰13
-✉️https://t.me/+1zHLYMANkAEwODBi
 </div>
 

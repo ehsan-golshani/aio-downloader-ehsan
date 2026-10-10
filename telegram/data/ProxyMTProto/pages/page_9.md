@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/18 03:41
+📅 آخرین بروزرسانی: 1405/07/18 09:22
 
 ---
+
+## ProxyMTProto — post 51808
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Qeshm.island.ir.igakwvwa.info
+Port: 7443
+Secret: 1603010200010001fc030386e24c3add
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.vdl.lat
+Port: 443
+Secret: eece59031f1109f05387b7155534c7ac87646e732e76646c2e6c6174
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51805
 
@@ -154,33 +181,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51788
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media12.happtg.org
-Port: 443
-Secret: ee620777c073f53354f2dbb2cac6f2add9686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ccc.horizon555.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn10.cdnwave.org
-Port: 443
-Secret: ee42c25e3a5bebdab61abbcacf2e970c896d61676e69742e7275
 @ProxyMTProto
 </div>
 
