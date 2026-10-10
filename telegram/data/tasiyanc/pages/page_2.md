@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/18 09:24
+📅 آخرین بروزرسانی: 1405/07/18 15:12
 
 ---
+
+## tasiyanc — post 10761
+
+<div align="center"><video src="files/post_10761_tasiyanc_10761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10761_tasiyanc_10761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: خاکِ ایران به افغانستان واگذار شد!
+
+محسن زنگنه: قرار شده ۱۱۰ هکتار از چابهار رو بدیم به مردم افغانستان تا بتونن یه سرزمین متعلق به خودشون داشته باشن.
+البته قرار بود سهم بیشتری بهشون بدیم اما یه سری محدودیت هست و اینکار مشکله، ولی حتما پیگیری میکنیم که حلش کنیم!
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10760
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد وستهام یونایتد 💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅ 🅰r17 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
+</div>
+
+## tasiyanc — post 10759
+
+<div align="center"><img src="files/post_10759_tasiyanc_10759.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد وستهام یونایتد
+
+💠ضریب 1.49
+
+⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
+
+💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅
+🅰r17
+🆔@Aron_tip 🆔 @Aron_tip
+🆔@Aron_tip 🆔 @Aron_tip
+</div>
+
+## tasiyanc — post 10758
+
+<div align="center"><video src="files/post_10758_tasiyanc_10758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10758_tasiyanc_10758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖ویدئوی وایرال شده از وضعیت کاملا طبیعی یه دبیرستان دخترونه تو تهران؛
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖یه املاكی که تو رامسر ویلا اجاره میده تصمیم گرفته تولید محتوا کنه تا مشتری جذب کنه که سریعا وایرال شده :
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال #بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10755
 
@@ -193,103 +262,5 @@ https://t.me/+wLFODtl1yCEwYzFk
 😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
 ✅ 
 👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
-</div>
-
-## tasiyanc — post 10741
-
-<div align="center"><video src="files/post_10741_tasiyanc_10741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10741_tasiyanc_10741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-💵تبدیل 2میلیون به 10میلیون
-💵
-
-
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅
-
-
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری راحت👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 
-📊
-
-
-🔔کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
-💵🅰15
-
-🎯همین حالا عضو شو و شروع کن
-👇
-https://t.me/+tRN5PSCR5uQ4YmE0
-https://t.me/+tRN5PSCR5uQ4YmE0
-</div>
-
-## tasiyanc — post 10740
-
-<div align="center"><video src="files/post_10740_tasiyanc_10740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10740_tasiyanc_10740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 فوری،بی‌بی نتانیاهو توی مصاحبه جدیدش: حتی میتونم تاریخ دقیق سقوط جمهوری اسلامی رو بگم، ولی یه سری چیزا باید محرمانه باقی بمونه!
-
-وقتش که برسه، مردم ایران قیام میکنن و این خودِ مردم هستن که باعث سقوط جمهوری اسلامی میشن.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10739
-
-<div align="center"><img src="files/post_10739_tasiyanc_10739.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کمکِ 200‌ميليون دلاری جمهوری اسلامی به حزب‌الله؛
-
-طبق گفته دو منبع آگاه، حزب‌الله ماه پیش 200 میلیون دلار از جمهوری اسلامی واسه کمک به آوارگان گرفته.
-حزب‌الله قصد داره تو مرحله اول به هر خانواده‌ی واجد شرایط، 3 هزار دلار (تقریبا ۸۰۰ میلیون تومن) پرداخت کنه.
-اولویت هم با خانواده‌هاییه که اسرائیل، روستاشون رو تخریب کرده یا به‌دلیل حضور ارتش اسرائیل، امکان بازگشت به اونجا رو ندارن.
-حدود 50 هزار خانواده در انتظار دریافت این مبلغ هستن.
-واسطه‌هایی که این پول رو منتقل کردن، به دلیلِ ریسکِ بالا، 20 درصد کارمزد گرفتن که چهار برابر کارمزد معمول بوده.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10738
-
-<div align="center"><img src="files/post_10738_tasiyanc_10738.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه خبر خوب
-ـ نارین خانم دختر 15 ساله سنندجی که تا سر حد مرگ توسط پدر حرومیش و نامادریش شکنجه میشد زیر نظر پزشک تحت درمان قرار گرفته و بالاخره حال روحی و جسمیش بهبود یافته و لبخندشو می‌بینید
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+5cdraE3AwpgyOTlk https://t.me/+5cdraE3AwpgyOTlk 🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
-</div>
-
-## tasiyanc — post 10736
-
-<div align="center"><img src="files/post_10736_tasiyanc_10736.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+5cdraE3AwpgyOTlk
-https://t.me/+5cdraE3AwpgyOTlk
-
-🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
 </div>
 

@@ -1,8 +1,119 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/18 09:24
+📅 آخرین بروزرسانی: 1405/07/18 15:12
 
 ---
+
+## tasiyanc — post 10634
+
+<div align="center"><img src="files/post_10634_tasiyanc_10634.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا
+
+🇷🇸 صربستان 🆚 آلمان 🇩🇪
+⏰ ساعت ۲۲:۱۵
+
+🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام
+🔼 با بالاترین ضرایب پیش بینی
+
+💵واریز و برداشت ارزی و ریالی❗️
+🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️
+💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️
+🛡تا ۵ میلیون تومان بیمه شرط ❗️
+
+🎁 فرصت را از دست ندهید! همین حالا پیش‌بینی خود را ثبت کنید و از بونوس‌های ویژهٔ Betegram بهره‌مند شوید.
+
+🔵http://betegram.com/affiliates?btag=3_l7
+</div>
+
+## tasiyanc — post 10632
+
+<div align="center"><video src="files/post_10632_tasiyanc_10632.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10632_tasiyanc_10632.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده ، این خانم میخواسته بره مهمونی و گرون ترین لباس یه آنلاین شاپ رو به قیمت ۱۰ میلیون سفارش داده.
+و حالا چیزی که به دستش رسیده:
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 10630
+
+<div align="center"><img src="files/post_10630_tasiyanc_10630.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️⭕️⭕️⭕️⭕️⭕️⭕️
+
+اولیتت برای انتخاب سایت چیه ❓
+امنیت مالی مهم ترین چیزیه که یه سایت پیشبینی باید داشته باشه
+
+⚡️ ریتزوبت با انواع درگاه های شارژ و‌ در گاه مخصوص و اختصاصی کارت به کارت امنیت مالی رو به کاربراش عرضه میکنه
+
+⚡️ از همه‌مهم‌تر واریز و برداشت در ریتزوبت کاملا خودکار و اتوماتیک انجام میشه تمام پرداخت جوایز زیر 15 دقیقه س
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇
+🅰8
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 10629
+
+<div align="center"><video src="files/post_10629_tasiyanc_10629.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10629_tasiyanc_10629.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❤️‍🔥 حاوی تصاویر دلخراش از خلبانی که چاقو خورده
+
+اسرائیل یه فاجعه انسانی رو از سَر گذروند و نزدیک بود یک هواپیما با ۱۸۵ مسافر از مقصد دوبی به اسراییل سقوط و جان شهروندان اسراییل بگیرد؛
+
+🇮🇱 نتانیاهو درباره حادثه پرواز دبی:
+
+«یکی از خلبانان، خلبان دیگر را با چاقو مجروح کرد و ظاهراً تلاش داشت هواپیما را به همراه سرنشینانش سرنگون کند.
+
+هواپیما وارد حالت چرخش شد و شروع به سقوط کرد. یک مسافر اسرائیلی و یکی از اعضای خدمه وارد کابین خلبان شدند و خلبان مهاجم را خنثی کردند.
+
+یکی دیگر از اعضای خدمه پرواز نیز موفق شد هواپیما را به حالت پایدار بازگرداند و از وقوع یک فاجعه بزرگ جلوگیری شد.
+
+خلبان مهاجم هم‌اکنون توسط مقامات سعودی مورد بازجویی قرار دارد.
+
+به دستگاه‌های امنیتی دستور داده‌ام برای مقابله با تهدیدهای احتمالی دیگر آماده باشند.»
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10628
+
+<div align="center"><video src="files/post_10628_tasiyanc_10628.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10628_tasiyanc_10628.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨هشدار
+به هیچ‌وجه در مراسم های تولد، کیک را به صورت کسی نکوبید , اکثر کیک ها داخلشون خلال چوبی و ... وجود داره که ممکنه طرف کور شه یا آسیب جدی ببینه .
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10626
 
@@ -220,98 +331,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 🔴ویدیو از یه خانوم ایرانی توی وان ترکیه که حسابی توی پیج های ترکیه وایرال شده.
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10612
-
-<div align="center"><video src="files/post_10612_tasiyanc_10612.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10612_tasiyanc_10612.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کن طرف چند میلیارد هزینه کرده واسه عروسیش کلی کلاس رقص رفتن بعد یه توله سگ فامیل تو جایی که نباید بیاد ، میاد میرینه به فیلم :
-
-پیونشت : درس امروز توله سگ به عروسی دعوت نکردن رو مد کنیم
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10610
-
-<div align="center"><video src="files/post_10610_tasiyanc_10610.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10610_tasiyanc_10610.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ظهرت بخیر جوون ایرانی، زندگیمون بگا رفت و بیشتر ازین هم بگا خواهد رفت. هر دلار: 242 هزار تومن هر سکه: 242 میلیون تومن هر گرم طلا: 24 میلیون و 200 هزار تومن @Tasiyanc
-</div>
-
-## tasiyanc — post 10609
-
-<div align="center"><video src="files/post_10609_tasiyanc_10609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10609_tasiyanc_10609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سونامی استعفاء معلمان و فریاد از خفقان معیشتی و کمبود درامد
-
-شدیدترین موج استعفا در ایران طی ۷۲ ساعت اخیر رخ داده! طی چند روز اخیر، شدیدترین موج استعفای تاریخ ایران اتفاق افتاده و پرستاران، معلمان و کارمندان به علت حقوق بسیار پایین، از کارشون استعفا دادن! به قدری این موج استفعا شدید بوده که خیلی از بیمارستان‌ها خالی از کادر درمان شده!
-خیلی از کلاس‌های درس هم دیگه معلمی برای آموزش وجود نداره و صدها نفر استعفا دادن.
-‌
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10608
-
-<div align="center"><img src="files/post_10608_tasiyanc_10608.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽ اسپانیا 🇪🇸 - 🇭🇷 کرواسی
-🏆 لیگ ملت‌های اروپا‌ 🏆
-🕔 سه‌شنبه ساعت ۲۲:۱۵
-📍 ورزشگاه رامون سانچز پیس‌خوان
-🎲 با بیش از ۶۵۰ نوع آپشن پیش‌بینی
-👆 ضرایب شگفت‌انگیز
-
-📊 نگاهی به آمار دو تیم:
-✅ اسپانیا: ۸ برد و ۲ تساوی در ۱۰ بازی اخیر.
-✅ کرواسی: ۶ برد و ۴ شکست در ۱۰ بازی اخیر.
-📈 میانگین گل در ۱۰ بازی اخیر اسپانیا: ۲.۳ گل در هر بازی.
-📈 میانگین گل در ۱۰ بازی اخیر کرواسی: ۳.۳ گل در هر بازی.
-
-🧠 بازی با برنامه، لذت را ماندگار می‌کند.
-
-
-👍 ورود به سایت با فیلترشکن
-
-کلیک کنید BetForward.com
-کلیک کنید BetForward.com
-
-🟢 دریافت سرورفیلترشکن رایگان
-🅰r7
-💻 @BetForward
-</div>
-
-## tasiyanc — post 10607
-
-<div align="center"><img src="files/post_10607_tasiyanc_10607.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨وحشتناک‌ترین خبر چند روز اخیر آمریکا مربوط به خوابگاه دانشگاه کرنله.
-
-
-چند پسر یک دختر دانشجو رو با کتامین مسموم می‌کنن و وقتی نیمه‌هوشیار بوده، بهش تجا*وز گروهی می‌کنن.
-
-بعدش توی گروه خوابگاه درباره این اتفاق پست می‌ذارن و به بقیه پسرها می‌گن توی فلان اتاق ک* رایگان هست و هرکی می‌خواد بیاد.
-مدیرای دانشگاه به جز دو نفری که اخراج میکنن به بقیه‌اشون می‌گن برای تنبیه مقاله بنویسن که چقدر کارشون زشت بوده!! و همین باعث اعتراض آمریکاییا شده.
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨ برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥 هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀 یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز…
 </div>
 

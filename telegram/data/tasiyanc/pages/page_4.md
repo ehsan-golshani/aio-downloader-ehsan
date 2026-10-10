@@ -1,8 +1,96 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/18 09:24
+📅 آخرین بروزرسانی: 1405/07/18 15:12
 
 ---
+
+## tasiyanc — post 10720
+
+<div align="center"><video src="files/post_10720_tasiyanc_10720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10720_tasiyanc_10720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرنگار: خبر داری دلار شده ۲۷٠ تومن؟
+
+یه خانم تو تجمعات: اره ولی ما بخاطر وطنمون اومدیم، اگه ما نبودیم دلار حتی گرون ترم میشد
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10719
+
+<div align="center"><video src="files/post_10719_tasiyanc_10719.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10719_tasiyanc_10719.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اگر گوشی‌تون مدل بالا نیست ولی دوست داری عکس‌های باکیفیت بگیری، این ویدئو رو حتما ببین
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10718
+
+<div align="center"><video src="files/post_10718_tasiyanc_10718.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10718_tasiyanc_10718.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحبتای «وایرال شده» این دختر خانم راجب چیزایی که این روزا خیلی از پسرا درگیرشن ؛
+
+قبول کنید حرف حق رو زد....
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10717
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10716
+
+<div align="center"><video src="files/post_10716_tasiyanc_10716.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10716_tasiyanc_10716.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r14
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10715
+
+<div align="center"><img src="files/post_10715_tasiyanc_10715.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩پاییز امسال چه پارچه‌هایی ترندن؟
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10714
 
@@ -243,103 +331,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10696
-
-<div align="center"><video src="files/post_10696_tasiyanc_10696.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10696_tasiyanc_10696.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز October 5، روز جهانی فَحشاس.
-
-امروز باید تعارف بزارید کنار و غرق شهوت ، خوشی و هوس باشید
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10695
-
-<div align="center"><video src="files/post_10695_tasiyanc_10695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10695_tasiyanc_10695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خاطره یه دختر تن فروش: یه دفعه یه سید بهم گفت بیا رابطه داشته باشیم، فقط تو زود بیا چون ممکنه خانمم بیاد خونه.
-رفتیم تو اتاق و شروع کرد صیغه خوندن، هر چی قرآن، آیت الکرسی، تابلو و کتاب دعا بود برعکس کرد و گفت زشته، گناه داره.
-یه دفعه وسط برنامه زنش اومد، گفت سید زودباش ...
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10693
-
-<div align="center"><img src="files/post_10693_tasiyanc_10693.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-
-⬅️ برداشت‌های آنی و بدون معطلی
-
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r13
-
-✅ https://DerbyBet.com
-
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10692
-
-<div align="center"><video src="files/post_10692_tasiyanc_10692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10692_tasiyanc_10692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 بعد از آزاد شدن خرید و فروش گوشت خر و اسب و صادر شدن فتوای حلال بودن خوردنشون برخی بلاگرای حرومزاده دارن خوردن گوشت اسب و خرو تبلیغ و عادی سازی میکنن :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-
-ادرس عضویت کانال:👇
-▪️https://t.me/+1zHLYMANkAEwODBi
 </div>
 
