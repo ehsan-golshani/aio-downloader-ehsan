@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/19 03:27
+📅 آخرین بروزرسانی: 1405/07/19 09:10
 
 ---
+
+## tasiyanc — post 10513
+
+<div align="center"><img src="files/post_10513_tasiyanc_10513.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گندم کوچولو
+
+لقب کیوت‌ترین دانش‌آموز ایرانو گرفته
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️مسابقات ورزشی را با بری بت پیشبینی کنید⚽️
+</div>
 
 ## tasiyanc — post 10511
 
@@ -313,35 +332,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 R1
 🔗 ثبت نام و ورود به بخش پیشبینی💵
 https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 31🅰 🛒 ورود به سایت 👇 ✅ https://oqleixugysh.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10485
-
-<div align="center"><img src="files/post_10485_tasiyanc_10485.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-31🅰
-🛒 ورود به سایت 👇
-✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

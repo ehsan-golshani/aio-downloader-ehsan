@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/19 03:27
+📅 آخرین بروزرسانی: 1405/07/19 09:10
 
 ---
+
+## tasiyanc — post 10731
+
+<div align="center"><img src="files/post_10731_tasiyanc_10731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
+🅰r14
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+🌐@Aron_tip @Aron_tip
+🌐@Aron_tip @Aron_tip
+</div>
+
+## tasiyanc — post 10730
+
+<div align="center"><video src="files/post_10730_tasiyanc_10730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10730_tasiyanc_10730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 7 October، روزِ «تو برام مهمی» هست
+
+
++این روز رو به کسی که براش اهمیت میدی بفرست ❤️‍🔥
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10729
 
@@ -283,36 +310,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 •تازه طاعون «متوقف» نشد؛ قرنطینه، محدودکردن رفت‌وآمد و تغییر شرایط زندگی و جمعیت جوندگان به کنترلش کمک کرد.
 •قدیم‌ها فکر می‌کردن بیماری طاعون از هوای بد و بدبو منتقل می‌شه بخاطر همین یسری ماسک با منقارهای بلند ساخته بودن و داخل اون قسمتِ دراز، گیاهان معطر، ادویه و مواد خوشبو می‌ذاشتن تا به خیال خودشون هوای آلوده قبل از رسیدن به بینی، تصفیه بشه
 امروزه آنتی بیوتیک‌ها میتونن تا حدودی طاعون رو درمان کنن، ولی حتما باید زود تشخیص داده بشه...
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10708
-
-<div align="center"><video src="files/post_10708_tasiyanc_10708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10708_tasiyanc_10708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ادعای عجیب یکی از نیروهای آتش‌نشانی در مورد ساخت پلاک مشخصات برای دانش آموزان:
-
-امروز رفتم یه دبیرستان دخترانه برای کنترل مسائل امنیتی بین حرفامون با مسئولین مدرسه متوجه شدم که دارن برای دانش آموزان پلاک مشخصات فردی درست میکنن مثل همونایی که زمان جنگ استفاده میشد؛
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10707
-
-<div align="center"><img src="files/post_10707_tasiyanc_10707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 آبتین شریفی، جوانی از ممسنی و رتبه 1400 کنکور تجربی، تنها یک هفته مانده به اعلام نتایج، بر اثر ایست قلبی از دنیا رفت.
-
-آبتین برای رسیدن به رویای پزشکی تلاش کرده بود، اما مرگ فرصت دیدن نتیجه زحماتش را ازش گرفت
-
-روحش شاد 🖤
-
 
 
 ⚡ @Tasiyanc

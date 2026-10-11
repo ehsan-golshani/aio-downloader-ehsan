@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 185
 
-📅 آخرین بروزرسانی: 1405/07/19 03:27
+📅 آخرین بروزرسانی: 1405/07/19 09:10
 
 ---
+
+## tasiyanc — post 5493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع کانفیگای ک گذاشتیم پینگ بگیرید 😁✅
+</div>
+
+## tasiyanc — post 5492
+
+<div align="center"><img src="files/post_5492_tasiyanc_5492.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wifi 🚀.npvt
+</div>
 
 ## tasiyanc — post 5491
 

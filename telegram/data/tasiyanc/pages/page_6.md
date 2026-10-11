@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/19 03:27
+📅 آخرین بروزرسانی: 1405/07/19 09:10
 
 ---
+
+## tasiyanc — post 10686
+
+<div align="center"><video src="files/post_10686_tasiyanc_10686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10686_tasiyanc_10686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨مراد ویسی (تحلیل‌گر):
+جنگی که توی راهه، آخرین جنگ ترامپ با جمهوری اسلامی خواهد بود!
+اما به قدری این جنگ شدید و گسترده‌اس، که جنگ ۱۲ و ۴۰ روزه، پیشش یه شوخیه!
+شدت بمبارون‌ها خیلی شدیدتر خواهد بود، کشورای بیشتری درگیر میشن و این نبرد آخره.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10685
+
+<div align="center"><video src="files/post_10685_tasiyanc_10685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10685_tasiyanc_10685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده تولد هالویینی یکی از کافه های تهران
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10684
 
@@ -259,43 +288,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10665
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
-</div>
-
-## tasiyanc — post 10664
-
-<div align="center"><img src="files/post_10664_tasiyanc_10664.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂 شنبه را با یک انتخاب فوتبالی شروع کن!
-امروز برنامه لیگ ملت‌های اروپا فقط یک ردیف بازی معمولی نیست؛
-
-از نبردهای عصرگاهی تا تقابل‌های حساس شب، هر سوت پایان می‌تواند جدول را زیرورو کند. ⚽️🔥
-
-اگر قرار باشد فقط یک بازی را برای تماشا انتخاب کنی، کدام دیدار را برمی‌داری؟ 👀
-
-🕹 حدس نتیجه‌ات را قبل از شروع مسابقه در آمیتیس بت ثبت کن و ببینیم کدام پیش‌بینی به واقعیت نزدیک‌تر می‌شود.
-
-🥾 بونوس‌های فعال:
-0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
-0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
-0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
-
-👾 دانلود مستقیم اپلیکیشن اندروید
-
-🌐 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام
-
-📷 مشاهده پروفایل اینستاگرام
-
-🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰10
 </div>
 

@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/19 03:27
+📅 آخرین بروزرسانی: 1405/07/19 09:10
 
 ---
+
+## tasiyanc — post 10794
+
+<div align="center"><video src="files/post_10794_tasiyanc_10794.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10794_tasiyanc_10794.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز October 11، روز جهانی دختره 🔵
+
+این روزو به دختر خوش قلب و ماهی که برات مهمه تبریک بگو .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از حدیث ستاری، دندانپزشک و مدل ایرانی در مسابقات میس گلوبال، در بخش لباس‌ملی با طرحی به نام «پرشیا» روی صحنه درخشید؛ لباسی الهام‌گرفته از شکوه ایران باستان که جلوه‌ای از تاریخ و هویت ایران را به نمایش گذاشت.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10791
 
@@ -313,35 +337,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10771
-
-<div align="center"><img src="files/post_10771_tasiyanc_10771.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰17
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10770
-
-<div align="center"><video src="files/post_10770_tasiyanc_10770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10770_tasiyanc_10770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 پروتز ممه رنگی هم اومد و به ایران هم رسیده گویا
-
-فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
-⚡ @Tasiyanc
 </div>
 
