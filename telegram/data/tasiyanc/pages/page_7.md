@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/19 09:10
+📅 آخرین بروزرسانی: 1405/07/19 15:15
 
 ---
+
+## tasiyanc — post 10669
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10668
+
+<div align="center"><img src="files/post_10668_tasiyanc_10668.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r11
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10667
+
+<div align="center"><video src="files/post_10667_tasiyanc_10667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10667_tasiyanc_10667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ممنوعیت حجاب در جمهوری آذربایجان؛ کادر اجرایی مدارس از ورود دختران محجبه به کلاس های درسی جلوگیری می‌کند و این باعث گریه کردن دانش‌آموزان محجبه پشت درهای بسته شده است
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10665
 
@@ -236,57 +282,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
-</div>
-
-## tasiyanc — post 10647
-
-<div align="center"><img src="files/post_10647_tasiyanc_10647.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته!
-
-این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨
-
-🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن!
-
-🎱 بازی وینگو چطوریه؟
-توی بازی وینگو باید ۶ عدد بین ۱ تا ۴۷ و ۱ عدد بین ۱ تا ۱۰ انتخاب کنی.
-قرعه کشی انجام میشه و هرچی اعداد بیشتری رو درست حدس بزنی، جایزه‌ی بزرگ‌تری می‌بری! 🏆
-
-📆 جمعه ۱۰ مهر
-⏰ ساعت ۱۸:۰۰ به وقت تهران
-
-🎯 جایزه‌ی ویژه: ۱۰۰۰ دلار! 💰
-
-همین حالا ثبت‌نام کن، و بدون هیچ هزینه ای شانستو امتحان کن !
-
-🌐 wingobingo.tv
-</div>
-
-## tasiyanc — post 10646
-
-<div align="center"><video src="files/post_10646_tasiyanc_10646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10646_tasiyanc_10646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10645
-
-<div align="center"><video src="files/post_10645_tasiyanc_10645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10645_tasiyanc_10645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
-
-جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
-
-⚡ @Tasiyanc
 </div>
 

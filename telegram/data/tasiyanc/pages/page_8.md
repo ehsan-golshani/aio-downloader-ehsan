@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/19 09:10
+📅 آخرین بروزرسانی: 1405/07/19 15:15
 
 ---
+
+## tasiyanc — post 10647
+
+<div align="center"><img src="files/post_10647_tasiyanc_10647.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته!
+
+این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨
+
+🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن!
+
+🎱 بازی وینگو چطوریه؟
+توی بازی وینگو باید ۶ عدد بین ۱ تا ۴۷ و ۱ عدد بین ۱ تا ۱۰ انتخاب کنی.
+قرعه کشی انجام میشه و هرچی اعداد بیشتری رو درست حدس بزنی، جایزه‌ی بزرگ‌تری می‌بری! 🏆
+
+📆 جمعه ۱۰ مهر
+⏰ ساعت ۱۸:۰۰ به وقت تهران
+
+🎯 جایزه‌ی ویژه: ۱۰۰۰ دلار! 💰
+
+همین حالا ثبت‌نام کن، و بدون هیچ هزینه ای شانستو امتحان کن !
+
+🌐 wingobingo.tv
+</div>
+
+## tasiyanc — post 10646
+
+<div align="center"><video src="files/post_10646_tasiyanc_10646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10646_tasiyanc_10646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10645
+
+<div align="center"><video src="files/post_10645_tasiyanc_10645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10645_tasiyanc_10645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
+
+جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10644
 
@@ -270,51 +322,6 @@ https://AmitisBet.com/
 
 
 🔴هموطن عزیزم با تور قسطی رفتی وان نوش جونت ولی آبرو ریزی نکن دیگه بقدر کافی همه جا گند زدین ظرفیت نداری کم بخور این فیلماتون رو پیجهای خارجی گذاشتن دارن مسخره می‌کنن،همه دست و پاها تتو قیافه ها داغون .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
-</div>
-
-## tasiyanc — post 10624
-
-<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
-
-https://t.me/+E4HUFuYfyUw1MjRk
-https://t.me/+E4HUFuYfyUw1MjRk
-
-🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
-</div>
-
-## tasiyanc — post 10623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعداد 139 سرور پر سرعت V2Ray 🔐🔐🔐
-
-⚡️ پروتکل : 𝐕𝐥𝐞𝐬𝐬 | 𝐕𝐦𝐞𝐬𝐬 | 𝐒𝐒 | 𝐓𝐫𝐨𝐣𝐚𝐧
-
-متصل با تمام اپراتورها 🛜🛜🛜🛜🛜🛜
-
-اختصاصی، کل سرور ها تست شده
-
-فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
-
-دانلود V2Box نسخه اندروید🔐
-دانلود V2Box نسخه iOS 🔐
-
-دانلود Npv Tunnel نسخه اندروید🔐
-دانلود Npv Tunnel نسخه iOS🔐
-
 
 ⚡ @Tasiyanc
 </div>
