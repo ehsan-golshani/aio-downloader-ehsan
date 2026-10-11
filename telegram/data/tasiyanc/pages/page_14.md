@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/19 20:29
+📅 آخرین بروزرسانی: 1405/07/20 00:34
 
 ---
+
+## tasiyanc — post 10526
+
+<div align="center"><video src="files/post_10526_tasiyanc_10526.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10526_tasiyanc_10526.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بنیامین نتانیاهو در مجمع سازمان ملل : دشمنان پس‌از حمله ۷ اکتبر خیال کردن ما فرومیپاشیم ولی ما بپا خواستیم و مثل شیر جنگیدیم و نابودشون کردیم!
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10525
+
+<div align="center"><video src="files/post_10525_tasiyanc_10525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10525_tasiyanc_10525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10524
+
+<div align="center"><video src="files/post_10524_tasiyanc_10524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10524_tasiyanc_10524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+می‌دونستید همه این شاهکارهارو ایشون خونده؟
+
+#N @Tasiyanc
+</div>
+
+## tasiyanc — post 10523
+
+<div align="center"><img src="files/post_10523_tasiyanc_10523.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کشاورز چینی به نام ژانگ که در مزرعه‌اش مشغول به کار بود مار نیشش میزنه ، او مار رو با افعلی شاخدار اشتباه میگیره و بخاطر ترس از مرگ سریع انگشتش قطع میکنه ، بعد اینکه بیمارستان می‌ره دکترا میگن مشتی مادر سمی نبوده
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10522
 
@@ -224,118 +270,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10501
-
-<div align="center"><video src="files/post_10501_tasiyanc_10501.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10501_tasiyanc_10501.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 یک سوم سالن وقتی که پزشکیان داشت سخنرانی می‌کرد خالی بود
-
-کشور های که حین سخنرانی پرزیدنت پزشکیان سالن مجمع سازمان ملل را ترک کردند :
-
-1. ایالات متحده آمریکا
-2. بریتانیا
-3. آلمان
-4. فرانسه
-5. اسرائیل
-6. سوریه
-7. لبنان
-8. عربستان
-9. مصر
-10. امارات
-11. الجزایر
-12. لهستان
-13. سوئد
-14. دانمارک
-15. کانادا
-16. ژاپن
-17. جمهوری آذربایجان
-18. مالزی
-19. نیوزیلند
-20. استرالیا
-21. جمهوری خلق کنگو
-22. اکوادور
-23. قبرس
-24. ایسلند
-25. مکزیک
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10500
-
-<div align="center"><video src="files/post_10500_tasiyanc_10500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10500_tasiyanc_10500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 لمس کون دوس دخترتون میتونه باعث افزایش سلامت و طول عمر و شادی شما و طرف مقابل بشه!
-
-به صورت علمی ثابت شده که لمس دوس دختر به طور کلی عمر رو طولانی نمی کنه، اما اگه باسنش رو لمس کنین، کمک بزرگی به افزایش عمر و سلامتی و شادی شما و دختره می‌کنه!
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10499
-
-<div align="center"><video src="files/post_10499_tasiyanc_10499.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10499_tasiyanc_10499.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت 
-✔️دو شرط رایگان در روز
-⭐️ 
-🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
-⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 
-💱
-0️⃣
-1️⃣
-🔣شارژ بیشتر برای شارژ با روش رمزارز 
-⭐مجهز…
-</div>
-
-## tasiyanc — post 10498
-
-<div align="center"><video src="files/post_10498_tasiyanc_10498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10498_tasiyanc_10498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت
-
-✔️دو شرط رایگان در روز
-⭐️
-
-🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
-⭐️
-
-🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
-🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
-
-💱
-0️⃣
-1️⃣
-🔣شارژ بیشتر برای شارژ با روش رمزارز
-
-⭐مجهز به سیستم پی اس ووچر
-👑
-
-
-😀ورود به سایت:
-😀g1🅰
-
-📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-
-❤️کانال تلگرام 
-😀
-
-📎 https://t.me/BerryBetOfficial
 </div>
 

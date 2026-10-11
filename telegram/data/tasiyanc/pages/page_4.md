@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/19 20:29
+📅 آخرین بروزرسانی: 1405/07/20 00:34
 
 ---
+
+## tasiyanc — post 10743
+
+<div align="center"><video src="files/post_10743_tasiyanc_10743.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10743_tasiyanc_10743.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو های وایرال شده نجمه جودکی، مجری سابق صداوسیما که راهشو از این سازمان جدا کرده و بلاگر شده عقد آریایی برخی زوج‌هارو میخونه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10742
+
+<div align="center"><video src="files/post_10742_tasiyanc_10742.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10742_tasiyanc_10742.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+💵تبدیل 2میلیون به 10میلیون
+💵 
+😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
+✅ 
+👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
+</div>
+
+## tasiyanc — post 10741
+
+<div align="center"><video src="files/post_10741_tasiyanc_10741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10741_tasiyanc_10741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
+
+💵تبدیل 2میلیون به 10میلیون
+💵
+
+
+😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
+✅
+
+
+👑توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری راحت👌
+
+کازینو شبانه راهی برای چند برابر کردن سرمایت 
+📊
+
+
+🔔کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
+💵🅰15
+
+🎯همین حالا عضو شو و شروع کن
+👇
+https://t.me/+tRN5PSCR5uQ4YmE0
+https://t.me/+tRN5PSCR5uQ4YmE0
+</div>
+
+## tasiyanc — post 10740
+
+<div align="center"><video src="files/post_10740_tasiyanc_10740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10740_tasiyanc_10740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨 فوری،بی‌بی نتانیاهو توی مصاحبه جدیدش: حتی میتونم تاریخ دقیق سقوط جمهوری اسلامی رو بگم، ولی یه سری چیزا باید محرمانه باقی بمونه!
+
+وقتش که برسه، مردم ایران قیام میکنن و این خودِ مردم هستن که باعث سقوط جمهوری اسلامی میشن.
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10739
 
@@ -223,55 +295,6 @@ https://t.me/+KpqdIyXNfcMzOWFk
 🔴بافت عجیب کشور چین
 
 روی یه شهرک یه شهرک دیگه هم ساخته شده. شبیه فیلم inception شده.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10722
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مار شکار کوچیک نمی‌زنه؛😨 فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵 https://t.me/+EObzAJI5HS5jOTk8 https://t.me/+EObzAJI5HS5jOTk8 💯حال کردم به همتون پول دراوردن رو یاد بدم من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
-</div>
-
-## tasiyanc — post 10721
-
-<div align="center"><img src="files/post_10721_tasiyanc_10721.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مار شکار کوچیک نمی‌زنه؛😨
-فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵
-
-
-https://t.me/+EObzAJI5HS5jOTk8
-https://t.me/+EObzAJI5HS5jOTk8
-
-💯حال کردم به همتون پول دراوردن رو یاد بدم
-من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
-</div>
-
-## tasiyanc — post 10720
-
-<div align="center"><video src="files/post_10720_tasiyanc_10720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10720_tasiyanc_10720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خبرنگار: خبر داری دلار شده ۲۷٠ تومن؟
-
-یه خانم تو تجمعات: اره ولی ما بخاطر وطنمون اومدیم، اگه ما نبودیم دلار حتی گرون ترم میشد
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10719
-
-<div align="center"><video src="files/post_10719_tasiyanc_10719.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10719_tasiyanc_10719.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴اگر گوشی‌تون مدل بالا نیست ولی دوست داری عکس‌های باکیفیت بگیری، این ویدئو رو حتما ببین
 
 
 ⚡ @Tasiyanc

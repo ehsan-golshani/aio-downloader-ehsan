@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/19 20:29
+📅 آخرین بروزرسانی: 1405/07/20 00:34
 
 ---
+
+## tasiyanc — post 10700
+
+<div align="center"><video src="files/post_10700_tasiyanc_10700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10700_tasiyanc_10700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیشب یه سوسک رفته بود خونه یه خانم، اونم این شکلی رفته بود بالا صندلی و به گربه‌اش التماس میکرد که سوسک رو بکشه 😅
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10697
+
+<div align="center"><video src="files/post_10697_tasiyanc_10697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10697_tasiyanc_10697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10696
+
+<div align="center"><video src="files/post_10696_tasiyanc_10696.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10696_tasiyanc_10696.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 امروز October 5، روز جهانی فَحشاس.
+
+امروز باید تعارف بزارید کنار و غرق شهوت ، خوشی و هوس باشید
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10695
+
+<div align="center"><video src="files/post_10695_tasiyanc_10695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10695_tasiyanc_10695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خاطره یه دختر تن فروش: یه دفعه یه سید بهم گفت بیا رابطه داشته باشیم، فقط تو زود بیا چون ممکنه خانمم بیاد خونه.
+رفتیم تو اتاق و شروع کرد صیغه خوندن، هر چی قرآن، آیت الکرسی، تابلو و کتاب دعا بود برعکس کرد و گفت زشته، گناه داره.
+یه دفعه وسط برنامه زنش اومد، گفت سید زودباش ...
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10694
 
@@ -269,53 +324,5 @@ https://AmitisBet.com/
 📷 مشاهده پروفایل اینستاگرام
 
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰11
-</div>
-
-## tasiyanc — post 10678
-
-<div align="center"><video src="files/post_10678_tasiyanc_10678.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10678_tasiyanc_10678.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت کشیشیان که توی عرصه تولید گوشت داره فعالیت میکنه با این تبلیغش تونسته کلی ویو بگیره و فروش محصولاتش تقریبا ۳ برابر شده:
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10677
-
-<div align="center"><video src="files/post_10677_tasiyanc_10677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10677_tasiyanc_10677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به ساعت صفر جنگ زمینی داریم نزدیک میشیم !!!
-
-ارتش آمریکا رسماً گفته نیروهای خنثی‌سازی هسته‌ای همراه رنجرهای هنگ 75، یه تمرین برای تصرف و پاک‌سازی یه تأسیسات هسته‌ای زیرزمینی انجام دادن؛
-
-این نیروها به‌طور مستمر برای سناریوهای عملیات ویژه، نبرد شهری، پاکسازی ساختمان‌ها و تصرف اهداف حساس آموزش می‌بینند.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10676
-
-<div align="center"><video src="files/post_10676_tasiyanc_10676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10676_tasiyanc_10676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پسره برای نامزدش یه شب رویایی رمانتیک ساخته واسش گل خریده کنارش یه ایفون 18 پرومکس ۲۵۶ گیگ هم بهش هدیه داده، دختره همون لحظه میگه ۲۵۶ گیگ چیه اخه ۱ ترابایت میخواستم.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10675
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏳ فرصت محدوده؛ زود جوین شید، می‌خوام بردارمش 👇🔥
-
-https://t.me/+ha2KmA-UHioxNDI0
-https://t.me/+ha2KmA-UHioxNDI0
 </div>
 
