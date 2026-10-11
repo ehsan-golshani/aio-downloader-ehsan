@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/19 15:15
+📅 آخرین بروزرسانی: 1405/07/19 20:29
 
 ---
+
+## tasiyanc — post 10674
+
+<div align="center"><img src="files/post_10674_tasiyanc_10674.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+ha2KmA-UHioxNDI0
+https://t.me/+ha2KmA-UHioxNDI0
+
+🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان💵🅰g11
+</div>
+
+## tasiyanc — post 10673
+
+<div align="center"><video src="files/post_10673_tasiyanc_10673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10673_tasiyanc_10673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواننده عربستانی 🇸🇦 به نام «امیر محمد» بردن یکی از برنامه های معروف ترکیه که بولنت ارسوی سوپر استار ترکیه معروف به «دیوا» نزدیک بود سکته کنه از صدای رو مخ این حرومزاده بچه سال
+هر دلقکیو فالو کنی معروف کنی ابروت تو سطح جهانی می‌ره تسلیت به جامعه موسیقی ترکیه و عربستان
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10672
+
+<div align="center"><video src="files/post_10672_tasiyanc_10672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10672_tasiyanc_10672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨یادی کنیم از ویدیو وایرال شده کنسرت بانو سابرینا کارپنتر که وسطای اجرا چشمش به یه ایرانی میخوره و دیالوگ جالبی بینشون شکل میگیره 😂
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10671
+
+<div align="center"><video src="files/post_10671_tasiyanc_10671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10671_tasiyanc_10671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه اینجا مدرسه اس , پس جایی که ما درس خوندیم چیه ؟
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10670
+
+<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 3 October روز جهانی دوست پسره
+
+بفرست واسش 🌹
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10669
 
@@ -216,71 +285,5 @@ https://t.me/+VGH5xHispzJlMjM8
 
 
 جهت دریافت کانفیگ ها کلیک کنید 👉
-</div>
-
-## tasiyanc — post 10652
-
-<div align="center"><img src="files/post_10652_tasiyanc_10652.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قتل وحشتناکی که کل اهواز رو در شوک فرو برد!
-
-چند روز پیش یه دختر ۱۵ ساله به اسم سارینا همراه دوس پسرش و رفیقاش، توی «پارک کوثر» اهواز داشته میچرخیده.
-اونجا یه پسرو به اسم علی می بینه و بهش میگه: کونی، سیگار بده بم
-علی میگه کونی خودتی، ولی من دست رو دختر بلند نمیکنم، گمشو ببینم.
-خلاصه، سارینا میگه جرعتشو نداری و دعوا میشه، اونجا سارینا با چاقو علی رو به قتل میرسونه و بعدشم با لگد میزنه به جنازه‌اش!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10650
-
-<div align="center"><img src="files/post_10650_tasiyanc_10650.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r10
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10649
-
-<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
-یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
 </div>
 
