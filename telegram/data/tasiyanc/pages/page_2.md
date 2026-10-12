@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/20 00:34
+📅 آخرین بروزرسانی: 1405/07/20 10:06
 
 ---
+
+## tasiyanc — post 10787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18 https://t.me/+uA90XBGKpBRmM2Q0 https://t.me/+uA90XBGKpBRmM2Q0 🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
+
+## tasiyanc — post 10786
+
+<div align="center"><img src="files/post_10786_tasiyanc_10786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18
+
+https://t.me/+uA90XBGKpBRmM2Q0
+https://t.me/+uA90XBGKpBRmM2Q0
+
+🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
 
 ## tasiyanc — post 10785
 
@@ -339,32 +365,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10764
-
-<div align="center"><video src="files/post_10764_tasiyanc_10764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10764_tasiyanc_10764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+ramzL0orpc5hMTBk
-https://t.me/+ramzL0orpc5hMTBk
-🅰g17
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
 </div>
 

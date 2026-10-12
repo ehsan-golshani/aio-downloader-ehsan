@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/20 00:34
+📅 آخرین بروزرسانی: 1405/07/20 10:06
 
 ---
+
+## tasiyanc — post 10460
+
+<div align="center"><video src="files/post_10460_tasiyanc_10460.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10460_tasiyanc_10460.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زیبایی خیره‌کننده مزارع چای روستای سطلسر که در قلب لاهیجان عروس شهرهای شمالی قرار گرفته.
+
+
+
+💋‎ @Tasiyanc
+</div>
+
+## tasiyanc — post 10459
+
+<div align="center"><video src="files/post_10459_tasiyanc_10459.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10459_tasiyanc_10459.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴مراسم انتخاب همسر توسط قبیلهٔ وودابه در سواحل آفریقا ؛ که مراسم «گرول» نام دارد و یکی از جالب‌ترین آیین‌های خواستگاری در جهان است.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10458
 
@@ -244,37 +271,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 امروز چهارمین سالگرد جاویدنام نیکا شاکرمیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10434
-
-<div align="center"><video src="files/post_10434_tasiyanc_10434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10434_tasiyanc_10434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴معرفی فیلم وایرال شده جدید : مادر اژدها
-
-مادری در یک اتفاق نادر و عجیب، بچه‌ای از جنس اژدها به دنیا می‌آورد. با انتشار این خبر، اهالی روستا که از وجود این موجود نگران شده و امنیت خود را در خطر می‌بینند، مادر را از روستا بیرون می‌کنند و تصمیم می‌گیرند بچه را نابود کنند. اما مادر برای محافظت از فرزندش در برابر خشم و بی‌رحمی مردم، دست به هر کاری می‌زند و نبردی پرچالش را آغاز می‌کند...
-
-دانلود فیلم بدون سانسور 👉
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10433
-
-<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
-آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
 
 
 💋 @Tasiyanc

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/20 00:34
+📅 آخرین بروزرسانی: 1405/07/20 10:06
 
 ---
+
+## tasiyanc — post 10529
+
+<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴نتانیاهو:
+می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
+قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
+می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
+این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
+این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10527
+
+<div align="center"><video src="files/post_10527_tasiyanc_10527.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10527_tasiyanc_10527.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هئیت جمهوری اسلامی حین سخنرانی نتانیاهو عکس حاج قاسم رو گذاشت و سالن و‌ترک کرد
+
+#N @Tasiyanc
+</div>
 
 ## tasiyanc — post 10526
 
@@ -242,33 +270,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10507
-
-<div align="center"><img src="files/post_10507_tasiyanc_10507.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 2 آپدیت خفن جدید تلگرام
-
-تو آپدیت جدید تلگرام اینجوریه که مثلا وقتی وارد پروفایل یک شخص میشید اون قسمت بالا شمارش میزنه بطور میانگین، چقدر سریع به پیام‌ها پاسخ میده مثلا ۵ دقیقه، ۲ ساعت یا ۳ روز!
-
-تو اپدیت بعدی تلگرام اگر اکانتی دیلیت بشه
-این پروفایل براش تنظیم میشه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10503
-
-<div align="center"><img src="files/post_10503_tasiyanc_10503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاید باورتون نشه ولی تمام این عکسا مربوط به ایرانه و بچه پولدارا از اینکه تابستون رو چطوری گذروندن، منتشر کردن!
-
-
-
-💋 @Tasiyanc
 </div>
 

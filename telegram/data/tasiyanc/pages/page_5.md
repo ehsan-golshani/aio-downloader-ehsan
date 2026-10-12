@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/20 00:34
+📅 آخرین بروزرسانی: 1405/07/20 10:06
 
 ---
+
+## tasiyanc — post 10724
+
+<div align="center"><video src="files/post_10724_tasiyanc_10724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10724_tasiyanc_10724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سوزناکتر از این ویدیو مگه هست؟؛
+
+مادر جاویدنام نازنین زهرا صالحی، دختر ۱۳ ساله‌ای که در اعتراضات دی ماه کشته شد،
+رفته پرونده بچه‌اش رو گرفته، همه نمرات دخترش رو ۷-۸ دادن تا مادرش زجر بکشه !
+مامانش اشک میریزه و میگه دخترم شاگرد ممتاز بود، حداقل براش غیبت میزدین...
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10723
+
+<div align="center"><video src="files/post_10723_tasiyanc_10723.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10723_tasiyanc_10723.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بافت عجیب کشور چین
+
+روی یه شهرک یه شهرک دیگه هم ساخته شده. شبیه فیلم inception شده.
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10722
 
@@ -284,48 +315,5 @@ https://t.me/+CHT8I544iFRiNzU0
 الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10701
-
-<div align="center"><img src="files/post_10701_tasiyanc_10701.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-
-⬅️ برداشت‌های آنی و بدون معطلی
-
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r13
-
-✅ https://DerbyBet.com
-
-📩 @Derbybet
 </div>
 
