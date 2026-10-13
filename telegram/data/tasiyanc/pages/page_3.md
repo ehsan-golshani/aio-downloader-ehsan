@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/21 14:44
+📅 آخرین بروزرسانی: 1405/07/21 21:53
 
 ---
+
+## tasiyanc — post 10791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10790
+
+<div align="center"><img src="files/post_10790_tasiyanc_10790.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰18
+💎ادرس عضویت کانال vip:
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10789
+
+<div align="center"><img src="files/post_10789_tasiyanc_10789.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سایت ادم حوا توی بروزرسانی جدیدش دخترای ۱۳ ساله رو واسه کیس ازدواج معرفی کرده 😐😐😐
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10788
+
+<div align="center"><video src="files/post_10788_tasiyanc_10788.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10788_tasiyanc_10788.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 فیلم وایرال شده از جشن یه خونواده برای دخترشون که برای اولین بار پریـود شده :
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18 https://t.me/+uA90XBGKpBRmM2Q0 https://t.me/+uA90XBGKpBRmM2Q0 🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
 
 ## tasiyanc — post 10786
 
@@ -288,82 +343,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 
 فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10769
-
-<div align="center"><video src="files/post_10769_tasiyanc_10769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10769_tasiyanc_10769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 دانش آموزای آذربایجانی بر علیه تصمیم دولت آذربایجان مبنی بر اخراج معلما و دانش آموزای باحجاب اعتراضات برگزار کردن درصورتی که ۹۹ درصد معترضان خودشون بی حجابن :
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10768
-
-<div align="center"><video src="files/post_10768_tasiyanc_10768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10768_tasiyanc_10768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 بازگشت ناو آبراهام لینکلن به خانه 🇺🇸
-
-ناو آبراهام لینکلن بعد از بیش از ده ماه عملیات در خاورمیانه و جنگ با ایران به ( بندر سن‌دیگو - کالیفرنیا) رسید تمام 5 هزار نفر نیرو و پرسنل این ناو با سلامت کامل به خانه برگشتن
-
-بر اساس آخرین گزارشات «USNI NEWS» تا 5 اکتبر ناوشکن های ارتش ایالات متحده در منطقه حضور دارن؛
-
-•USS George Washington
-•USS George H.W. Bush
-•USS Boxer
-•USS Donald Cook
-•USS Ross
-•USS Shoup
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10767
-
-<div align="center"><img src="files/post_10767_tasiyanc_10767.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 حداقل حقوق کارگرها تو خاورمیانه:
-
-🇮🇷 ایران : 63 دلار !
-🇦🇲 ارمنستان : 200 دلار
-🇰🇼 کویت : 245 دلار
-🇶🇦 قطر : 275 دلار
-🇦🇿 آذربایجان : 320 دلار
-🇮🇶 عراق : 350 دلار
-🇹🇷 ترکیه : 525 دلار
-🇴🇲 عمان : 800 دلار
-🇸🇦 عربستان : 1000 دلار
-🇦🇪 امارات : 1600 دلار
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 امروز یکسری تراکت تبلیغاتی توی سطح شهر تهران پخش کردن که روش نوشته:
-خرید کالای دیجیتال از تکنولایف، برای دریافت کد تخفیف، کیوآر کد رو اسکن کنید.
-حالا وقتی شما اون کیوآر کد رو اسکن میکنی، عکس مجتبی خامنه‌ای رو همراه با متن زیر میاره بالا:
-پایان شبه سیه،سفید است.
-ملت ایران می‌دانند پایان رژیم جمهوری اسلامی نزدیک است و در نهایت موجب سقوط خواهد شد.
-- فعلا معلوم نیست این کار چه گروهیه ...
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
 </div>
 
