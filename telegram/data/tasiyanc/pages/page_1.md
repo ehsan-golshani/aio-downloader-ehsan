@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/22 11:08
+📅 آخرین بروزرسانی: 1405/07/22 16:47
 
 ---
+
+## tasiyanc — post 10843
+
+<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
+
+ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10842
+
+<div align="center"><video src="files/post_10842_tasiyanc_10842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10842_tasiyanc_10842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
+
+تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10841
+
+<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جاده مرگ ایران بشناسید ؛
+اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
+
+جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10840
+
+<div align="center"><a href="files/post_10840_@𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_𝐅𝐚𝐬𝐭_🇩🇪_🇫🇷_🇬🇧.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜_𝐅𝐚𝐬𝐭_🇩🇪_🇫🇷_🇬🇧.npvs</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجموعه 26 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها 🛜🛜🛜🛜
+
+با وارد کردن این فایل داخل نپستر 26 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 💖
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10839
+
+<div align="center"><a href="files/post_10839_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r22🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+</div>
 
 ## tasiyanc — post 10837
 
@@ -194,80 +292,5 @@ https://apps.apple.com/us/app/npv-tunnel/id162946547
 🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10822
-
-<div align="center"><img src="files/post_10822_tasiyanc_10822.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰20
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10821
-
-<div align="center"><img src="files/post_10821_tasiyanc_10821.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قتل ناموسی این‌بار در قشم
-
-یه دختر ۲۸ ساله به اسم مریم یارمحمدی توی قشم زندگی می‌کرده که!!!
-شوهر چند مدتی بود بهش مشکوک میشه و به برادر زنش ماجرارو میگه که ، برادر زن میگه نه همچین چیزی ممکن نیست ، بعد مدتی به طرف ثابت میشه
-بعد اینکه مطمئن شدن باهم همدست میشن سینه ها و واژن زن رو تیکه تیکه میکنن با چاقو و میزارن تا بمیره
-هردو متهم دستگیر شدن ولی طبق گزارشات برادر مقتول تو کمتر از ۶ ساعت آزاد شده !!!!
-جسد بی‌جان مریم روز پنج‌شنبه هفته پیش به خاک سپرده شد
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10820
-
-<div align="center"><img src="files/post_10820_tasiyanc_10820.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 برداشت ریالی از صرافی های (نوبیتکس، بیت‌پین، ارزاینجا، تترلند و رمزینکس ) متوقف شده؛
-
-خبرگزاری فارس اعلام کرد از ساعت ۱۶ امروز، خدمات بانکی و واریز و برداشت وجه برای ۵ پلتفرم رمزارزی محدود شده است.
-نوبیتکس اعلام کرده این تصمیم به خاطر خودداری صرافی‌ها از ارائه اطلاعات کاربران و دفاع از حریم خصوصی آن‌ها اتخاذ شده است.
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10819
-
-<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
-
-از اخر اول شدیم 🗿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10818
-
-<div align="center"><video src="files/post_10818_tasiyanc_10818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10818_tasiyanc_10818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از تبلیغ جدید بانو سیدنی سویینی
-
-⚡ @Tasiyanc
 </div>
 
