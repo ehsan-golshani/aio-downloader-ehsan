@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 86
 
-📅 آخرین بروزرسانی: 1405/07/22 02:34
+📅 آخرین بروزرسانی: 1405/07/22 11:08
 
 ---
+
+## tasiyanc — post 8695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب هم خاورمیانه آرومه
+</div>
 
 ## tasiyanc — post 8694
 
@@ -206,13 +212,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 بهبهان صدای انفجاررررررر
 @Tasiyanc
-</div>
-
-## tasiyanc — post 8667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨حمله پهپادی سپاه به مواضع کردها در اربیل
-
-@Tasiyanc ⭐️
 </div>
 

@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/07/22 02:34
+📅 آخرین بروزرسانی: 1405/07/22 11:08
 
 ---
+
+## tasiyanc — post 10687
+
+<div align="center"><img src="files/post_10687_tasiyanc_10687.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇
+
+https://t.me/+E--pAy0bkURiOWM0
+https://t.me/+E--pAy0bkURiOWM0
+
+
+🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان
+💵🅰12g
+</div>
 
 ## tasiyanc — post 10686
 
@@ -275,18 +297,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r11
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10667
-
-<div align="center"><video src="files/post_10667_tasiyanc_10667.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10667_tasiyanc_10667.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ممنوعیت حجاب در جمهوری آذربایجان؛ کادر اجرایی مدارس از ورود دختران محجبه به کلاس های درسی جلوگیری می‌کند و این باعث گریه کردن دانش‌آموزان محجبه پشت درهای بسته شده است
-
-
-⚡ @Tasiyanc
 </div>
 

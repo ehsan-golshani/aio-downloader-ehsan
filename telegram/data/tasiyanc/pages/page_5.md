@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/22 02:34
+📅 آخرین بروزرسانی: 1405/07/22 11:08
 
 ---
+
+## tasiyanc — post 10752
+
+<div align="center"><video src="files/post_10752_tasiyanc_10752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10752_tasiyanc_10752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اینجایی که مشاهده میکنید تگزاس نیست، کوهدشت لرستانه که یه چند نفر با همدیگه به مشکل خورده بودن و تصمیم گرفتن با کلاشینکف حلش کنن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10751
 
@@ -274,11 +286,5 @@ https://t.me/+5cdraE3AwpgyOTlk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r14 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
 </div>
 
