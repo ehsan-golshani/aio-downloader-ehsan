@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/22 21:46
+📅 آخرین بروزرسانی: 1405/07/23 01:28
 
 ---
+
+## tasiyanc — post 10787
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18 https://t.me/+uA90XBGKpBRmM2Q0 https://t.me/+uA90XBGKpBRmM2Q0 🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
+
+## tasiyanc — post 10786
+
+<div align="center"><img src="files/post_10786_tasiyanc_10786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18
+
+https://t.me/+uA90XBGKpBRmM2Q0
+https://t.me/+uA90XBGKpBRmM2Q0
+
+🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
+
+## tasiyanc — post 10785
+
+<div align="center"><video src="files/post_10785_tasiyanc_10785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10785_tasiyanc_10785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖تو فیلم جدید جان سینا، گلشیفته فراهانی حضور کوتاهی داشت و از بدو ورود خودش و جان سینا لب گرفتن و همو خوردن ...
+
+📺اسم فیلم: Matchbox
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10784
 
@@ -323,46 +363,6 @@ https://raw.githubuser…s/main/v2ray_links.txt
 ملت ایران می‌دانند پایان رژیم جمهوری اسلامی نزدیک است و در نهایت موجب سقوط خواهد شد.
 - فعلا معلوم نیست این کار چه گروهیه ...
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10765
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10764
-
-<div align="center"><video src="files/post_10764_tasiyanc_10764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10764_tasiyanc_10764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+ramzL0orpc5hMTBk
-https://t.me/+ramzL0orpc5hMTBk
-🅰g17
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10763
-
-<div align="center"><video src="files/post_10763_tasiyanc_10763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10763_tasiyanc_10763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه
-💖در پی درگیری لفظی میان راننده یک نیسان و یک موتورسوار، موتورسیکلت واژگون شد و نیسان نیز در آستانه واژگونی قرار گرفت
 
 ⚡ @Tasiyanc
 </div>

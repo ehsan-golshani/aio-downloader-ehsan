@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/22 21:46
+📅 آخرین بروزرسانی: 1405/07/23 01:28
 
 ---
+
+## tasiyanc — post 10810
+
+<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10809
+
+<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
+
+پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10808
+
+<div align="center"><video src="files/post_10808_tasiyanc_10808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10808_tasiyanc_10808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده یه راننده تاکسی 70 ساله و معلم بازنشسته دو تا توریست لهستانی سوار ماشینش میشن 70 هزار یورو معادل 21 میلیارد تومان تو ماشینش جا میزارن ، راننده تاکسی تمام پول توریست هارو می‌بره سفارت و تحویلشون میده
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10807
 
@@ -239,46 +279,6 @@ https://t.me/+6L9plEThEMk5YTJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💖 فیلم وایرال شده از جشن یه خونواده برای دخترشون که برای اولین بار پریـود شده :
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18 https://t.me/+uA90XBGKpBRmM2Q0 https://t.me/+uA90XBGKpBRmM2Q0 🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
-</div>
-
-## tasiyanc — post 10786
-
-<div align="center"><img src="files/post_10786_tasiyanc_10786.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18
-
-https://t.me/+uA90XBGKpBRmM2Q0
-https://t.me/+uA90XBGKpBRmM2Q0
-
-🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
-</div>
-
-## tasiyanc — post 10785
-
-<div align="center"><video src="files/post_10785_tasiyanc_10785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10785_tasiyanc_10785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖تو فیلم جدید جان سینا، گلشیفته فراهانی حضور کوتاهی داشت و از بدو ورود خودش و جان سینا لب گرفتن و همو خوردن ...
-
-📺اسم فیلم: Matchbox
 
 ⚡ @Tasiyanc
 </div>
