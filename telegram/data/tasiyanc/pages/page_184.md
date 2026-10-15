@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 5602
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اقا واقعا وصل ممنون تاسيان♥️♥️♥️
+</div>
 
 ## tasiyanc — post 5601
 
@@ -170,11 +176,5 @@
 برای اتصال پایدار ۲ الی ۵ دقیقه زمان بدید 🚀
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5572
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هدیه 25 کا شدن ما تمومی ندارع بازم میزارم سرور
 </div>
 

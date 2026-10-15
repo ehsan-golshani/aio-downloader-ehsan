@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 148
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 6548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منتظرم قطعی بشه پرایوت کنم چنلو اونای ک لف میدن حالشون میپرسم
+</div>
 
 ## tasiyanc — post 6547
 
@@ -205,14 +211,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیرکه رسما
-
-کاخ سفید :ما معتقدیم به نتیجه نهایی مذاکرات نزدیکیم
-@Tasiyanc ✅
 </div>
 

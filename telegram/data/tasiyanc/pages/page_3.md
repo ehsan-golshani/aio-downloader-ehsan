@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 10811
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 تا کانفیگ OPEN VPN 🌟
+
+سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
+
+دریافت کانفیگ ها از ربات 👉
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10810
 
@@ -267,18 +280,6 @@ https://t.me/+6L9plEThEMk5YTJk
 سایت ادم حوا توی بروزرسانی جدیدش دخترای ۱۳ ساله رو واسه کیس ازدواج معرفی کرده 😐😐😐
 
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10788
-
-<div align="center"><video src="files/post_10788_tasiyanc_10788.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10788_tasiyanc_10788.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 فیلم وایرال شده از جشن یه خونواده برای دخترشون که برای اولین بار پریـود شده :
 
 ⚡ @Tasiyanc
 </div>

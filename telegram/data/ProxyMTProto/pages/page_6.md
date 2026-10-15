@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/23 01:26
+📅 آخرین بروزرسانی: 1405/07/23 08:27
 
 ---
+
+## ProxyMTProto — post 52029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52028
 
@@ -172,15 +181,6 @@ Secret: ee67af30bbe3543b32fd7b6966a61417e26c74652e6d69736875746b696e2e636c69636b
 Server: 77.42.56.66
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52009
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.mishutkin.click
-Port: 443
-Secret: ee94989d74ad055391384d92c3c773c8d264726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/23 01:26
+📅 آخرین بروزرسانی: 1405/07/23 08:27
 
 ---
+
+## ProxyMTProto — post 51869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51868
 
@@ -172,15 +181,6 @@ Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51849
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdntide.org
-Port: 443
-Secret: ddee10a29f2e8abc6797a0c9cb1d476c39
 @ProxyMTProto
 </div>
 

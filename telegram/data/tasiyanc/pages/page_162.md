@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 162
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 6182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  📱
+
+3سرور  سرعتی تست شده 🚀
+
+مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
+
+دانلود  NPV tunnel  🌐
+
+نحوه اتصال به سرورها ⏩
+
+🦁  @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6180
 
@@ -197,11 +213,5 @@ VIP تاسیان 🪙 GOLD.npvt
 نحوه اتصال به سرورها ⏩
 
 🦁  @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6157
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-3 تا سرور فول سرعتی تو راهه
 </div>
 

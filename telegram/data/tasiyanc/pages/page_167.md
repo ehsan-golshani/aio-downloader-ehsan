@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 6050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فایل تمام پیام‌های تلگرامش
+
+@ineedknife
+</div>
 
 ## tasiyanc — post 6048
 
@@ -124,11 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 منم اکانتم پرید
-</div>
-
-## tasiyanc — post 6026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوست من سه روز پیش اکانتش پرید
 </div>
 

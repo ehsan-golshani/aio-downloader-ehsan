@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/23 01:26
+📅 آخرین بروزرسانی: 1405/07/23 08:27
 
 ---
+
+## ProxyMTProto — post 51849
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdntide.org
+Port: 443
+Secret: ddee10a29f2e8abc6797a0c9cb1d476c39
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51848
 
@@ -172,15 +181,6 @@ Secret: dd79e344818749bd7ac519130220c25d09
 Server: gram.blog
 Port: 853
 Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51829
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

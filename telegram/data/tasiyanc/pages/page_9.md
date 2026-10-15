@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 10681
+
+<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10680
 
@@ -277,15 +289,5 @@ https://AmitisBet.com/
 +اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10660
-
-<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
-
-@Tasiyanc
 </div>
 

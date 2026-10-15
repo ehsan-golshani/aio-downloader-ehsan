@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 7914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7910
 
@@ -209,18 +233,5 @@
 @Tasiyanc 
 ⭐️
 #Navid
-</div>
-
-## tasiyanc — post 7874
-
-<div align="center"><img src="files/post_7874_tasiyanc_7874.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حاملگی مامان باب اسفنجیو دیده بودین :)))))؟
-
-
-@Tasiyanc 
-😌
-#Tina
 </div>
 

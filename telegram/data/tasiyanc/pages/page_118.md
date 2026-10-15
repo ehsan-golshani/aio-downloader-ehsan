@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 118
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 7624
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمد صلاح پشت توپ
+</div>
 
 ## tasiyanc — post 7623
 
@@ -151,20 +157,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🍊⚡ Fast Orange.npvt
-</div>
-
-## tasiyanc — post 7585
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت🚀
-
-4سرور سرعتی پرمیوم متد جدید ⚡️
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

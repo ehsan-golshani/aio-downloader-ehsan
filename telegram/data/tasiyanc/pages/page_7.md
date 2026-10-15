@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 10726
+
+<div align="center"><video src="files/post_10726_tasiyanc_10726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10726_tasiyanc_10726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠واقعا آرژانتینی ها تو یه سیاره دیگه زندگی می کنن
+وضعیت خیابان های بوینس آیرس !
+
+صحنه‌های دیوانه‌وار از حال و هوای آرژانتین 🇦🇷
+در آستانه مسابقه خداحافظی لیونل مسی؛ کل کشور امروز به خیابان‌ها آمده است شما مقایسه کنید با کشور پرتغال و بازیکناشون که حسابی به رونالدو بی لطفی کردن
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10724
 
@@ -299,21 +314,5 @@ https://t.me/+CHT8I544iFRiNzU0
 
 🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
 💵
-</div>
-
-## tasiyanc — post 10703
-
-<div align="center"><video src="files/post_10703_tasiyanc_10703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10703_tasiyanc_10703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سنگین ترین پرونده مهریه ایران اعلام شد:
-
-اقای جراح ۶۳۶۰ سکه مهریه برای خانم با وفاش زده بوده و الانم تو زندانه😐😂
-
-الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/23 01:28
+📅 آخرین بروزرسانی: 1405/07/23 08:29
 
 ---
+
+## tasiyanc — post 10224
 
 ## tasiyanc — post 10223
 
@@ -229,28 +231,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دوستان اندرویدی فیلترشکن GoFly سرعت خوبی داره برای تمامی اینترنت ها پیشنهاد میکنم تست کنید.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10190
-
-<div align="center"><img src="files/post_10190_tasiyanc_10190.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠معرفی فیلترشکن رایگان GoFly VPN
-
-یکی از فیلترشکن‌های محبوب و کاملاً رایگان که بیش از ۱ میلیون نصب در گوگل‌پلی داره و با تمام اپراتور های ایران وصله
-
-
-• کاملاً رایگان (بدون اشتراک و خرید درون‌برنامه‌ای)
-• پهنای باند نامحدود
-• اتصال یک‌کلیکی و ساده
-• پشتیبانی از V2ray / Trojan / SOCKS5
-• مناسب برای اینستاگرام، یوتیوب و شبکه‌های اجتماعی و هوش مصنوعی
-دارای دو نسخه اندروید و ویندوز 🪟👽
-
-🔗 https://goflyvpn.com/
 
 💋 @Tasiyanc
 </div>
