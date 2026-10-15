@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/23 22:17
+📅 آخرین بروزرسانی: 1405/07/24 01:46
 
 ---
+
+## ProxyMTProto — post 52001
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.fluxvpnguard.ru
+Port: 443
+Secret: dda994bd0f68a5c347b1b1a68e240599d0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52000
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51999
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.arixo.shop
+Port: 443
+Secret: dd27e57f496bbf279605f0198ea6d26067
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51998
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51997
 
@@ -145,42 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: go.chunkystars.lol
 Port: 443
 Secret: ddbb0e45caf3bbce0d8d995cfb919fa9d6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51981
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51980
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: 07635470792163f3d4d6ef46d88b9cad
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51979
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51978
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lte.mishutkin.click
-Port: 443
-Secret: ee67af30bbe3543b32fd7b6966a61417e26c74652e6d69736875746b696e2e636c69636b
 @ProxyMTProto
 </div>
 
