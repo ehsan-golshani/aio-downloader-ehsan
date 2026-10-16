@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10431
+
+<div align="center"><video src="files/post_10431_tasiyanc_10431.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10431_tasiyanc_10431.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 
+😀
+
+
+📆 بورنموث - لیورپول
+
+⏰ ساعت ۱۶:۳۰ 
+🌎
+
+
+📲 آث میلان - لچه
+
+😀 ساعت ۲۲:۱۵ 
+🌎
+
+ 
+
+📺بونوس خوش آمدگویی ورزشی
+🎁
+
+🎁 بالاترین حد مبلغ شرط
+🎁
+
+🏆واریز جوایز در کمتر از 24 ساعت
+⭐️
+
+👩‍💻پشتیبانی از طریق چت زنده
+⌨️
+
+
+✈️ https://t.me/BerryBetOfficial
+R29
+
+🔗 ثبت نام و ورود به بخش پیشبینی
+💵
+https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10430
 
@@ -322,19 +367,5 @@ https://AmitisBet.com/
 
 
 🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰27
-</div>
-
-## tasiyanc — post 10408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
-
-لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
-
-دریافت کانفیگ‌ها 👉
-
-به هیچ عنوان از دست ندید گادن 💥
-
-@Tasiyanc
 </div>
 

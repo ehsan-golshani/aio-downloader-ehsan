@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 9631
+
+<div align="center"><video src="files/post_9631_tasiyanc_9631.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9631_tasiyanc_9631.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آپدیت جدید برنامه نپستر را دانلود کنید
+
+کانفیگ حجم نامحدود نپسترنت
+سرور سرعتی مولتی لوکیشن
+
+تست شده روی همه نت ها ⚡️
+
+آموزش اتصال 
+⛓
+
+دانلود اندروید 
+🕹
+
+دانلود آیفون 
+📱
+
+
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9630
 
@@ -302,26 +331,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9608
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-
-
-🩸 T.me/Tasiyanc
 </div>
 

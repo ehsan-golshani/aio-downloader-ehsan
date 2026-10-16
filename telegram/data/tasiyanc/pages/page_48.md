@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 9715
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9714
 
@@ -293,11 +303,5 @@ https://Winamit.com/fa
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت دلار 206 هزار تومان .
 </div>
 

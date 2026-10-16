@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+5 کانفیگ پرسرعت نامحدود 🟠 OpenVPN
+
+لوکیشن 🇮🇹🇫🇷🇩🇪🇺🇸🇨🇭
+
+دریافت کانفیگ‌ها 👉
+
+به هیچ عنوان از دست ندید گادن 💥
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10407
 
@@ -255,18 +269,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 نتیجه اش می شود تبلیغی اینچنین که فقر مردم را به سُخره می گیرد.
 
 تقصیر خودمونه برخی از بلاگرای دوزاریو با دکمه فالو شاخ کردیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10384
-
-<div align="center"><video src="files/post_10384_tasiyanc_10384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10384_tasiyanc_10384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده چند تا دختر توی تهران میرن کافه ، بهشون میگن اماکن گیر میده لطفاً حجابتونو رعایت کنین که این صحنه رو خلق میکنن 😂:
 
 💋 @Tasiyanc
 </div>

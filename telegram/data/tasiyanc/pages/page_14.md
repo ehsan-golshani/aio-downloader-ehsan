@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10592
+
+<div align="center"><video src="files/post_10592_tasiyanc_10592.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10592_tasiyanc_10592.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅برترین و قدیمی ترین مجموعه تحلیلی ایران ینی انتن بت
+✅
+
+
+❗️اگ توم میخوای روزانه درامد دلاری داشته باشی کانالی انالیز انتن بت از دست نده
+💖
+
+
+⚡️توی این کانال تحلیل و انالیز یاد میگیری تا خودت بتونی درامد دلاری داشته باشی از پیش بینی تخصصی فوتبال
+💖
+
+ادرس عضویت کانالشون:
+💖🅰5
+
+✉️https://t.me/+gYDRnUG5OX03MWJk
+
+✉️https://t.me/+gYDRnUG5OX03MWJk
+
+💎عضویت محدود سریع اقدام کنید
+✅
+</div>
 
 ## tasiyanc — post 10591
 
@@ -253,17 +282,5 @@ https://AmitisBet.com/
 📱 مشاهده پروفایل اینستاگرام
 
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
-</div>
-
-## tasiyanc — post 10567
-
-<div align="center"><video src="files/post_10567_tasiyanc_10567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10567_tasiyanc_10567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
-
-⚡ @Tasiyanc
 </div>
 

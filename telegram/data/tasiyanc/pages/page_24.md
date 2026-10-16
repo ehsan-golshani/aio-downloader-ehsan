@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10362
+
+<div align="center"><video src="files/post_10362_tasiyanc_10362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10362_tasiyanc_10362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توی تهران طرف کارگر افغانی استخدام کرده کافش یک ماه هم حقوقشون جلو داده ،
+افغانی مست کرده و کل وسایل مغازه اش رو زده شکونده صد ها میلیون خسارت بهش زده و فرار کرده.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10360
 
@@ -367,16 +380,6 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 وضعیت اینستاگرام فارسی روز به روز داره جالب‌تر میشه ،بسیاری از سایتهای بد ویوشون ته کشیده 
 🗡
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10339
-
-<div align="center"><img src="files/post_10339_tasiyanc_10339.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 زیبایی حیرت‌انگیز بانو آنا آرماس در مراسم اکران جهانی فیلم (No Time To Die)
 
 💋 @Tasiyanc
 </div>

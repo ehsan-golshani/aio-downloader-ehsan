@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10316
+
+<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
+
+که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10314
 
@@ -323,11 +335,5 @@ IMAGE FORMAT: 3:
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Barcelona 🇪🇸.ovpn
 </div>
 

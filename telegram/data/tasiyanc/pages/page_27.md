@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 10284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Barcelona 🇪🇸.ovpn
+</div>
 
 ## tasiyanc — post 10283
 
@@ -287,26 +293,6 @@ Join Join Join
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 استقبال گرم مردم ایرلند از پرزیدنت ترامپ :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت‌های سال 97 رو ببینید انگار اصحاب کهف شدیم رسما !
-
-•دلار 5000 تومن
-•طلا گرمی 160هزار
-•سکه 1 میلیون 700هزار
-•مسکن متری 5 میلیون و 600هزار
-•پژو 206 , 35 میلیون
-•پراید 22 میلیون
-•سراتو 105 میلیون
-•برنج 14 هزار
-•گوشت 39700
-•حداقل حقوق 1.200.000 تومان
 
 
 💋 @Tasiyanc

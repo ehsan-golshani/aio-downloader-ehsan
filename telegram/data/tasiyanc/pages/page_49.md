@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 9685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار 206 هزار تومان .
+</div>
 
 ## tasiyanc — post 9684
 
@@ -391,6 +397,4 @@ til.ac/0L4vyJf
 
 🩸 @TASIYANC
 </div>
-
-## tasiyanc — post 9659
 

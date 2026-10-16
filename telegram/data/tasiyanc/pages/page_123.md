@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/07/24 13:04
+📅 آخرین بروزرسانی: 1405/07/24 17:53
 
 ---
+
+## tasiyanc — post 7453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ساعت 3 بازی پرتغال و کلمبیا ...
+</div>
 
 ## tasiyanc — post 7450
 
@@ -205,15 +211,6 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آقای رضاییان هنوز نمیدونی چرا بدشانسی میارید؟ 😒
-@Tasiyanc 💠
-</div>
-
-## tasiyanc — post 7428
-
-<div align="center"><img src="files/post_7428_tasiyanc_7428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😐😐😐
 @Tasiyanc 💠
 </div>
 
