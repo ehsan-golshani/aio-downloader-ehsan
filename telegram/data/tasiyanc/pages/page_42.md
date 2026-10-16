@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9870
+
+<div align="center"><video src="files/post_9870_tasiyanc_9870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9870_tasiyanc_9870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9869
 
@@ -308,11 +320,5 @@ sg11
 دیروز توی تبریز برای اولین بار ایونت مد و فشن برگزار شد:
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاجعه اقتصادی هر دلار 218000 طلای ۱۸ عیار 22.500.000 سکه تمام بهار 222.600.000 🩸 @Tasiyanc
 </div>
 

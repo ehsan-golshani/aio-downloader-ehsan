@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 10150
+
+<div align="center"><img src="files/post_10150_tasiyanc_10150.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴توییت نتانیاهو:
+امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
+
+ماموریت را به پایان رساندیم. سال نو مبارک!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10147
 
@@ -298,35 +311,5 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10116
-
-<div align="center"><img src="files/post_10116_tasiyanc_10116.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🧬 داخل بدن انسان چه شکلیه؟ اینجا می‌تونی با جزییات دقیق ببینی!
-
-
-🔴 با سایت Human Atlas می‌تونی یک مدل سه‌بعدی از بدن انسان رو بررسی کنی و بین بخش‌های مختلفش جابه‌جا بشی
-
-
-•چرخاندن مدل بدن از زوایای مختلف
-
-•بزرگ‌نمایی و بررسی جزئیات
-
-•مشاهده جداگانه استخوان‌ها و اندام‌ها
-
-•حالت Explode برای تفکیک لایه‌های مختلف بدن
-
-•نمایش نام بخش‌های مختلف آناتومی
-﻿
-🌐 یه جورایی Google Maps، ولی برای بدن انسان!
-
-🔗https://human-atlas-seven.vercel.app
-
-
-
-🩸 @Tasiyanc
 </div>
 

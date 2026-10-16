@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9825
+
+<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ادعای ترامپ:
+
+حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9823
 
@@ -266,19 +281,6 @@ sg10
 
 امروز ۱۰ شهریور نرخ دلار در همین ساعتی که پست میزارم 214000 هست
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9795
-
-<div align="center"><video src="files/post_9795_tasiyanc_9795.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9795_tasiyanc_9795.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دختر خانوم به پوشش این خانوم ایراد گرفته و گفته شورشو ناموسا درنیارید منم بی حجابم ولی تا این حد نه!
-نظر شما چیه طبیعیه یا غیرطبیعی؟
 
 🩸 @Tasiyanc
 </div>

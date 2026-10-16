@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
 
 ## tasiyanc — post 9651
 
@@ -394,17 +401,5 @@ JOIN JOIN JOIN
 💠 لینک عضویت کانال راهنما ربات:
 https://t.me/+86B34ioXJtUwODg6
 https://t.me/+86B34ioXJtUwODg6
-</div>
-
-## tasiyanc — post 9625
-
-<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
-
-بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
-
-🩸 @Tasiyanc
 </div>
 

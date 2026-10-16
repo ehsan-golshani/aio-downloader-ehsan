@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9765
+
+<div align="center"><img src="files/post_9765_tasiyanc_9765.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط با ثبت‌نام، ۵۰۰ هزار تومان شارژ رایگان بگیر !
+
+                        ⭕️ بدون قرعه‌کشی!
+⭕️ هدیه ویژه برای همه کاربران جدید!
+
+
+💵پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+
+👽 ثبت نام کنید 👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+
+
+🌐آدرس سایت👇
+https://Winamit.com/fa
+https://Winamit.com/fa
+https://Winamit.com/fa
+
+📲 کانال تلگرامی #وینامیت :
+
+✅@Winamit_fa
+</div>
 
 ## tasiyanc — post 9762
 
@@ -242,11 +274,5 @@ til.ac/0L4vyJf
 🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار ۲۱۱ تومن شد 😞
 </div>
 

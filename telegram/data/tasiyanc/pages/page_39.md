@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠دلار رسید 227000
+
+عر عر بعضیا فقط واسه حجاب دختر مردمه؟
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9942
 
@@ -279,14 +288,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
 
 💋 @Tasiyanc
 </div>

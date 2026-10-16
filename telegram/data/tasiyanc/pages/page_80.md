@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 8902
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺قیمت دلار  ۱۹۶ هزار تومان  شد
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8901
 
@@ -312,11 +320,5 @@ a9
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴 به تمام دیتاسنترها آماده باش داده شده تا در صورت وقوع جنگ٫ اینترنت سراسری قطع شود ( تایید / رد نمیشود)
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8877
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کاخ سفید: ایران یادداشت تفاهم را نقض کرده، به کشتی‌ها شلیک نموده و سربازان آمریکایی را به قتل رسانده است @TASIYANC ⭐️
 </div>
 

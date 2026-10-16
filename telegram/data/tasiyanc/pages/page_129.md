@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 129
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 7228
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Wnd🍓 @Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 7223
 
@@ -343,11 +349,5 @@ BERLIN 🇩🇪⚡️GN.npvt
 مناسب دانلود⬇️ وب‌گردی🔍 جمینای 🤖
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7196
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-40.000 🖤 > 72
 </div>
 

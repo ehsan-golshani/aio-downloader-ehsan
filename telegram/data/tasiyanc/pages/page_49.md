@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 9680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ریزش سنگین انس طلای جهانی در ۸ ساعت اخیر هم باعث نشد طلا در ایران قیمتش افت کنه هم اکنون هر گرم طلا ۲۱.۸۰۰ و هردلار داره از مرز ۲۰۴ عبور میکنه
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9679
 
@@ -413,12 +421,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9652
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همگی عمو خسرو رو حمایت کنید عشقا ✅
-https://t.me/+J_q7c-COftQzOGM0
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 10779
+
+<div align="center"><video src="files/post_10779_tasiyanc_10779.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10779_tasiyanc_10779.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠هردو تیم گل میزنند_بله
+
+
+💠ضریب 1.49
+
+⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
+
+💪فقط ادعا نمی‌کنیم که جز بهترینا هستیم،بهتون ثابت میکنیم!! کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید
+😍✅
+
+🆔@Aron_tip 🆔 @Aron_tip
+🆔@Aron_tip 🆔 @Aron_tip
+</div>
 
 ## tasiyanc — post 10778
 
@@ -270,15 +291,6 @@ https://t.me/+ramzL0orpc5hMTBk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💖ویدئوی وایرال شده از وضعیت کاملا طبیعی یه دبیرستان دخترونه تو تهران؛
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖یه املاكی که تو رامسر ویلا اجاره میده تصمیم گرفته تولید محتوا کنه تا مشتری جذب کنه که سریعا وایرال شده :
-
 
 ⚡ @Tasiyanc
 </div>

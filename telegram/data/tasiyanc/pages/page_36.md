@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 10013
+
+<div align="center"><video src="files/post_10013_tasiyanc_10013.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10013_tasiyanc_10013.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایلان ماسک هشدار داده 10 سال دیگه وقت داریم که با کار کردن فیزیکی پول دربیاریم. بعد از اون، ربات‌ها ، هوش مصنوعی بیشتر کارها رو بدست میگیرن و دلیل نداره تو به‌جای اونا کار کنی
+
++ فرمول‌های قدیمی که هفتگی یا ماهانه حقوق می‌گرفتید دورانشون تموم میشه .
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10012
 
@@ -349,30 +365,5 @@ til.ac/0L4vyJf
 sg15
 🎁کد هدیه ثبت نام Melbet90 ✌️
 ✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9989
-
-<div align="center"><img src="files/post_9989_tasiyanc_9989.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
 </div>
 

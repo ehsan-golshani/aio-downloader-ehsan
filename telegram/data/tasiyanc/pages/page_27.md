@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/24 01:48
+📅 آخرین بروزرسانی: 1405/07/24 08:25
 
 ---
+
+## tasiyanc — post 10269
+
+<div align="center"><video src="files/post_10269_tasiyanc_10269.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10269_tasiyanc_10269.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا برای اولین بار منتشر کرد
+لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران :
+
+آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن کامل چتر نجات، با سرعت حدود ۱۶۰ کیلومتر بر ساعت به زمین برخورد کرد و در این حادثه کمر، دست و شانه‌اش شکست که گویا الان حالش خوب هست .
+﻿
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10268
 
@@ -359,19 +375,5 @@ Join Join Join
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10238
-
-<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
-
-جرمش چی بوده؟
-چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
-
-
-💋 @Tasiyanc
 </div>
 
