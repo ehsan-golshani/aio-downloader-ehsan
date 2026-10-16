@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/24 21:50
+📅 آخرین بروزرسانی: 1405/07/25 00:59
 
 ---
+
+## tasiyanc — post 10854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برد دیناموزاگرب Odd:1.98 @Aron_tip
+</div>
+
+## tasiyanc — post 10853
+
+<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برد دیناموزاگرب
+Odd:1.98
+@Aron_tip
+</div>
+
+## tasiyanc — post 10852
+
+<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 15 October، روزِ آدمای بد اخلاقه.
+
+
++این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10851
 
@@ -231,43 +263,5 @@ https://t.me/+EADakrBU74wyOGVk
 💎ادرس عضویت کانال vip:
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10834
-
-<div align="center"><video src="files/post_10834_tasiyanc_10834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10834_tasiyanc_10834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدئوی وایرال شده از‌ مراسم جشن فارغ التحصیلی دانشگاه چمران اهواز
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10833
-
-<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10832
-
-<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات های جدید از بانو مگان فاکس
-
-بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
-
-
-
-⚡ @Tasiyanc
 </div>
 
