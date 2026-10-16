@@ -1,8 +1,108 @@
 # آرشیو کانال VahidOOnLine - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/07/24 01:45
+📅 آخرین بروزرسانی: 1405/07/24 03:54
 
 ---
+
+## VahidOOnLine — post 263415
+
+<div align="center"><img src="files/post_263415_VahidOOnLine_263415.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ابوذر شیرودی، رئیس سازمان هواپیمایی ایران، روز شنبه یازدهم مهر ماه اعلام کرد پروازهای شرکت‌های هواپیمایی ایرانی و عراقی در مسیر ایران و عراق از روز یکشنبه از سرگرفته می‌شوند.
+به گزارش خبرگزاری ایرنا، ابوذر شیرودی از مسافران خواست پیش از مراجعه به فرودگاه، آخرین وضعیت و زمان پرواز خود را از طریق درگاه‌های رسمی شرکت هواپیمایی مربوطه یا اطلاعات پرواز فرودگاه مبدا پیگیری کنند.
+دفتر نخست وزیری عراق روز جمعه اعلام کرده بود، پس از دریافت معافیت از واشنگتن با روزانه ۴۰ پرواز رفت و برگشت شرکت‌های هواپیمایی ایران از فرودگاه بین‌المللی نجف موافق شده است. بر اساس این بیانیه، شرکت هواپیمایی ماهان از این توافق مستثنی شده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263414
+
+<div align="center"><video src="files/post_263414_VahidOOnLine_263414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263414_VahidOOnLine_263414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شبکه خبری العربیه روز شنبه یازدهم مهرماه با انتشار ویدیویی گزارش داد تیپ‌های «العمالقه» که در کنار نیروهای دولتی یمن علیه حوثی‌ها می‌جنگند یک خودرو متعلق به حوثی‌ها را در جبهه کَهبوب در نزدیکی تنگه باب‌المندب منهدم کردند و افراد حاضر در این خودرو نیز کشته شدند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263413
+
+<div align="center"><video src="files/post_263413_VahidOOnLine_263413.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263413_VahidOOnLine_263413.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+In January 2026, Iran’s internet was shut down. With no foreign journalists on the ground and no independent reporting, much of what happened was recorded by the people who were there. Across the country, people filmed protests, shootings, arrests, the wounded, the dead and the aftermath. Their footage reached the outside world in fragments, often without clear dates, locations or context.
+
+This Is Our Story brings these images together with first-hand accounts from eyewitnesses, survivors and bereaved families, revealing how events unfolded and what people experienced. The documentary restores context to isolated clips, preserves testimony and creates a fuller record of what happened. English subtitles make that record accessible beyond Iran.
+All four episodes are available on Manoto’s youtube channel (bio).
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263412
+
+<div align="center"><video src="files/post_263412_VahidOOnLine_263412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263412_VahidOOnLine_263412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دهم مهر، زادروز جاویدنام اکبر حسن‌پور است؛ پدر دو دختر و فوتبالیست پیشین تیم همای تهران که در اعتراضات دی‌ماه ۱۴۰۴ جان باخت.
+اکبر، متولد ۱۰ مهر ۱۳۵۸، هنگام کشته‌شدن ۴۶ سال داشت. شامگاه ۱۹ دی برای شرکت در اعتراضات به گوهردشت کرج رفت و هدف تیراندازی نیروهای جمهوری اسلامی قرار گرفت. آن شب به خانه بازنگشت و خانواده‌اش، بی‌خبر از سرنوشت او، جست‌وجو را آغاز کردند.
+پس از دو روز پیگیری، خانواده پیکر اکبر را در سردخانه بهشت‌سکینه کرج پیدا کردند. به روایت نزدیکانش، دو گلوله به پهلوی او اصابت کرده بود.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263411
+
+<div align="center"><video src="files/post_263411_VahidOOnLine_263411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263411_VahidOOnLine_263411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام علیرضا امانی، ۲۳ ساله و اهل آب‌پخش شهرستان دشتستان در استان بوشهر، روز ۱۸ دی ۱۴۰۴ در جریان اعتراضات با اصابت گلوله جنگی نیروهای حکومتی جان باخت. پیکر او پس از چند روز پیگیری خانواده تحویل داده شد و در روستای چهاربرج به خاک سپرده شد.
+مراسم چهلم علیرضا در بهمن‌ماه، با حضور گسترده مردم، شعرخوانی و شعارهای اعتراضی بر سر مزارش برگزار شد. خواهرش سخنان خود را چنین آغاز کرد: «به نام وطن، به نام ایران، به نام آزادی و به نام خون جوانانی که بر خاک افتادند تا ما بایستیم... ما را به خاک نشاندید… اما خاک وطن ماست و از دل وطن دوباره پر می‌کشیم.»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263410
+
+<div align="center"><video src="files/post_263410_VahidOOnLine_263410.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263410_VahidOOnLine_263410.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درد دل مادر جاویدنام نازنین‌زهرا صالحی در زادروز خودش، بر سر مزار دخترش.
+جاویدنام نازنین‌زهرا صالحی، ۱۳ ساله و اهل کرمانشاه، شامگاه ۱۹ دی ۱۴۰۴ در جریان اعتراضات، هنگام حضور در پارکی در بلوار کیهانشهر، از فاصله نزدیک هدف شلیک مستقیم نیروهای حکومتی قرار گرفت و جان باخت.
+نازنین‌زهرا متولد ۲۹ تیر ۱۳۹۱ و شاگرد اول مدرسه بود. زبان‌های انگلیسی و کره‌ای را به‌صورت خودآموز یاد گرفته بود و در رشته ووشو عنوان‌های قهرمانی استانی و کشوری داشت.
+پیکر این نوجوان روز ۲۱ دی ۱۴۰۴ در کرمانشاه به خاک سپرده شد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263409
+
+<div align="center"><video src="files/post_263409_VahidOOnLine_263409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263409_VahidOOnLine_263409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک دانش‌آموز با ارسال ویدیویی به ایران‌اینترنشنال، از هموطنان خود خواست که در دنیا صدای دانش‌آموزان ایرانی باشند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 263408
 
@@ -193,117 +293,6 @@ IranintlTV
 بنا بر گزارش‌های منتشرشده، مأموران در حال ضرب‌وشتم آن زن بودند و مهران برای وساطت مداخله کرد. آنها از فاصله نزدیک گلوله‌ای جنگی به قفسه سینه او شلیک کردند. مهران پس از انتقال به بیمارستان پورسینای رشت، سه روز در کما بود و در ۲۸ آبان جان باخت.
 خانواده او از آن زمان برای پیگیری کشته‌شدن فرزندشان با احضار، تهدید و بازداشت مواجه شده‌اند. رباب نمازی، مادر جاویدنام مهران بصیر توانا, با وجود این فشارها همچنان خواهان روشن‌شدن حقیقت و پاسخگویی عاملان کشته‌شدن پسرش است.
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263391
-
-<div align="center"><video src="files/post_263391_VahidOOnLine_263391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263391_VahidOOnLine_263391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنام علی پوراکرمی، ۲۱ ساله، اهل تهران و تنها فرزند خانواده، روز ۲۰ دی ۱۴۰۴ در شرق تهران توسط نیروهای امنیتی جمهوری اسلامی بازداشت شد.
-به روایت خانواده، در پاسخ به پیگیری‌هایشان گفته بودند نگران نباشند و علی صبح آزاد خواهد شد. اما روز بعد، ۲۱ دی، خبر جان‌باختنش را به آنها دادند و پیکرش را تحویل دادند. بنا بر همین روایت، پیکر علی در محدوده اتوبان امام علی تهران پیدا شده بود.
-علت مرگ او «ایست قلبی» اعلام شد؛ توضیحی که خانواده آن را محل تردید می‌دانند. چگونگی جان‌باختن علی پس از بازداشت و آنچه در فاصله بازداشت تا تحویل پیکرش رخ داده، همچنان روشن نیست.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263390
-
-<div align="center"><video src="files/post_263390_VahidOOnLine_263390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263390_VahidOOnLine_263390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صحبت‌های مادر جاویدنام سعید شیرالی در مراسم زادروز فرزندش.
-جاویدنام سعید شیرالی، ۲۲ ساله، روز ۱۸ دی ۱۴۰۴ در خیابان آزادی تهران، با شلیک مستقیم نیروهای جمهوری اسلامی جان باخت. بنا بر گزارش‌های رسیده، سه گلوله به پهلوی او اصابت کرد.
-پیکر سعید ابتدا در اختیار نهادهای امنیتی بود و تنها لباس‌ها و وسایل شخصی‌اش را به خانواده تحویل دادند.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263389
-
-<div align="center"><video src="files/post_263389_VahidOOnLine_263389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263389_VahidOOnLine_263389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنام عرفان قلی‌پور، ۲۸ ساله، مکانیک و اهل روستای کمانگرکلای بابل در استان مازندران، شامگاه ۱۸ دی ۱۴۰۴ در جریان اعتراضات مردمی مقابل کلانتری ۱۱ بابل، هدف شلیک مستقیم گلوله به سر قرار گرفت. او پس از چند ساعت کما، بر اثر شدت جراحات جان باخت.
-بنا بر گزارش‌های رسیده، نهادهای حکومتی تحویل پیکر عرفان را به پرداخت پول مشروط کردند و پیکرش چند ساعت دیگر در بیمارستان نگه داشته شد. خانواده او همچنین تحت فشار نیروهای امنیتی مجبور شدند علت جان‌باختنش را «سکته» اعلام کنند.
-پیکر عرفان در آرامستان کمانگرکلای بابل به خاک سپرده شد.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263388
-
-<div align="center"><video src="files/post_263388_VahidOOnLine_263388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263388_VahidOOnLine_263388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدرت‌الله محمدی، مدیرعامل سازمان آتش‌نشانی تهران، اعلام کرد نیروهای این سازمان در جریان حملات اسرائیل به ارتفاعات شمال تهران، تعدادی از «مسئولان بلندپایه نظام» را از محل اصابت خارج و نجات داده‌اند.
-بر اساس روایتی که قدرت‌الله محمدی در گفتگویی در صداوسیما بیان کرده است، پس از اصابت موشک به یکی از نقاط در ارتفاعات تهران، نیروهای آتش‌نشانی به محل اعزام شدند و تعدادی از مقام‌ها را از محل خارج کردند، اما «حدود ۱۰ دقیقه همان محل با ۳ موشک هدف قرار گرفت.»
-محمدی در این گفتگو به نام و مسئولیت این مقام‌ها اشاره نکرده است.
-بر اساس گزارش‌هایی که رسانه‌های رسمی ایران در روزهای جنگ منتشر کرده‌اند، این مقام آتش‌نشانی احتمالا به حملات هوایی روز ۹ فروردین ۱۴۰۵ در شمال تهران و محوطه تله‌کابین توچال اشاره می‌کند.
-از هدف قرار گرفتن مسئولان جمهوری اسلامی در جریان جنگ ایران و آمریکا و اسرائیل روایت‌های مختلفی مطرح شده است، اما این نخستین اشاره مستقیم آتش‌نشانی تهران به عملیات نجات آنها در ارتقاعات تهران است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263387
-
-<div align="center"><img src="files/post_263387_VahidOOnLine_263387.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-محمدجواد فاضل لنکرانی، مدرس حوزه علمیه، در ابتدای درس خارج فقه خود در صبح شنبه، با اشاره به تجمع‌های شبانه حامیان حکومت در برخی نقاط کشور، گفت: «این تجمع‌های شبانه باید گسترده‌تر شود و تا شکست کامل دشمن و انتقام خون رهبرمان، به هیچ‌وجه نباید کم‌رنگ گردد.»
-
-فاضل لنکرانی ادمه داد: «قوای نظامی ما در همین چند ماه قدم‌های بزرگ‌تری برداشته و سلاح‌های پیشرفته‌تری تهیه کرده‌اند و دشمن نیز خبر دارد.»
-
-او افزود: «اینکه دشمن بسیار لفاظی می‌کند، حرف می‌زند، ادعا می‌کند، دروغ می‌گوید و دائما در حال فیلم بازی کردن است، به این دلیل است که می‌داند ایران از جهت قدرت تسلیحاتی حتی از هفت ماه پیش هم بسیار قوی‌تر شده است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263386
-
-<div align="center"><img src="files/post_263386_VahidOOnLine_263386.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری مهر، عصر شنبه یازدهم مهر ماه، از شنیده شدن صدای انفجارهایی از جزیره قشم خبر داد.
-براساس این گزارش، صداهای شنیده‌شده از سمت دریا بوده است و ممکن است با شلیک به «کشتی‌های متخلف در تنگه هرمز» مرتبط باشد.
-همزمان رسانه وحیدآنلاین به نقل از ساکنان قشم نوشته است، چند موشک از این جزیره شلیک شده و قطعاتی از آن در خود جزیره سقوط کرده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263385
-
-<div align="center"><img src="files/post_263385_VahidOOnLine_263385.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منابع آگاه از وضعیت زندانیان سیاسی در زندان اوین به ایران‌اینترنشنال گفتند ۹ زن زندانی سیاسی در این زندان برای یک ماه از تماس تلفنی با خانواده‌های خود محروم شده‌اند. هم‌زمان، مینو روزه‌دار برای یک ماه از ملاقات با خانواده و وکیل و دریافت دارو، کتاب و لوازم ضروری محروم شده است.
-
-۹ زندانی مشمول این ممنوعیت گلرخ ایرایی، بیتا علی همتی، تارا و کیمیا داودی، مینو روزه‌دار، فاطمه پناه رضایی، سکینه پروانه، نسیم سیمیاری و غزل مرزبان هستند.
-
-به گفته منابع، مسئولان زندان دلیلی برای این ممنوعیت اعلام نکرده‌اند و زندانیان هنگام تماس متوجه مسدود شدن کارت‌های خود شدند.
-
-منابع گفتند روزه‌دار پس از برداشتن شال در بیمارستان از سوی یک نیروی امنیتی تهدید شد. مامور اعزام پس از بازگرداندن او به اوین، روزه‌دار را نزد نیروهای امنیتی مستقر در زندان برد.
-
-حفاظت زندان از تحویل کتاب‌های آموزشی روزه‌دار که پیش‌تر مجوز ورود به بند داشتند نیز خودداری کرده است.
-
-روزه‌دار مادر سه فرزند هفت، ۱۰ و ۱۲ ساله است. او طی سال‌های اخیر چهار بار بازداشت شده و از آخرین بازداشتش در دی ۱۴۰۴ تاکنون در اوین زندانی است.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

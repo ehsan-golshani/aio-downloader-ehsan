@@ -1,8 +1,93 @@
 # آرشیو کانال VahidOOnLine - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/07/24 01:45
+📅 آخرین بروزرسانی: 1405/07/24 03:54
 
 ---
+
+## VahidOOnLine — post 263435
+
+<div align="center"><video src="files/post_263435_VahidOOnLine_263435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263435_VahidOOnLine_263435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیت هگست، وزیر جنگ آمریکا، با اشاره به تحولات منطقه و وضعیت آبراه تنگه هرمز اعلام کرد که ابتکار عمل در این گذرگاه راهبردی در اختیار نیروهای آمریکایی است. او با تاکید بر اینکه ایران کنترلی بر این تنگه ندارد، گفت: «ایران می‌خواهد با مسائلی مانند تنگه هرمز بازی راه بیندازد، اما آن‌ها کنترلی بر آن ندارند. ما کنترل آن را در دست داریم.» هگست افزود: «آن‌ها به معنای واقعی کلمه نتوانسته‌اند هیچ چیزی را از این مسیر عبور دهند. محاصره ما فولادین و نفوذناپذیر بوده است و ما تقریبا در سطوح پیش از جنگ، هر شب تردد و جریان عبور و مرور را از آن برقرار نگه داشته‌ایم.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بارش شدید باران، شنبه‌شب، در ایذه خوزستان منجر به جاری شدن سیلاب، آب‌گرفتگی گسترده معابر و ورود آب به منازل مسکونی و مغازه‌ها شد. به گزارش فارس، این شرایط همچنین قطعی برق در بخش‌هایی از شهر را در پی داشت. بر اساس تصمیم مسئولان محلی، در پی این آب‌گرفتگی‌ها مدارس نوبت صبح ایذه در روز یکشنبه، ۱۲ مهرماه، به‌صورت «غیرحضوری» فعالیت می‌کنند، اما کلاس‌های شیفت بعدازظهر طبق روال عادی به‌شکل حضوری برگزار خواهد شد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263433
+
+<div align="center"><video src="files/post_263433_VahidOOnLine_263433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263433_VahidOOnLine_263433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، روز شنبه، با اشاره به تحولات جاری میان تهران و واشنگتن به خبرنگاران اعلام کرد که به‌زودی درباره ایران تصمیم‌گیری خواهد کرد. رئیس‌جمهوری آمریکا با تاکید بر اینکه «ایران درهم کوبیده شده است» گفت: «تصمیمی است که درباره ایران خواهم گرفت. تنها مسئله این است که یا از راه آسان خواهد بود یا از راه سخت. ما این موضوع را یا از راه آسان حل می‌کنیم یا از راه سخت.» او در ادامه افزود: «ضمنا همان‌طور که می‌دانید، ایران عملا از هرگونه برنامه‌ای برای دستیابی به سلاح هسته‌ای دست کشیده است.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263432
+
+<div align="center"><img src="files/post_263432_VahidOOnLine_263432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مدیر ارتباطات کاخ سفید، روز شنبه با انتشار پیامی در اکس نوشت: «حرف منفی‌باف‌ها را باور نکنید. عملیات طرد اقتصادی در حال در هم کوبیدن رهبران ایران است، در حالی که آمریکا در حال پیروزی است.» استیون چونگ با تاکید بر اثربخشی فشارهای همه‌جانبه علیه تهران افزود: «جریان نفت از تنگه هرمز همچنان برقرار است، صادرات نفت ایران به دلیل محاصره موفق ایالات متحده به‌طور کامل متوقف شده و تورم اقتصاد ایران را فلج کرده است.» چونگ گزارش بلومبرگ مبنی بر تورم نزدیک به ۹۰ درصدی، استقرار ناو هواپیمابر و تفنگداران جدید آمریکایی در منطقه و مهار صادرات نفت خام ایران را بازنشر کرد.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263431
+
+<div align="center"><img src="files/post_263431_VahidOOnLine_263431.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رییس‌جمهوری آمریکا، عصر شنبه ۱۱ مهر به وقت محلی، در گفت‌وگو با خبرنگاران و هنگام عزیمت به اوهایو گفت جمهوری اسلامی عملا در حال کنار گذاشتن هرگونه برنامه برای ساخت سلاح هسته‌ای است.
+
+ترامپ گفت: «ایران، همان‌طور که می‌دانید، عملا در حال کنار گذاشتن هرگونه برنامه برای ساخت سلاح هسته‌ای است.»
+
+رییس‌جمهوری آمریکا برای شرکت در یک گردهمایی انتخاباتی در دیتون و حمایت از جان هوستد، سناتور جمهوری‌خواه، راهی ایالت اوهایو شد.
+
+ترامپ در روزهای گذشته نیز بر جلوگیری از دستیابی جمهوری اسلامی به سلاح هسته‌ای تاکید کرده بود. او پنج‌شنبه ۹ مهر گفت ایران نباید سلاح هسته‌ای داشته باشد و درباره احتمال دستیابی به توافق با جمهوری اسلامی سخن گفت.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263430
+
+<div align="center"><img src="files/post_263430_VahidOOnLine_263430.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر پایه تازه‌ترین برآوردها و بررسی تازه‌ترین تصاویر ماهواره‌ای «کوپرنیک»، حجم آب دریاچه ارومیه به دو میلیارد و ۵۲۰ میلیون مترمکعب و وسعت پهنه آبی آن به ۱۹۴۶ کیلومتر مربع رسیده است. هرچند این ارقام در مقایسه با وسعت ۴۸۱ کیلومتر مربعی و حجم ۲۸۰ میلیون مترمکعبی دوره مشابه سال گذشته رشد محسوسی نشان می‌دهد، اما حجم کنونی نسبت به اواخر بهار کاهش ۱ میلیارد و ۷۸۰ میلیون مترمکعبی داشته و هنوز برای دستیابی به تراز اکولوژیک و پایداری زیست‌محیطی به ۱۲ تا ۱۳ میلیارد مترمکعب آب دیگر و پهنه‌ای به وسعت ۴۶۰۰ کیلومتر مربع نیاز است. در حال حاضر ورود آب به دریاچه تنها از طریق تونل انتقال آب کانی‌سیب و حوضه زاب به‌همراه زرینه‌رود ادامه دارد و با وجود قرار گرفتن سد بوکان در شرایط ذخیره‌سازی مناسب و رشد ۶۳ درصدی مخازن سدهای آذربایجان غربی نسبت به سال قبل، سایر رودخانه‌های شمالی و جنوبی آورد قابل‌توجهی برای دریاچه نداشته‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263429
+
+<div align="center"><img src="files/post_263429_VahidOOnLine_263429.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش «تجارت‌نیوز»، بهای دینار عراق در جریان معاملات روز شنبه ۱۱ مهرماه همسو با روند صعودی سایر ارزها جهش قابل‌توجهی را تجربه کرد و هر هزار دینار در بازار آزاد تهران به ۱۸۲ هزار تومان رسید. همزمان بازار طلا، سکه و سایر ارزها نیز در بعدازظهر شنبه با رشد چشمگیری همراه شدند، به‌گونه‌ای که دلار آمریکا تا سطح ۲۶۸ هزار و ۸۰۰ تومان، یورو به ۳۰۲ هزار و ۲۰۰ تومان، پوند بریتانیا به ۳۵۲ هزار تومان و درهم امارات به ۷۳ هزار و ۱۰۰ تومان افزایش یافتند و در بازار فلزات گران‌بها نیز هر گرم طلای ۱۸ عیار با عبور از ۲۶ میلیون و ۳۶۰ هزار تومان و سکه امامی با رشد حدود ۶.۹ میلیون تومانی نسبت به ساعات صبح، به رکورد ۲۷۰ میلیون و ۹۰۰ هزار تومان رسید.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 263428
 
@@ -183,106 +268,6 @@ Indypersian
 روح‌الله لک علی‌آبادی، نایب‌رییس کمیسیون بهداشت مجلس، به خبرگزاری خانه ملت گفت: «آمریکا سعی دارد از یک سو با تحرکات نظامی در منطقه و از سوی دیگر با فضاسازی تبلیغاتی برای آماده‌سازی افکار عمومی جهان، زمینه را برای حمله به ایران فراهم کند.»
 
 این نماینده مجلس اضافه کرد: «آمریکا می‌خواهد با ربط دادن حوادث مربوط به پرواز فلای‌دبی به ایران، جمهوری اسلامی را مقصر اصلی آن معرفی کند و افکار عمومی را برای حمله به ایران با خود همراه کند.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263415
-
-<div align="center"><img src="files/post_263415_VahidOOnLine_263415.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ابوذر شیرودی، رئیس سازمان هواپیمایی ایران، روز شنبه یازدهم مهر ماه اعلام کرد پروازهای شرکت‌های هواپیمایی ایرانی و عراقی در مسیر ایران و عراق از روز یکشنبه از سرگرفته می‌شوند.
-به گزارش خبرگزاری ایرنا، ابوذر شیرودی از مسافران خواست پیش از مراجعه به فرودگاه، آخرین وضعیت و زمان پرواز خود را از طریق درگاه‌های رسمی شرکت هواپیمایی مربوطه یا اطلاعات پرواز فرودگاه مبدا پیگیری کنند.
-دفتر نخست وزیری عراق روز جمعه اعلام کرده بود، پس از دریافت معافیت از واشنگتن با روزانه ۴۰ پرواز رفت و برگشت شرکت‌های هواپیمایی ایران از فرودگاه بین‌المللی نجف موافق شده است. بر اساس این بیانیه، شرکت هواپیمایی ماهان از این توافق مستثنی شده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263414
-
-<div align="center"><video src="files/post_263414_VahidOOnLine_263414.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263414_VahidOOnLine_263414.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه خبری العربیه روز شنبه یازدهم مهرماه با انتشار ویدیویی گزارش داد تیپ‌های «العمالقه» که در کنار نیروهای دولتی یمن علیه حوثی‌ها می‌جنگند یک خودرو متعلق به حوثی‌ها را در جبهه کَهبوب در نزدیکی تنگه باب‌المندب منهدم کردند و افراد حاضر در این خودرو نیز کشته شدند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263413
-
-<div align="center"><video src="files/post_263413_VahidOOnLine_263413.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263413_VahidOOnLine_263413.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-In January 2026, Iran’s internet was shut down. With no foreign journalists on the ground and no independent reporting, much of what happened was recorded by the people who were there. Across the country, people filmed protests, shootings, arrests, the wounded, the dead and the aftermath. Their footage reached the outside world in fragments, often without clear dates, locations or context.
-
-This Is Our Story brings these images together with first-hand accounts from eyewitnesses, survivors and bereaved families, revealing how events unfolded and what people experienced. The documentary restores context to isolated clips, preserves testimony and creates a fuller record of what happened. English subtitles make that record accessible beyond Iran.
-All four episodes are available on Manoto’s youtube channel (bio).
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263412
-
-<div align="center"><video src="files/post_263412_VahidOOnLine_263412.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263412_VahidOOnLine_263412.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دهم مهر، زادروز جاویدنام اکبر حسن‌پور است؛ پدر دو دختر و فوتبالیست پیشین تیم همای تهران که در اعتراضات دی‌ماه ۱۴۰۴ جان باخت.
-اکبر، متولد ۱۰ مهر ۱۳۵۸، هنگام کشته‌شدن ۴۶ سال داشت. شامگاه ۱۹ دی برای شرکت در اعتراضات به گوهردشت کرج رفت و هدف تیراندازی نیروهای جمهوری اسلامی قرار گرفت. آن شب به خانه بازنگشت و خانواده‌اش، بی‌خبر از سرنوشت او، جست‌وجو را آغاز کردند.
-پس از دو روز پیگیری، خانواده پیکر اکبر را در سردخانه بهشت‌سکینه کرج پیدا کردند. به روایت نزدیکانش، دو گلوله به پهلوی او اصابت کرده بود.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263411
-
-<div align="center"><video src="files/post_263411_VahidOOnLine_263411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263411_VahidOOnLine_263411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنام علیرضا امانی، ۲۳ ساله و اهل آب‌پخش شهرستان دشتستان در استان بوشهر، روز ۱۸ دی ۱۴۰۴ در جریان اعتراضات با اصابت گلوله جنگی نیروهای حکومتی جان باخت. پیکر او پس از چند روز پیگیری خانواده تحویل داده شد و در روستای چهاربرج به خاک سپرده شد.
-مراسم چهلم علیرضا در بهمن‌ماه، با حضور گسترده مردم، شعرخوانی و شعارهای اعتراضی بر سر مزارش برگزار شد. خواهرش سخنان خود را چنین آغاز کرد: «به نام وطن، به نام ایران، به نام آزادی و به نام خون جوانانی که بر خاک افتادند تا ما بایستیم... ما را به خاک نشاندید… اما خاک وطن ماست و از دل وطن دوباره پر می‌کشیم.»
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263410
-
-<div align="center"><video src="files/post_263410_VahidOOnLine_263410.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263410_VahidOOnLine_263410.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درد دل مادر جاویدنام نازنین‌زهرا صالحی در زادروز خودش، بر سر مزار دخترش.
-جاویدنام نازنین‌زهرا صالحی، ۱۳ ساله و اهل کرمانشاه، شامگاه ۱۹ دی ۱۴۰۴ در جریان اعتراضات، هنگام حضور در پارکی در بلوار کیهانشهر، از فاصله نزدیک هدف شلیک مستقیم نیروهای حکومتی قرار گرفت و جان باخت.
-نازنین‌زهرا متولد ۲۹ تیر ۱۳۹۱ و شاگرد اول مدرسه بود. زبان‌های انگلیسی و کره‌ای را به‌صورت خودآموز یاد گرفته بود و در رشته ووشو عنوان‌های قهرمانی استانی و کشوری داشت.
-پیکر این نوجوان روز ۲۱ دی ۱۴۰۴ در کرمانشاه به خاک سپرده شد.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263409
-
-<div align="center"><video src="files/post_263409_VahidOOnLine_263409.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263409_VahidOOnLine_263409.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک دانش‌آموز با ارسال ویدیویی به ایران‌اینترنشنال، از هموطنان خود خواست که در دنیا صدای دانش‌آموزان ایرانی باشند.
 IranintlTV
 
 🤖 @VahidOOnLine
