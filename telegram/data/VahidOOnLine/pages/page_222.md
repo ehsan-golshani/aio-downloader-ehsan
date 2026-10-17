@@ -1,8 +1,77 @@
 # آرشیو کانال VahidOOnLine - صفحه 222
 
-📅 آخرین بروزرسانی: 1405/07/25 03:23
+📅 آخرین بروزرسانی: 1405/07/25 05:17
 
 ---
+
+## VahidOOnLine — post 257734
+
+<div align="center"><img src="files/post_257734_VahidOOnLine_257734.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+محمدرضا نقدی، مشاور عالی فرمانده کل سپاه پاسداران، به المیادین، گفت بیش از ۹۰ درصد ذخایر موشکی جمهوری اسلامی دست‌نخورده باقی مانده و شبکه تولید موشکی جمهوری اسلامی «پایدار و خودکفا» است.
+
+نقدی گفت: «ما تعهداتی را که شورای عالی امنیت ملی اعلام کرده است، اجرا می‌کنیم، اما دشمن باید بداند اگر به ما حمله کند، بهای سنگینی خواهد پرداخت.»
+
+او همچنین گفت: «آنچه تاکنون انجام داده‌ایم، جنگ متعارف بوده و هنوز وارد جنگ نامتقارن نشده‌ایم.»
+
+مشاور عالی فرمانده کل سپاه پاسداران درباره منظور خود از جنگ نامتقارن افزود: «جنگ نامتقارن یعنی جنگ در وال‌استریت، منهتن و هر مکان و هر زمان.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257733
+
+<div align="center"><img src="files/post_257733_VahidOOnLine_257733.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری تسنیم، وابسته به سپاه پاسداران، گزارش داد که یکی از مجروحان حمله یکشنبه شب ارتش آمریکا به جزیره لارک در استان هرمزگان، بر اثر شدت جراحات کشته شد و شمار افراد کشته شده در این حمله به ۳ نفر افزایش یافت.
+
+بر اساس این گزارش، در پی حمله شب گذشته آمریکا به نقطه‌ای در جزیره لارک، ۲ نفر کشته شدند و چند نفر نیز مجروح شدند؛ مجروحان این حمله برای مداوا به بیمارستان منتقل شدند که ساعاتی بعد، یکی از آنان نیز بر اثر شدت جراحات کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوی رسیده به ایران‌اینترنشنال، کارکنان شرکت آریان فولاد در قزوین دوشنبه نهم شهریور به دلیل نبود برق و تعطیل بودن کارخانه تظاهرات کردند.
+﻿بر اساس گزارش‌ها حدود پنج ماه است که برق این مجموعه به صورت کامل قطع شده و هیچ‌گونه فعالیت تولیدی ندارد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257731
+
+<div align="center"><img src="files/post_257731_VahidOOnLine_257731.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ریچ مک‌کورمیک، نماینده کنگره آمریکا، در ایکس نوشت: «حکومت ایران بارها و بارها ثابت کرده است که نمی‌توان به آن اعتماد کرد. این حکومت آمریکایی‌ها را هدف قرار داده، به تروریسم در سراسر منطقه دامن زده و بارها جهان را درباره جاه‌طلبی‌های هسته‌ای خود فریب داده است.»
+
+مک‌کورمیک نوشت: «ما باید این جنگ را به شکلی قاطع به پایان برسانیم.»
+
+عضو مجلس نمایندگان آمریکا همچنین نوشت که باید اطمینان حاصل کنیم که جمهوری اسلامی هرگز دوباره توانایی تهدید مردم آمریکا را نداشته باشد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257730
+
+<div align="center"><video src="files/post_257730_VahidOOnLine_257730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257730_VahidOOnLine_257730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بر اساس ویدیوهای رسیده به ایران‌اینترنشنال گروهی از بازنشستگان مخابرات در اصفهان دوشنبه نهم شهریور در اعتراض به مشکلات معیشتی خود تجمع کرده و شعار دادند: «اعتماد مبین سپاه، حق ماها رو خورده»
+﻿اشاره آنها به «شرکت توسعه اعتماد مبین» است که سال ۱۳۸۸ حدود ۵۰ درصد به علاوه یک سهم از سهام شرکت مخابرات ایران را خریداری کرد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 257729
 
@@ -230,80 +299,6 @@ IranintlTV
 
 پیش‌تر روابط عمومی ارتش جمهوری اسلامی اعلام کرده بود با ده‌ها پهپاد این پایگاه را هدف حمله قرار داده است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257660
-
-<div align="center"><video src="files/post_257660_VahidOOnLine_257660.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257660_VahidOOnLine_257660.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سپاه پاسداران، در نخستین ساعات بامداد دوشنبه نهم شهریورماه، ویدیوی شلیک پهپاد و موشک به سوی پایگاه‌های نظامی ملک حسین و الازرق اردن را منتشر کرد.
-
-سپاه می‌گوید این حملات در چارچوب عملیات «تنبیه متجاوز» و در پاسخ به حمله آمریکا به جزیره لارک انجام شده است.
-
-اردن اعلام کرد سامانه دفاع ضدهوایی این کشور ۸ موشک ایرانی را در آسمان رهگیری کرده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257659
-
-<div align="center"><video src="files/post_257659_VahidOOnLine_257659.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257659_VahidOOnLine_257659.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال، برگزاری مراسم تولد جاویدنام محمدحسین جمشیدی را بر سر مزارش نشان می‌دهد.
-﻿محمدحسین، ۱۹ دی‌ماه ۱۴۰۴ در حصار کرج به دست ماموران جمهوری اسلامی کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257658
-
-<div align="center"><img src="files/post_257658_VahidOOnLine_257658.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع امارات متحده عربی روز دوشنبه نهم اسفند اعلام کرد با یک پهپاد ایران بر فراز آب‌های سرزمینی این کشور مقابله کرده است.
-
-در بیانیه وزرات دفاع امارات  اشاره‌ای به رهگیری یا انهدام پهپاد «متخاصم» شلیک شده از ایران نشده است.
-
-ارتش جمهوری اسلامی ساعاتی پیش از حمله گسترده پهپادی به پایگاه المهناد ارتش آمریکا در خاک امارات متحده عربی خبر داده بود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257657
-
-<div align="center"><img src="files/post_257657_VahidOOnLine_257657.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وزارت دفاع امارات متحده عربی، دوشنبه نهم شهریور در بیانیه‌ای، اعلام کرد نیروهای هوایی این کشور با یک پهپاد که «از سمت ایران» وارد آب‌های سرزمینی امارات شده بود، مقابله کرده‌ است.
-
-در این بیانیه آمده است نیروهای مسلح در آماده‌باش کامل قرار دارند و سامانه‌های پدافند هوایی به‌صورت شبانه‌روزی به رصد و پایش حریم هوایی ادامه می‌دهند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257656
-
-<div align="center"><video src="files/post_257656_VahidOOnLine_257656.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257656_VahidOOnLine_257656.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جعفر پناه‌پور، محیط‌‌‌بان و عکاس حیات وحش، تصاویری از گله قوچ‌های اوریال را در حساب اینستاگرام خود منتشر کرد و نوشت «قوچ اوریال از بزرگ‌ترین گوسفندسان وحشی ایران است و یکی از شاخص‌ترین پستانداران مناطق کوهستانی شمال و شمال‌شرق کشور به شمار می‌رود.»
-
-پارک ملی گلستان که در شرق استان گلستان و غرب استان خراسان شمالی واقع شده، یکی  از بهترین زیستگاه‌های گونه‌های جانوری مانند گرگ، وشق (سیاه‌گوش)، پلنگ، خرس قهوه‌ای، شوکا، گوسفند وحشی اوریال و آهوی ایرانی است.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
