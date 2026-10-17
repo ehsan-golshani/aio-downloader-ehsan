@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/25 09:59
+📅 آخرین بروزرسانی: 1405/07/25 14:41
 
 ---
+
+## tasiyanc — post 9985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9984
+
+<div align="center"><video src="files/post_9984_tasiyanc_9984.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9984_tasiyanc_9984.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۶ کانفیگ پرمیوم سرعتی OpenVpn 
+📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب
+
+
+👈 دریافت کانفیگ ها 
+➡️
+
+
+لوکیشن : 
+🇩🇰
+🇪🇸
+🇫🇮
+🇮🇪
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9983
+
+<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9982
 
@@ -260,33 +310,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9961
-
-<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت برگ ریزان گوشی ۱۴ شهریور
-
-یه موبایل میان رده هم شد آرزو!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9959
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حسن روحانی:
-هیچکس از طرف خدا حاکم نشده. همتون مستقیم و غیرمستقیم با رای مردم مسئولیت دارید. از اون بالایی تا پایینی‌. پس ببینید مردم چی میگن؛ همون کارو کنید. اگه میخواید ۲۰ سال دیگه با دنیا بجنگید اول باید مردم موافق باشن. اون که پیغمبرش بود و به خدا وصل بود مشورت میکرد؛ حالا شما کی هستید؟!
 
 💋 @Tasiyanc
 </div>
