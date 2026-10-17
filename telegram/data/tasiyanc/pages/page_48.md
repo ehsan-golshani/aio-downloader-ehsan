@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 9732
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9731
 
@@ -274,18 +282,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وقتشه درامد دلاری به جیب بزنی ✅
 همین حالا وارد کانال هانتر بت شو👇
-
-@HUNTTER_BET
-@HUNTTER_BET
-@HUNTTER_BET
-</div>
-
-## tasiyanc — post 9698
-
-<div align="center"><img src="files/post_9698_tasiyanc_9698.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😶🚨🚨 این کانال باعث ورشکستگی خیلی از سایتای بت شده و پلیس FBI برای دستگیری ادمینای این چنل جایزه تعیین کرده🔥
 
 @HUNTTER_BET
 @HUNTTER_BET

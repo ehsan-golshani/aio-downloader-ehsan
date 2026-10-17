@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10793
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از حدیث ستاری، دندانپزشک و مدل ایرانی در مسابقات میس گلوبال، در بخش لباس‌ملی با طرحی به نام «پرشیا» روی صحنه درخشید؛ لباسی الهام‌گرفته از شکوه ایران باستان که جلوه‌ای از تاریخ و هویت ایران را به نمایش گذاشت.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10791
 
@@ -330,18 +339,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 💎ادرس عضویت کانال vip:
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10770
-
-<div align="center"><video src="files/post_10770_tasiyanc_10770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10770_tasiyanc_10770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 پروتز ممه رنگی هم اومد و به ایران هم رسیده گویا
-
-فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
-⚡ @Tasiyanc
 </div>
 

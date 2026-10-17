@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10229
+
+<div align="center"><video src="files/post_10229_tasiyanc_10229.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10229_tasiyanc_10229.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این کلیپ زیبا از جاویدنام‌های عزیزمون رکورد لایک و ویو رو زده و تو کمتر از یه روز، بیش از ۵ میلیون لایک خورده!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10227
 
@@ -218,21 +231,5 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 + نکته جالب ۳ استان اولی ترکا هستن آخری‌ام بلوچا
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-🩸 @Tasiyanc
 </div>
 

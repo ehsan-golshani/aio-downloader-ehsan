@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 133
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 7114
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرتغال رید ، مساوی کردیم
+</div>
 
 ## tasiyanc — post 7112
 
@@ -251,13 +257,5 @@ https://persianasports.com/live.html
 
 @Tasiyanc 
 ✅ | تاسیان
-</div>
-
-## tasiyanc — post 7080
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شب نشینی با تاسیان😁
-🦦
-https://t.me/+DhVkjFb6qhZmYTFk
 </div>
 

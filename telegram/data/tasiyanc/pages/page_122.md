@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 7518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😐😐😐😐 آلمان حذف شد
+</div>
 
 ## tasiyanc — post 7517
 
@@ -194,11 +200,5 @@ ESPRESSO 🔥☕.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️مذاکرات تهران و واشینگتن ک قرار بود این هفته برگزار بشه لغو شد
-</div>
-
-## tasiyanc — post 7474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار هم اکنون 174000 😐
 </div>
 

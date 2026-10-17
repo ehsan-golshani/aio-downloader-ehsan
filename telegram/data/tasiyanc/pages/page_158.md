@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 158
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 6310
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+لوگو چنل مرتبط با اسم تغییراتی کوچک دادیم ، گممون نکنین ❤️
+</div>
 
 ## tasiyanc — post 6308
 
@@ -201,11 +207,5 @@ Join As @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ سرعتی (2).npvt
-</div>
-
-## tasiyanc — post 6286
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Green Eyes ⚡💚.npvt
 </div>
 

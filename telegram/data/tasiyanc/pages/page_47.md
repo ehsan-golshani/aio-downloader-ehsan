@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9753
 
@@ -219,14 +231,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 فوری پرواز های مهرآباد لغو شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
 
 🩸 @Tasiyanc
 </div>

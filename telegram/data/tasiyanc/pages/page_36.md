@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10029
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تغییرات جدید کنکور اعلام شد:
+
+بر اساس مصوبه جدید، در کنکور ۱۴۰۵ نمرات امتحانات نهایی پایه یازدهم فقط به‌ صورت «تأثیر مثبت» و نمرات پایه دوازدهم به‌ صورت «تأثیر قطعی» در نتیجه کنکور اعمال میشه. سهم سوابق تحصیلی هم همچنان ۶۰ درصد خواهد بود.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10028
 
@@ -312,18 +322,6 @@ til.ac/0L4vyJf
 ساعاتی پیش گروهک های تروریستی، ۲ عضو سپاه رو در زاهدان شهید کردن
 
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10002
-
-<div align="center"><video src="files/post_10002_tasiyanc_10002.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10002_tasiyanc_10002.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ حاوی تصاویر دلخراش 
-🚨جوان همدانی خودشو چندساعت پیش تو شهر جلوی بقیه آتیش زد هنوز اطلاعات دقیقی از علت این خودسوزی بیرون نيومده ولی دادستان همدان گفته این جوون دارای مشکلات روحی و روانی بوده و درحال حاضر هم تو بیمارستان بستریه... 
 💋 @Tasiyanc
 </div>
 

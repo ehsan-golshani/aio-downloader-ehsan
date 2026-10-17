@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 9643
+
+<div align="center"><video src="files/post_9643_tasiyanc_9643.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9643_tasiyanc_9643.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+•سرور ایران مخصوص گیم( پایداری پینگ )
+
+•مناسب دانلود - وبگردی - اینستاگرام 
+📸
+
+آموزش اتصال 
+
+در صورت ارور چند بار بزنید
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9639
 
@@ -332,15 +355,5 @@ https://t.me/+86B34ioXJtUwODg6
 ایران اینترنشنال و کارمندانش رو باید در بانک اهداف نظامی قرار بدیم.
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

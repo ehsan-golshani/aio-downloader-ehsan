@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10296
+
+<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
+تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
+
+مراقب باجناق هاتون باشید🐸
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 10295
 
@@ -312,20 +326,6 @@ Join Join Join
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10257
-
-<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 خبرگزاری فارس :
-احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
-
 
 💋 @Tasiyanc
 </div>

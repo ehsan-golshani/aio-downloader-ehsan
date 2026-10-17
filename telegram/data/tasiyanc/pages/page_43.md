@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 9863
+
+<div align="center"><img src="files/post_9863_tasiyanc_9863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠ایران‌خودرو تو کمتر از 90 روز بار دیگر قیمت خودروهایش را گرون کرد...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9862
 
@@ -328,19 +338,5 @@ til.ac/0L4vyJf
 دنبال این نیستم ایران رو بکشم به میز مذاکره ؛ این مردم ایران پس کِی میخوان قیام کنن و بجنگن؟
 
 🩸@Tasiyanc
-</div>
-
-## tasiyanc — post 9838
-
-<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
-
-+ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
-
-🩸 @Tasiyanc
 </div>
 

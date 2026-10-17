@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 9838
+
+<div align="center"><video src="files/post_9838_tasiyanc_9838.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9838_tasiyanc_9838.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠علی میررضایی خواننده‌ی معروف مازنی سحرگاه امروز اعدام شد
+
++ علی چندی پیش در یکی از کافه ها با یکی درگیر شده و مرتکب قتل شده بود
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9837
 
@@ -252,16 +266,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچ جای نگرانی نیست، حجابش کامله!
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9817
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
-+ متاسفانه این حادثه کشته داده
 
 
 🩸 @Tasiyanc

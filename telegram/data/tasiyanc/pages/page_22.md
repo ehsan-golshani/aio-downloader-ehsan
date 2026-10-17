@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 استوری امجد امینی پدر «مهسا امینی» با پرچم احزاب کرد و افکار تجزیه طلبانه این شغال کفتار صفت 🔴در اینستاگرام هم پستی گذاشته که اسمی از ایران نیاورده ، یعنی انقد سخته اسم ایرانو بیاری؟؟ مردم این کشور هزینه کمی در اعتراضات به کشته شدن مهسا و آزادی ندادن که…
+</div>
 
 ## tasiyanc — post 10416
 
@@ -333,19 +339,5 @@ Act as a motivational coach
 لوکیشن 🇸🇪
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10394
-
-<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
-
-خب لامصب یه بار لخت شو بیا 😐
-
-💋 @Tasiyanc
 </div>
 

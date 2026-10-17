@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/07/25 00:59
+📅 آخرین بروزرسانی: 1405/07/25 09:59
 
 ---
+
+## tasiyanc — post 10370
+
+<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10369
 
@@ -304,22 +317,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴فاطمه پوراسماعیل، مشاور خونواده: از ۵ هزار خانم متاهلی که بهم مراجعه کردن، بیش از ۷۰ درصدشون، کنار شوهر، دوست پسر هم داشتن!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10348
-
-<div align="center"><img src="files/post_10348_tasiyanc_10348.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-25 شهریور؛ چهار سال از مرگ مهسا «ژینا» امینی گذشت.
-
-22 شهریور 1401، این دختر 22 ساله در تهران توسط گشت ارشاد بازداشت شد و چند روز بعد در بیمارستان کسری جان باخت.
-روایت حکومت، علت مرگ رو مشکلات پزشکی اعلام کرد؛ خانواده‌اش این ادعا رو رد کردن. هیئت حقیقت‌یاب سازمان ملل نیز در گزارش خود، مرگ ژینا رو مرتبط با خشونت فیزیکی دونست.
-
-مرگ ژینا آغازگر اعتراضات گسترده «زن، زندگی، آزادی» شد؛ اعتراضی که نام مهسا امینی رو به یکی از نمادهای مهم این جنبش تبدیل کرد
 
 
 ⚡ @Tasiyanc
