@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 52226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd8960b9810070b6dea7e1f7e2f564b461
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Yaghoub.Leys.Safari.ir.igakwvwa.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52224
 
@@ -158,24 +176,6 @@ Secret: ee214011ba04108a7b1836df3a5e918b3b7261646539342e746964656c61726b2e6363
 </div>
 
 ## ProxyMTProto — post 52207
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52206
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: vile82.tidelark.cc
-Port: 443
-Secret: ee8e5533d984ca2ffa568ec9e78963210476696c6538322e746964656c61726b2e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52205
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

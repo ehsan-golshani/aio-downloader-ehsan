@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/25 17:57
+📅 آخرین بروزرسانی: 1405/07/26 01:32
 
 ---
+
+## tasiyanc — post 10845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
+</div>
+
+## tasiyanc — post 10844
+
+<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
+
+https://t.me/+EADakrBU74wyOGVk
+https://t.me/+EADakrBU74wyOGVk
+
+تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
+</div>
+
+## tasiyanc — post 10843
+
+<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
+
+ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10842
 
@@ -243,43 +277,5 @@ https://t.me/+zhWRXOtmyEE5ZjVk
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌✅ Link 🔜 MelBet1.net
 ✅‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10825
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 30 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-
-با وارد کردن این فایل داخل نپستر 30 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-
-آموزش اتصال :
-https://t.me/TasiyanVpn/24
-برنامه اندروید:
-https://play.google.com/store/apps/details?id=com.napsternetlabs.napsternetv
-برنامه آیفون :
-https://apps.apple.com/us/app/npv-tunnel/id162946547
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10824
-
-<div align="center"><video src="files/post_10824_tasiyanc_10824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10824_tasiyanc_10824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

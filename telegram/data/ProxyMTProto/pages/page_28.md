@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 51686
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51685
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51684
 
@@ -158,24 +176,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 </div>
 
 ## ProxyMTProto — post 51667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51666
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: top.mishutkin.click
-Port: 443
-Secret: ee4b5ba12e11065746126723c1a1baf54d64726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51665
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

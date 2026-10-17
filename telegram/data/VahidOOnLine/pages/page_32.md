@@ -1,8 +1,50 @@
 # آرشیو کانال VahidOOnLine - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 264479
+
+<div align="center"><video src="files/post_264479_VahidOOnLine_264479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_264479_VahidOOnLine_264479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام امید باقری، ۳۳ ساله، از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ بود که شامگاه ۱۸ دی‌ماه در خیابان مخابرات اراک بر اثر اصابت گلوله به سر جان خود را از دست داد.
+امید متولد ۶ خرداد ۱۳۷۱ و نصاب آسانسور بود.
+بر اساس روایت‌های منتشرشده، امید هنگام تلاش برای خنثی‌کردن گاز اشک‌آور هدف گلوله قرار گرفت.
+پیکر امید پس از چهار روز بی‌خبری به خانواده‌اش تحویل داده شد. خانواده او همچنین مجبور شدند پیکرش را در ساعات اولیه صبح و در تاریکی، تحت تدابیر شدید امنیتی به خاک بسپارند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 264478
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام محمدرضا قربانی، ۱۸ ساله، اهل شاهین‌شهر اصفهان و از جان‌باختگان اعتراضات دی‌ماه ۱۴۰۴ بود که شامگاه ۱۸ دی‌ماه بر اثر شلیک مستقیم نیروهای امنیتی جمهوری اسلامی جان خود را از دست داد.
+بر اساس گزارش‌های منتشرشده، او مقابل یکی از پایگاه‌های بسیج هدف شلیک گلوله جنگی از پشت سر قرار گرفت. خانواده محمدرضا پس از پنج روز پیکر او را تحویل گرفتند و پدرش توانست پیکر فرزندش را از روی خال‌کوبی روی دست او شناسایی کند.
+پیکر محمدرضا قربانی سرانجام در گلزار شهدای رهنان اصفهان به خاک سپرده شد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 264477
+
+<div align="center"><video src="files/post_264477_VahidOOnLine_264477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_264477_VahidOOnLine_264477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی عبداللهی، رئیس ستادکل نیروهای مسلح جمهوری اسلامی و فرمانده قرارگاه مرکزی خاتم‌الانبیا، روز شنبه ۱۸ مهر ماه اعلام کرد در جریان دو جنگ ۱۲ و ۴۰ روزه، تعدادی از مراکز فرماندهی انتظامی کشور هدف حمله قرار گرفتند و تعدادی از نیروهای پلیس نیز کشته شدند.
+
+به گزارش ایرنا، عبداللهی در حاشیه دیدار با احمدرضا رادان، فرمانده کل انتظامی جمهوری اسلامی، گفت: «مکان‌های زیادی از فرماندهی انتظامی کشور مورد اصابت قرار گرفته است و تعدادی از عزیزان ما به شهادت رسیدند، اما فراجا محکم و استوار ایستاده است.»
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 264476
 
@@ -265,49 +307,6 @@ IranintlTV
 
 انتخابات کنگره در ۱۲ آبان ۱۴۰۵ برگزار می‌شود و کنگره جدید قرار است در ۱۳ دی ۱۴۰۵ آغاز به کار کند.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 264434
-
-<div align="center"><video src="files/post_264434_VahidOOnLine_264434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_264434_VahidOOnLine_264434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مروری بر مهم‌ترین اخبار و تحولات شنبه ۱۸ مهر ۱۴۰۵.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 264433
-
-<div align="center"><img src="files/post_264433_VahidOOnLine_264433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیمیتری پسکوف، سخنگوی کرملین، شنبه ۱۸ مهر گفت که ولادیمیر پوتین، رییس‌جمهوری روسیه، پس از دو دیدار با مسعود پزشکیان، رییس دولت جمهوری اسلامی، دیدگاه تهران درباره راه‌حل احتمالی پایان جنگ را به دونالد ترامپ، رییس‌جمهوری آمریکا، منتقل کرده است.
-
-پسکوف به خبرنگاران گفت که پوتین در حاشیه نشست سران در ترکمنستان دو بار با پزشکیان دیدار کرده و در یکی از این دیدارها، او را از گفت‌وگوی تلفنی پیش روی خود با ترامپ مطلع کرده است.
-
-سخنگوی کرملین افزود: «پس از آن، پوتین با هماهنگی رییس‌جمهوری ایران، دیدگاه طرف ایرانی درباره راه‌حل احتمالی برای پایان دادن به این مناقشه را به ترامپ منتقل کرد.»
-
-پسکوف جزییات بیشتری درباره محتوای موضع ایران، پیشنهادهای احتمالی تهران برای پایان جنگ یا واکنش ترامپ به پیام منتقل‌شده ارائه نکرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 264432
-
-<div align="center"><video src="files/post_264432_VahidOOnLine_264432.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_264432_VahidOOnLine_264432.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای ارسالی به ایران اینترنشنال نشان می‌دهد که در آمریکا گروهی از ایرانیان ساکن سن‌خوزه کالیفرنیا جمعه ۱۷ مهر، همزمان با جشن مهرگان، علیه جمهوری اسلامی راهپیمایی سکوت برگزار کردند و ضمن حمایت از انقلاب ملی، یاد جاویدنامان و اعدام‌شدگان را گرامی داشتند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

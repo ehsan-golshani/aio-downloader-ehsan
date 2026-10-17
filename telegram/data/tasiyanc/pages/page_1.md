@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/25 17:57
+📅 آخرین بروزرسانی: 1405/07/26 01:32
 
 ---
+
+## tasiyanc — post 10886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
+</div>
+
+## tasiyanc — post 10885
+
+<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢
+🦁به جمع کاربران لوکس ما بپیوندید🦁
+❤️‍🔥بری‌بت❤️‍🔥
+
+😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
+🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
+💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
+🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
+
+💻 ورود به سایت 👇
+⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+🦁 کانال تلگرام: 🅰25
+⚫️https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10884
+
+<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
+
+• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
+•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
+•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10883
 
@@ -286,74 +330,5 @@ G24🅰
 یه بچه هم داشتن که با آزمایش DNA مشخص میشه باباش مرده نیست ، در نهایت فرار زن به دبی و ماندن مرد با شکایت و حقیقتی که زندگی‌اش را زیرورو کرد…
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10865
-
-<div align="center"><img src="files/post_10865_tasiyanc_10865.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جنایتی تازه که مشهد رو در شوک فرو برد!
-
-یه دختر ۱۶ ساله به اسم یگانه حسین‌زایی توی مشهد، به فجیع‌ترین شکل ممکن توسط شوهرش به قتل رسید!
-تمام انگشتای یگانه و استخوان‌های دستش خرد شده بود! همچنان شوهرش با کابل جوری کتکش زده بود که کل بدنش کبود بود و چهره‌اش قابل تشخیص نبود!
-یگانه رو از ۱۰ سالگی به عقد پسرعمه‌اش درآورده بودن. یگانه از سه سالگی پدرشو از دست داد و مادرشم یگانه رو به مادر و پدربزرگش سپرد و خودش ازدواج کرد!
-پدربزرگِ یگانه وقتی فوت شد، اموالش به یگانه رسید، برای همین پسر عمه‌اش، باهاش ازدواج کرد تا اموالش رو بالا بکشه!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10864
-
-<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
-💵
-🛍
-👆
-</div>
-
-## tasiyanc — post 10863
-
-<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-
-🔥 مسابقات امروز 
-👍
-
-⚽️ اینتراخت فرانکفورت - کلن
-
-🌎 ساعت ۲۲:۰۰
-⚽️ دپورتیوولاکرونیا - لوانته
-
-🌎 ساعت ۲۲:۳۰
-
-﻿
-
-💸 ضرایب ویژه و رقابتی
-
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r24
-
-🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
 </div>
 

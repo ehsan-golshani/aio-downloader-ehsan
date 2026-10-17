@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 52166
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: redflag.yazaebalsyadelatproxy.vip
+Port: 443
+Secret: ee899032aa75159cc1d735f15e7a0e3a6e726564666c61672e79617a616562616c73796164656c617470726f78792e766970
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52164
 
@@ -163,24 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: web.arixo.shop
 Port: 443
 Secret: dd27e57f496bbf279605f0198ea6d26067
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: saboon.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: a21.mtjlpoto.fit
-Port: 443
-Secret: ee22ff46ecf593ff44c7fc90b6a356e56b6c69746536342e73697465
 @ProxyMTProto
 </div>
 

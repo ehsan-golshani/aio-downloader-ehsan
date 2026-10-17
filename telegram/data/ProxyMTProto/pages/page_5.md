@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 52146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: saboon.mikhay.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52145
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: a21.mtjlpoto.fit
+Port: 443
+Secret: ee22ff46ecf593ff44c7fc90b6a356e56b6c69746536342e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52144
 
@@ -163,24 +181,6 @@ Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
 Server: nfc.neo-duo.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: signal.mtp.mom
-Port: 443
-Secret: eeb18bb8c019bf022611a46377e3f0262a6c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52125
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir-ir.naganuma.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

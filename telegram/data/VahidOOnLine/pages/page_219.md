@@ -1,8 +1,35 @@
 # آرشیو کانال VahidOOnLine - صفحه 219
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 258006
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال صف کیلومتری خودروها را در مشهد برای دریافت بنزین در بامداد چهارشنبه ۱۱ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 258005
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به گزارش خبرگزاری فارس و براساس تصاویر منتشر شده در شبکه‌های اجتماعی، سه‌شنبه‌شب، ۱۰ شهریورماه، یک خودروی «جنسیس» در بلوار وکیل‌آباد مشهد به یکی از تجمعات حکومتی برخورد کرد. براساس این گزارش، در این حادثه «۴ نفر کشته و بیش از ۱۰ نفر مجروح» شدند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 258004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران‌اینترنشنال، مصدومان حادثه برخورد یک خودرو را با تجمع حکومتی در مشهد در شامگاه سه‌شنبه ۱۰ شهریور نشان می‌دهد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 258003
 
@@ -197,43 +224,6 @@ IranintlTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 خبرگزاری مهر، وابسته به سازمان تبلیغات اسلامی، از فعالیت پدافند در شرق تهران در شامگاه سه‌شنبه خبر داد.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257968
-
-<div align="center"><img src="files/post_257968_VahidOOnLine_257968.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبرگزاری تسنیم، وابسته به سپاه، از هدف قرار گرفتن نقاطی در بندرلنگه و جاسک در استان هرمزگان در شامگاه سه‌شنبه خبر داد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257967
-
-<div align="center"><img src="files/post_257967_VahidOOnLine_257967.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رئیس‌جمهوری ایالات متحده روز سه‌شنبه ۱۰ شهریور به خبرنگار فاکس‌نیوز گفت که دولت او فرصت‌های زیادی به جمهوری اسلامی ایران داده تا به‌صورت جدی در مذاکرات حاضر شود. او با ابراز بی‌اعتمادی کامل به مسیر دیپلماسی با حکومت ایران تاکید کرد: «معتقدم توافق با آن‌ها حتی به اندازه کاغذی که روی آن نوشته می‌شود هم ارزش ندارد. ما شانس‌های زیادی به آن‌ها دادیم.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257966
-
-<div align="center"><img src="files/post_257966_VahidOOnLine_257966.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندار عسلویه از شنیده شدن صدای انفجار در این شهرستان خبر داد.
-
-همزمان خبرگزاری فارس به نقل از خبرنگاران خود از شلیک موشک‌ها و پهپادهای ایرانی خبر داد و مقصد آن‌ها را «مواضع دشمن» اعلام کرد.
-
-هنوز مقام‌های رسمی جزئیات بیشتری درباره این حملات، اهداف آن‌ها و ارتباط احتمالی صدای انفجار در عسلویه با شلیک‌های گزارش‌شده منتشر نکرده‌اند.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>

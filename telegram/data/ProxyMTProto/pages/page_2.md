@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 52206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vile82.tidelark.cc
+Port: 443
+Secret: ee8e5533d984ca2ffa568ec9e78963210476696c6538322e746964656c61726b2e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52205
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52204
 
@@ -158,24 +176,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 </div>
 
 ## ProxyMTProto — post 52187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.120.230.120
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52185
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: x.shmelproxy.top

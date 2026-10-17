@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/25 17:57
+📅 آخرین بروزرسانی: 1405/07/26 01:32
 
 ---
+
+## tasiyanc — post 10675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏳ فرصت محدوده؛ زود جوین شید، می‌خوام بردارمش 👇🔥
+
+https://t.me/+ha2KmA-UHioxNDI0
+https://t.me/+ha2KmA-UHioxNDI0
+</div>
+
+## tasiyanc — post 10674
+
+<div align="center"><img src="files/post_10674_tasiyanc_10674.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+ha2KmA-UHioxNDI0
+https://t.me/+ha2KmA-UHioxNDI0
+
+🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان💵🅰g11
+</div>
+
+## tasiyanc — post 10673
+
+<div align="center"><video src="files/post_10673_tasiyanc_10673.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10673_tasiyanc_10673.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواننده عربستانی 🇸🇦 به نام «امیر محمد» بردن یکی از برنامه های معروف ترکیه که بولنت ارسوی سوپر استار ترکیه معروف به «دیوا» نزدیک بود سکته کنه از صدای رو مخ این حرومزاده بچه سال
+هر دلقکیو فالو کنی معروف کنی ابروت تو سطح جهانی می‌ره تسلیت به جامعه موسیقی ترکیه و عربستان
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10672
 
@@ -235,51 +275,5 @@ https://t.me/+VGH5xHispzJlMjM8
 🔴وضعیت اینستاگرام فارسی روز به روز دارک‌تر میشه :|
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ اوپن‌Vpn پرسرعت 🌟
-
-1 کانفیگ نپستر نامحدود پرسرعت 🌟
-
-
-تست شده با تمام نت‌ها 🛜
-🛜🛜
-🛜
-🛜🛜
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-جهت دریافت کانفیگ ها کلیک کنید 👉
-</div>
-
-## tasiyanc — post 10652
-
-<div align="center"><img src="files/post_10652_tasiyanc_10652.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 قتل وحشتناکی که کل اهواز رو در شوک فرو برد!
-
-چند روز پیش یه دختر ۱۵ ساله به اسم سارینا همراه دوس پسرش و رفیقاش، توی «پارک کوثر» اهواز داشته میچرخیده.
-اونجا یه پسرو به اسم علی می بینه و بهش میگه: کونی، سیگار بده بم
-علی میگه کونی خودتی، ولی من دست رو دختر بلند نمیکنم، گمشو ببینم.
-خلاصه، سارینا میگه جرعتشو نداری و دعوا میشه، اونجا سارینا با چاقو علی رو به قتل میرسونه و بعدشم با لگد میزنه به جنازه‌اش!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10651
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

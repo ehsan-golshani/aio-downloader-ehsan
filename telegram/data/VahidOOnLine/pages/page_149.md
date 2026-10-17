@@ -1,8 +1,46 @@
 # آرشیو کانال VahidOOnLine - صفحه 149
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 260096
+
+<div align="center"><img src="files/post_260096_VahidOOnLine_260096.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیات مستقل بین‌المللی حقیقت‌یاب سازمان ملل درباره ایران، دوشنبه ۲۳ شهریور از همه طرف‌های درگیر مناقشه در منطقه خواست به طور کامل به حقوق بین‌الملل پایبند باشند و درگیری‌ها را متوقف کنند.
+
+سارا حسین، رییس هیات حقیقت‌یاب، گفت: «این حملات بار دیگر یادآور هزینه انسانی ویرانگر درگیری میان آمریکا و اسرائیل از یک سو، و ایران از سوی دیگر است.»
+
+او همچنین افزود:‌«غیرنظامیان باید در همه حال محافظت شوند و باید همواره نهایت مراقبت برای مصون نگه داشتن غیرنظامیان و اموال غیرنظامی از آثار مخاصمات انجام شود.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260095
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خواهر جاویدنام فرهاد محدودی، با پیوستن به پویش «یک شمع، یک نام، یک یاد» برای برادرش شمعی روشن کرد، او را «قهرمان» خواند و گفت: «تو رفتی اما رد قدم‌هایت هنوز در این خاک پیداست. یادت افتخار است.»
+فرهاد محمودی، ۳۰ ساله، ۱۸ دی ۱۴۰۴ در محمدشهر کرج با شلیک مستقیم گلوله به قلب کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260094
+
+<div align="center"><video src="files/post_260094_VahidOOnLine_260094.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_260094_VahidOOnLine_260094.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال، در خصوص گرانی‌ها در ایران می‌گوید: «۸۰۰ هزار تومان دادن تا پیاز، گوجه‌فرنگی و سیب‌زمینی بخرم. زمان شاه با این پول می‌شد نصف یک شهر را خرید.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 260093
 
@@ -269,39 +307,5 @@ IranintlTV
 IranintlTV
 
 🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260025
-
-<div align="center"><img src="files/post_260025_VahidOOnLine_260025.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درحالی که اخیرا توقیف اموال و صدور حکم برای صادق ساعدی‌نیا، به دلیل حمایت از خیزش ملی دی‌ماه ۱۴۰۴، خبرساز شده و این کارآفرین ایرانی با حکم دیوان عالی کشور به ۱۲ سال و شش ماه و یک روز حبس محکوم شده است، قوه قضائیه از توقیف ۲۴۰ مورد از اموال ایرانیان «به اتهام خیانت به کشور» خبر می‌دهد.
-
-خبرگزاری شبه‌دولتی موج نوشت: ۱۴۳ مورد از این اموال در تهران توقیف شده و ۱۸۲ حساب بانکی نیز مسدود شده است. قوه قضاییه همچنین از انجام بیش از دو هزار استعلام از بانک مرکزی درباره حساب‌های متهمان خبر داده است.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260024
-
-<div align="center"><video src="files/post_260024_VahidOOnLine_260024.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_260024_VahidOOnLine_260024.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده نشان می‌دهند گروهی از مردم و خانواده جاویدنامان، با پیوستن به پویش «یک شمع، یک نام، یک یاد»، بر مزار کشته‌شدگان دی‌ماه ۱۴۰۴ در اصفهان شمع روشن می‌کنند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260023
-
-<div align="center"><img src="files/post_260023_VahidOOnLine_260023.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-[پست از کانال منبع حذف شد.]
 </div>
 

@@ -1,8 +1,47 @@
 # آرشیو کانال VahidOOnLine - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 265405
+
+<div align="center"><video src="files/post_265405_VahidOOnLine_265405.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_265405_VahidOOnLine_265405.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام محسن نمازی، ۱۹ ساله، روز ۱۸ دی‌ماه ۱۴۰۴ در میدان بهاران منطقه ۱۷ تهران، با اصابت گلوله جنگی نیروهای حکومتی جان باخت.
+بنا بر روایت منتشرشده، محسن و دوستش، جاویدنام علی مشهدی، در حال آب‌رسانی و کمک به مجروحان بودند که برای دفاع از افرادی که مورد تعرض مأموران قرار گرفته بودند، مداخله کردند. هر دو در جریان این رویارویی جان باختند.
+علی مشهدی، ورزشکار، همان روز در محدودهٔ میدان فلاح، با شلیک دو گلولهٔ نیروهای حکومتی به صورت و سینه‌اش جان باخت.
+مادر محسن پس از انتقال پیکر فرزندش به درمانگاه، ساعت‌ها کنار او ماند تا مأموران او را از محل بیرون کردند. نهادهای امنیتی با تهدید خانواده، اجازهٔ خاک‌سپاری محسن در تهران را ندادند و خانواده ناچار شدند پیکرش را در آرامستان جلفا در استان آذربایجان شرقی به خاک بسپارند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 265404
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جاویدنام سهند ناصری، نوجوان ۱۵ ساله، اهل شوشتر و علاقه‌مند به ورزش باستانی بود. او شامگاه ۱۸ دی‌ماه ۱۴۰۴ در جریان اعتراضات در اشتهاردِ استان البرز، با شلیک گلولهٔ جنگی نیروهای حکومتی به سینه‌اش جان باخت.
+پیکر سهند به زادگاهش، شوشتر، منتقل شد و در همان‌جا به خاک سپرده شد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 265390
+
+<div align="center"><video src="files/post_265390_VahidOOnLine_265390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_265390_VahidOOnLine_265390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رویترز در تحقیقی گسترده، ابعاد ۱۳۵ حمله به ۸۴ تأسیسات حیاتی در هفت کشور منطقه را بررسی کرده است. یافته‌های این گزارش نشان می‌دهد چگونه هدف قرار دادن نقاط حساس زیرساخت‌های انرژی، صنعت و آب، به ابزاری برای فشار اقتصادی و سیاسی جمهوری اسلامی تبدیل شده و امنیت کشورهای خلیج فارس را با چالش‌های جدی مواجه کرده است.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 265389
 
@@ -291,48 +330,6 @@ IranintlTV
 اکرمی‌نیا پیشتر و در ویدئویی که روز جمعه در رسانه‌های رسمی جمهوری اسلامی منتشر شد، مدعی شده بود نیروهای نظامی آمریکا در فاصله بیش از ۵۰۰ کیلومتری سواحل منطقه مستقر شده‌اند و شناورهای نظامی این کشور از تنگه هرمز و دریای عمان عقب‌نشینی کرده‌اند.
 او همچنین ناامنی در محدوده تنگه هرمز را ناشی از حضور و دخالت آمریکا دانسته و مدعی شده بود ارتش آمریکا کشتی‌های تجاری و نفتکش‌ها را به عبور از مسیری غیرقانونی و ناامن در جنوب تنگه وادار کرده است.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 265372
-
-<div align="center"><video src="files/post_265372_VahidOOnLine_265372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_265372_VahidOOnLine_265372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنام علیرضا نوری، ۲۹ ساله و ساکن قزوین، شامگاه ۱۹ دی‌ماه ۱۴۰۴ در جریان اعتراضات، با شلیک مستقیم نیروهای حکومتی جان باخت. بنا بر گزارش‌ها، چندین گلولهٔ جنگی به بدن او، از جمله ناحیهٔ شکم و پهلو، اصابت کرده بود.
-علیرضا سرپرست بخش بسته‌بندی شرکت «بهمن دیزل» بود و به عکاسی علاقه داشت. او در اعتراضات سال ۱۴۰۱ نیز حضور داشت و بر اثر اصابت ساچمه به صورتش زخمی شده بود.
-نیروهای حکومتی پیکر علیرضا را در ازای دریافت پول به خانواده‌اش تحویل دادند.
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 265371
-
-<div align="center"><video src="files/post_265371_VahidOOnLine_265371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_265371_VahidOOnLine_265371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی منتشرشده در رسانه‌های اجتماعی، هنرمندی پیمان قدیری در ظریف‌کاری ساختمان را نشان می‎دهد. این جاویدنام که از ۱۹ دی‌ماه ۱۴۰۴ بر اثر جراحت ناشی از اصابت گلوله ماموران به سرش به حالت اغما فرو رفته بود، پس از حدود ۹ ماه جان باخت.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 265349
-
-<div align="center"><video src="files/post_265349_VahidOOnLine_265349.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_265349_VahidOOnLine_265349.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جاویدنام میلاد خاکسار، ۳۴ ساله، اهل مرودشت در استان فارس و پدر دو فرزند خردسال بود. او روز ۱۹ دی‌ماه ۱۴۰۴ در جریان اعتراضات در مرودشت، با شلیک مستقیم نیروهای حکومتی جان باخت.
-پیکر میلاد در قطعهٔ ۷ گلزار شهدای مرودشت به خاک سپرده شد.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>

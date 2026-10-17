@@ -1,8 +1,45 @@
 # آرشیو کانال VahidOOnLine - صفحه 82
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 262400
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، یکشنبه پنجم مهر در واکنش به باز کردن قرآن در مراسم آغاز سال تحصیلی ۱۴۰۵-۱۴۰۶ گفت برخلاف برداشت برخی، نتیجه آن را بد ندانسته است. او گفت: «گفتم خدایا چیکار کنیم، بازم باید صبر کنیم، چاره‌ای نداریم. اینا خیال می‌کردن بد آمده، خیلی خوب آمد.»
+پزشکیان توضیح داد هنگام باز کردن قرآن در مراسم روز ۳۰ شهریور، آیه ۴۶ سوره انفال آمده بود که در آن بر پرهیز از نزاع و صبر تاکید شده است.
+پیش‌تر، به گزارش ایرنا، پزشکیان روز دوشنبه ۳۰ شهریور با حضور در دبستان دخترانه‌ای در منطقه ۱۱ تهران، زنگ آغاز سال تحصیلی ۱۴۰۵-۱۴۰۶ را به صدا درآورد. او در آن مراسم خطاب به دانش‌آموزان گفت از یک «خانواده معمولی» به ریاست‌جمهوری رسیده و از آن‌ها خواست برای ساختن آینده ایران با یکدیگر دوست باشند و دعوا نکنند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262372
+
+<div align="center"><video src="files/post_262372_VahidOOnLine_262372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262372_VahidOOnLine_262372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید: «بیمار اعصاب و روان هستم و چهار ماه است که توان خرید داروهایم را ندارم.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262371
+
+<div align="center"><video src="files/post_262371_VahidOOnLine_262371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262371_VahidOOnLine_262371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان یکشنبه پنجم مهر در شهرهای اهواز، تهران، اصفهان و شوش در اعتراض به مشکلات معیشتی خود تجمع کردند و شعارهایی چون «جنگ‌افروزی کافیه، سفره ما خالیه» سردادند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 262370
 
@@ -242,42 +279,6 @@ ManotoTV
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میلاد غلام‌زاده، معترض ۳۰ ساله اهل خشکبیجار گیلان، ۱۷ دی ۱۴۰۴ در جریان اعتراضات با شلیک گلوله کشته شد. او قرار بود نوروز ازدواج کند، اما خانواده و نزدیکانش به جای جشن عروسی، در مراسم خاکسپاری برایش قند ساییدند و یاد او را گرامی داشتند.
 ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262353
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پدر جاویدنام پوریا باقری با انتشار ویدیویی در واکنش به صحبت‌های مسعود پزشکیان در سازمان ملل درباره خارجی بودن عوامل کشتار دی ۱۴۰۴ در ایران گفت: «اگر خارجی بود، چرا شما اینترنت را قطع کردید و دوربین مغازه‌ها را بردید؟ چطور تجمع حکومتی را با خیال راحت برگزار کردید؟»
-پوریا باقری، ۲۲ ساله، شامگاه ۱۸ دی ۱۴۰۴ در شهریار کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262317
-
-<div align="center"><img src="files/post_262317_VahidOOnLine_262317.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ارتش اسرائیل یک‌شنبه ۵ مهر با انتشار ویدیویی اعلام کرد ساهر نضال لطفی صقر، که در جریان حمله هفتم اکتبر تصویر او هنگام ربودن نوآ ارگامانی و آویناتان اور با موتورسیکلت ثبت شده بود، شنبه در حمله‌ای به منطقه نصیرات غزه کشته شده است.
-
-ارتش اسرائیل افزود صقر عضو یک گروه تروریستی وابسته به سازمان‌های جهادگرای جهانی فعال در غزه بود و در جریان جنگ برای حماس سلاح تامین می‌کرد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262316
-
-<div align="center"><video src="files/post_262316_VahidOOnLine_262316.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262316_VahidOOnLine_262316.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بر اساس ویدیوهای رسیده به ایران‌اینترنشنال، گروهی از ایرانیان ساکن آمریکا شنبه چهارم مهر در شهر سن‌خوزه ایالت کالیفرنیا کاروان خودرویی به راه انداختند و پرچم‌های شیروخورشید را حمل کردند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

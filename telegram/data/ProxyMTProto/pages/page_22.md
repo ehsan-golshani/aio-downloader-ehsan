@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 51806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51804
 
@@ -163,24 +181,6 @@ Secret: ee620777c073f53354f2dbb2cac6f2add9686f66662e7275
 Server: ccc.horizon555.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn10.cdnwave.org
-Port: 443
-Secret: ee42c25e3a5bebdab61abbcacf2e970c896d61676e69742e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.ariely.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

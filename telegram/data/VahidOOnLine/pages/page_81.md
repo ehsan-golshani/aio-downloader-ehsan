@@ -1,8 +1,44 @@
 # آرشیو کانال VahidOOnLine - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 262433
+
+<div align="center"><img src="files/post_262433_VahidOOnLine_262433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فارس، خبرگزاری وابسته به سپاه، یکشنبه‌شب، پنجم مهرماه، با استناد به «منابع محلی» گزارش داد یک موشک کروز دریایی به سمت یک کشتی به دلیل آنچه «تردد در مسیر غیرمجاز در تنگه هرمز» عنوان شده، شلیک شده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262432
+
+<div align="center"><video src="files/post_262432_VahidOOnLine_262432.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262432_VahidOOnLine_262432.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از ایرانیان ساکن بریتانیا، یکشنبه پنجم مهر در شهرهای نیوکسل و بیرمنگام علیه جمهوری اسلامی به خیابان‌ها آمدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262431
+
+<div align="center"><img src="files/post_262431_VahidOOnLine_262431.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خبرگزاری فارس، وابسته به سپاه پاسداران، یک‌شنبه پنجم مهر به نقل از منابع محلی گزارش داد یک موشک کروز دریایی به یک کشتی «متخلف» و در حال حرکت در «مسیر غیرمجاز» تنگه هرمز شلیک شده است.
+هم‌زمان، در یکی از پیام‌های دریافتی ایران‌اینترنشنال از یک ساکن محلی آمده بود موشکی از ساحل به سمت دریا شلیک شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 262430
 
@@ -249,43 +285,6 @@ Indypersian
 
 همچنین علی آقامحمدی، رییس پیشین گروه اقتصادی دفتر رهبر جمهوری اسلامی، گفته بود: «ما برای عبور از مشکلات و بخش‌هایی مانند نظام بانکی و پرداخت‌های مالی که مشمول تحریم‌ها شدند، می‌توانیم از ارز دیجیتال و رمز ارزها استفاده کنیم.»
 https://ir
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262400
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان، رئیس‌جمهوری اسلامی ایران، یکشنبه پنجم مهر در واکنش به باز کردن قرآن در مراسم آغاز سال تحصیلی ۱۴۰۵-۱۴۰۶ گفت برخلاف برداشت برخی، نتیجه آن را بد ندانسته است. او گفت: «گفتم خدایا چیکار کنیم، بازم باید صبر کنیم، چاره‌ای نداریم. اینا خیال می‌کردن بد آمده، خیلی خوب آمد.»
-پزشکیان توضیح داد هنگام باز کردن قرآن در مراسم روز ۳۰ شهریور، آیه ۴۶ سوره انفال آمده بود که در آن بر پرهیز از نزاع و صبر تاکید شده است.
-پیش‌تر، به گزارش ایرنا، پزشکیان روز دوشنبه ۳۰ شهریور با حضور در دبستان دخترانه‌ای در منطقه ۱۱ تهران، زنگ آغاز سال تحصیلی ۱۴۰۵-۱۴۰۶ را به صدا درآورد. او در آن مراسم خطاب به دانش‌آموزان گفت از یک «خانواده معمولی» به ریاست‌جمهوری رسیده و از آن‌ها خواست برای ساختن آینده ایران با یکدیگر دوست باشند و دعوا نکنند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262372
-
-<div align="center"><video src="files/post_262372_VahidOOnLine_262372.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262372_VahidOOnLine_262372.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید: «بیمار اعصاب و روان هستم و چهار ماه است که توان خرید داروهایم را ندارم.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262371
-
-<div align="center"><video src="files/post_262371_VahidOOnLine_262371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262371_VahidOOnLine_262371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهد گروهی از بازنشستگان یکشنبه پنجم مهر در شهرهای اهواز، تهران، اصفهان و شوش در اعتراض به مشکلات معیشتی خود تجمع کردند و شعارهایی چون «جنگ‌افروزی کافیه، سفره ما خالیه» سردادند.
 IranintlTV
 
 🤖 @VahidOOnLine

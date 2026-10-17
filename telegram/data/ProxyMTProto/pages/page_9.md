@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 52066
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.arixo.shop
+Port: 443
+Secret: dd27e57f496bbf279605f0198ea6d26067
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52064
 
@@ -163,24 +181,6 @@ Secret: dd203c1c0173ed19b5bf9f28f81777eaec
 Server: Unknown
 Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnwave.org
-Port: 443
-Secret: dd65373b054948c84eb4a74630d4a79b22
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: exiscos.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

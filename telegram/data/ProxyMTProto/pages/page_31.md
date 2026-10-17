@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 51626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd1924acaec2bb63dac896a6d02a382f38
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51624
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: x.shmelproxy.top
 Port: 443
 Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.ariely.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 @ProxyMTProto
 </div>
 

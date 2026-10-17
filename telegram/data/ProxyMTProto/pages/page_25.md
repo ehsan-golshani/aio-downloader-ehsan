@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/07/25 23:13
+📅 آخرین بروزرسانی: 1405/07/26 01:30
 
 ---
+
+## ProxyMTProto — post 51746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mofid.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51745
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.detourcloak.site
+Port: 443
+Secret: dd77fa53c2b5473d4715b2493f8db21eb3
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51744
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: proxy2.proverka.help
 Port: 443
 Secret: dd15681a893dce1de72b83eb0a12d3dcac
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51726
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: www2.acientirani-uor4.ir
-Port: 443
-Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51725
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
 @ProxyMTProto
 </div>
 

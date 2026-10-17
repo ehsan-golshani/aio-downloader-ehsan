@@ -1,8 +1,49 @@
 # آرشیو کانال VahidOOnLine - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 264022
+
+<div align="center"><video src="files/post_264022_VahidOOnLine_264022.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_264022_VahidOOnLine_264022.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هاجر مهرابی، خواهر محمود مهرابی، زندانی سیاسی محبوس در زندان دستگرد اصفهان، با انتشار ویدیویی از درگذشت مادرش خبر داد و گفت: «مادرم چشم‌انتظار برادرم بود که بیش از ۱۴۰۰ روز بدون مرخصی در زندان به سر می برد.»
+
+محمود مهرابی در بهمن ۱۴۰۱ بازداشت و در اردیبهشت ۱۴۰۳ به اتهام «افساد فی‌الارض» به اعدام محکوم شد. حکم اعدام او در مهر همان سال از سوی دیوان عالی کشور نقض و او بعدتر از این اتهام تبرئه شد. مهرابی در پرونده‌ای دیگر به پنج سال حبس قابل اجرا محکوم شده و همچنان در زندان دستگرد اصفهان به‌سر می‌برد،
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 264021
+
+<div align="center"><video src="files/post_264021_VahidOOnLine_264021.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_264021_VahidOOnLine_264021.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گلایه گزارشگر منوتو از اختلال در ترافیک به دلیل تجمع شبانه حامیان حکومت.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 264020
+
+<div align="center"><video src="files/post_264020_VahidOOnLine_264020.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_264020_VahidOOnLine_264020.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مراسم یادبود علیرضا رئیسی، از بازداشت‌شدگان اعتراضات دی‌ماه، در میدان علیخانی ملک‌شهر اصفهان برگزار شد. علیرضا رئیسی در پرونده موسوم به «میدان علیخانی» به اعدام محکوم شده بود و حکم او دوم مهر ۱۴۰۵ اجرا شد.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 264019
 
@@ -267,54 +308,6 @@ IranintlTV
 
 تسنیم نوشته است که واکنش‌های اولیه فدراسیون قطر و الغرافه مثبت بود و حتی شماره پرواز و اسامی اعضای تیم استقلال دریافت شد؛ با این حال، پیگیری‌ها به نتیجه نرسید و در نهایت پاسخ الغرافه منفی بود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263957
-
-<div align="center"><img src="files/post_263957_VahidOOnLine_263957.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا، چهارشنبه ۱۵ مهر در نشست خبری مشترک با همتای یونانی خود، گفت که جمهوری اسلامی فرصت‌های متعددی را برای رسیدن به توافق با آمریکا درباره برنامه هسته‌ای از دست داده است.
-
-روبیو ادامه داد: «جمهوری اسلامی هرگز به سلاح هسته‌ای دست نخواهد یافت. هر توافقی که برای آمریکا قابل قبول باشد باید تضمین کند که ایران هرگز سلاح هسته‌ای نخواهد داشت.»
-وزیر خارجه ایالات متحده تاکید کرد که دونالد ترامپ توان پهپادی و موشکی جمهوری اسلامی را به‌شدت کاهش داد و نیروی دریایی و هوایی آن را از بین برد.
-
-روبیو همچنین گفت که جمهوری اسلامی اکنون از نظر نظامی بسیار ضعیف‌تر از گذشته است و تا زمانی که ترامپ رییس‌جمهوری آمریکا باشد، به سلاح هسته‌ای دست نخواهد یافت.
-
-وزیر خارجه آمریکا افزود: «تنگه هرمز باز است و میزان انتقال نفت از آن تقریبا به سطح پیش از آغاز جنگ رسیده است. ایران کنترل تنگه را کاملا از دست داده و اقتصاد ایران در آستانه وضعیتی بسیار وخیم قرار دارد.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263956
-
-<div align="center"><video src="files/post_263956_VahidOOnLine_263956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263956_VahidOOnLine_263956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مارکو روبیو، وزیر خارجه آمریکا،  روز چهارشنبه ۱۵ مهرماه در سفر به آتن با یورگوس گراپتریتیس، وزیر خارجه یونان، دیدار کرد.
-
-روبیو که از ایسلند وارد یونان شده است، قرار است با کیریاکوس میتسوتاکیس، نخست‌وزیر این کشور، نیز دیدار و گفتگو کند.
-
-آمریکا و یونان از اعضای ناتو هستند و همکاری‌های دفاعی و امنیتی، بخشی از روابط دو کشور را تشکیل می‌دهد. موقعیت یونان در شرق مدیترانه نیز به این همکاری‌ها اهمیت راهبردی می‌بخشد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263955
-
-<div align="center"><video src="files/post_263955_VahidOOnLine_263955.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263955_VahidOOnLine_263955.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی به ایران اینترنشنال رسیده که در آن یک مغازه‌دار می‌گوید افزایش قیمت بار جدید چیپس، تنها به بسته‌های ۷۰ گرمی محدود نیست بلکه باقی محصولات مشابه نیز گران‌تر شده‌اند.
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

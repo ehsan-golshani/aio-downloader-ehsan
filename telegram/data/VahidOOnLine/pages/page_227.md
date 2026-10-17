@@ -1,8 +1,50 @@
 # آرشیو کانال VahidOOnLine - صفحه 227
 
-📅 آخرین بروزرسانی: 1405/07/25 23:12
+📅 آخرین بروزرسانی: 1405/07/26 01:29
 
 ---
+
+## VahidOOnLine — post 257659
+
+<div align="center"><video src="files/post_257659_VahidOOnLine_257659.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_257659_VahidOOnLine_257659.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال، برگزاری مراسم تولد جاویدنام محمدحسین جمشیدی را بر سر مزارش نشان می‌دهد.
+﻿محمدحسین، ۱۹ دی‌ماه ۱۴۰۴ در حصار کرج به دست ماموران جمهوری اسلامی کشته شد.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257658
+
+<div align="center"><img src="files/post_257658_VahidOOnLine_257658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت دفاع امارات متحده عربی روز دوشنبه نهم اسفند اعلام کرد با یک پهپاد ایران بر فراز آب‌های سرزمینی این کشور مقابله کرده است.
+
+در بیانیه وزرات دفاع امارات  اشاره‌ای به رهگیری یا انهدام پهپاد «متخاصم» شلیک شده از ایران نشده است.
+
+ارتش جمهوری اسلامی ساعاتی پیش از حمله گسترده پهپادی به پایگاه المهناد ارتش آمریکا در خاک امارات متحده عربی خبر داده بود.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 257657
+
+<div align="center"><img src="files/post_257657_VahidOOnLine_257657.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وزارت دفاع امارات متحده عربی، دوشنبه نهم شهریور در بیانیه‌ای، اعلام کرد نیروهای هوایی این کشور با یک پهپاد که «از سمت ایران» وارد آب‌های سرزمینی امارات شده بود، مقابله کرده‌ است.
+
+در این بیانیه آمده است نیروهای مسلح در آماده‌باش کامل قرار دارند و سامانه‌های پدافند هوایی به‌صورت شبانه‌روزی به رصد و پایش حریم هوایی ادامه می‌دهند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 257656
 
@@ -246,44 +288,6 @@ Indypersian
 
 رویترز این حمله را نخستین حمله شناخته‌شده نیروهای آمریکایی به اهدافی در ایران از اواخر ژوییه تاکنون توصیف کرد. افزایش دوباره قیمت نفت در شرایطی رخ می‌دهد که تحولات نظامی در اطراف تنگه هرمز و اختلال در تردد نفتکش‌ها، نگرانی‌ها درباره عرضه انرژی از این مسیر را افزایش داده است.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257617
-
-<div align="center"><img src="files/post_257617_VahidOOnLine_257617.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رویترز گزارش داد قیمت نفت بیش از دو درصد افزایش یافت و بهای نفت برنت بار دیگر از ۹۰ دلار در هر بشکه فراتر رفت. این افزایش پس از حمله نیروهای آمریکایی به دو پرتابگر متعلق به سپاه پاسداران در جزیره لارک رخ داد.
-
-رویترز این حمله را نخستین حمله شناخته‌شده نیروهای آمریکایی به اهدافی در ایران از اواخر ژوییه تاکنون توصیف کرد. افزایش دوباره قیمت نفت در شرایطی رخ می‌دهد که تحولات نظامی در اطراف تنگه هرمز و اختلال در تردد نفتکش‌ها، نگرانی‌ها درباره عرضه انرژی از این مسیر را افزایش داده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257616
-
-<div align="center"><video src="files/post_257616_VahidOOnLine_257616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_257616_VahidOOnLine_257616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوهای منتشرشده در شبکه‌های اجتماعی، رهگیری موشک‌های شلیک‌شده سپاه پاسداران را در آسمان اردن نشان می‌دهند.
-یک منبع آمریکایی به فاکس‌نیوز گفت تقریبا تمام موشک‌هایی که جمهوری اسلامی در مرحله اخیر حملات شلیک کرده بود، رهگیری شدند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 257615
-
-<div align="center"><img src="files/post_257615_VahidOOnLine_257615.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شبکه فاکس‌نیوز به نقل از یک منبع آمریکایی گزارش داد در پی حملات نیروهای ایالات متحده به پرتابگرهای موشکی در جزیره لارک، سپاه پاسداران مواضع نیروهای آمریکایی در اردن را هدف حملات موشکی قرار داد. به گفته این منبع مطلع، تاکنون هیچ‌گونه خسارت قابل‌توجهی گزارش نشده و سامانه‌های پدافندی موفق شده‌اند تقریبا تمام موشک‌های شلیک‌شده را پیش از اصابت به اهداف رهگیری و منهدم کنند. پیش از این سپاه با انتشار بیانیه‌ای از هدف قرار دادن دو پایگاه هوایی «ملک حسین» و «الازرق» در اردن خبر داد.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
