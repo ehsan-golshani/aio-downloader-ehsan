@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/26 01:32
+📅 آخرین بروزرسانی: 1405/07/26 08:00
 
 ---
+
+## tasiyanc — post 10827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10826
+
+<div align="center"><img src="files/post_10826_tasiyanc_10826.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حساااااس منچستر یونایتد و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌✅ Link 🔜 MelBet1.net
+✅‌ Link 🔜 MelBet1.net
+</div>
 
 ## tasiyanc — post 10825
 
@@ -232,44 +264,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂 
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵 
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10806
-
-<div align="center"><video src="files/post_10806_tasiyanc_10806.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10806_tasiyanc_10806.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂
-
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵
-
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی
-✅
-
-🅰19
-
-💎ادرس عضویت کانال vip:
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/26 01:32
+📅 آخرین بروزرسانی: 1405/07/26 08:00
 
 ---
+
+## tasiyanc — post 10847
+
+<div align="center"><img src="files/post_10847_tasiyanc_10847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فوری، خبرگزاری جماران:
+
+احتمالا از ساعت ۱۲ امشب، قیمت اینترنت ۴۰ درصد افزایش خواهد یافت!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10846
+
+<div align="center"><video src="files/post_10846_tasiyanc_10846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10846_tasiyanc_10846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اینجا میفهمید دقیقا چرا باید عکس بچه‌مونو تو فضای مجازی پست یا استوری کنیم ( حتما ببینید ویدیو رو)
+
+جدیدا یکی از فامیلای من وقتی اینستاگرام میرم ۱۰ تا استوری پشت هم توله سگشو استوری می‌کنه حس می‌کنه همه عاشقشن
+﻿
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10845
 
@@ -245,37 +271,5 @@ https://t.me/+zhWRXOtmyEE5ZjVk
 اگر اینا زندگی میکنن قطعا زندگی مارو می‌کنه .
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10826
-
-<div align="center"><img src="files/post_10826_tasiyanc_10826.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حساااااس منچستر یونایتد و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌✅ Link 🔜 MelBet1.net
-✅‌ Link 🔜 MelBet1.net
 </div>
 

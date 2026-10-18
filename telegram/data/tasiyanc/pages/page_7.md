@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/26 01:32
+📅 آخرین بروزرسانی: 1405/07/26 08:00
 
 ---
+
+## tasiyanc — post 10762
+
+<div align="center"><img src="files/post_10762_tasiyanc_10762.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖پشماتون فر بخوره / دختر خانم ۱۶ ساله که طی دوسال رابطه جنسی به HPV « زیگیل‌تناسلی » مبتلا شده
+
+۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10761
+
+<div align="center"><video src="files/post_10761_tasiyanc_10761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10761_tasiyanc_10761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: خاکِ ایران به افغانستان واگذار شد!
+
+محسن زنگنه: قرار شده ۱۱۰ هکتار از چابهار رو بدیم به مردم افغانستان تا بتونن یه سرزمین متعلق به خودشون داشته باشن.
+البته قرار بود سهم بیشتری بهشون بدیم اما یه سری محدودیت هست و اینکار مشکله، ولی حتما پیگیری میکنیم که حلش کنیم!
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10760
 
@@ -233,52 +259,5 @@ https://t.me/+wLFODtl1yCEwYzFk
 🔴ویدیو های وایرال شده نجمه جودکی، مجری سابق صداوسیما که راهشو از این سازمان جدا کرده و بلاگر شده عقد آریایی برخی زوج‌هارو میخونه
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10742
-
-<div align="center"><video src="files/post_10742_tasiyanc_10742.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10742_tasiyanc_10742.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
-💵تبدیل 2میلیون به 10میلیون
-💵 
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅ 
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
-</div>
-
-## tasiyanc — post 10741
-
-<div align="center"><video src="files/post_10741_tasiyanc_10741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10741_tasiyanc_10741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-💵تبدیل 2میلیون به 10میلیون
-💵
-
-
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅
-
-
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری راحت👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 
-📊
-
-
-🔔کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
-💵🅰15
-
-🎯همین حالا عضو شو و شروع کن
-👇
-https://t.me/+tRN5PSCR5uQ4YmE0
-https://t.me/+tRN5PSCR5uQ4YmE0
 </div>
 

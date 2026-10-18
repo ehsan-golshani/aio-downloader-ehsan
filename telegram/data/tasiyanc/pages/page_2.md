@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/26 01:32
+📅 آخرین بروزرسانی: 1405/07/26 08:00
 
 ---
+
+## tasiyanc — post 10867
+
+<div align="center"><video src="files/post_10867_tasiyanc_10867.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10867_tasiyanc_10867.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این چوپان اهل خراسان شمالی یه کوزه سکه طلا پیدا کرده، تحویل داده و با افتخار هم تعریف می‌کنه!
+
++بعضیا انقدر خنگن که اگه حماقت طلا بود، خودشون یه گنج ملی بودن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10866
+
+<div align="center"><video src="files/post_10866_tasiyanc_10866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10866_tasiyanc_10866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون فر بخوره / زن متاهل ایرانی که بازیگر فیلم‌های پورن بود با تتو های بدنش لو رفت !
+زن متأهلی که مخفیانه از طریق فیلم‌های پورن درآمدزایی می‌کرد، وقتی همسرش قضیه رو میفهمه با ویدیویی از خودش روبه‌رو میشه، همه‌چیز را انکار میکنه؛ تا اینکه تتوهای بدنش هویتش را لو میدن!
+یه بچه هم داشتن که با آزمایش DNA مشخص میشه باباش مرده نیست ، در نهایت فرار زن به دبی و ماندن مرد با شکایت و حقیقتی که زندگی‌اش را زیرورو کرد…
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10865
 
@@ -266,32 +295,6 @@ Odd:1.98
 🔵 فیلم بسیار وایرال شده از رانندگی خفن این دختر شیرازی که اکثر پسرا تو کامنتاش پشماشون ریخته بود :
 
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10847
-
-<div align="center"><img src="files/post_10847_tasiyanc_10847.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 فوری، خبرگزاری جماران:
-
-احتمالا از ساعت ۱۲ امشب، قیمت اینترنت ۴۰ درصد افزایش خواهد یافت!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10846
-
-<div align="center"><video src="files/post_10846_tasiyanc_10846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10846_tasiyanc_10846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اینجا میفهمید دقیقا چرا باید عکس بچه‌مونو تو فضای مجازی پست یا استوری کنیم ( حتما ببینید ویدیو رو)
-
-جدیدا یکی از فامیلای من وقتی اینستاگرام میرم ۱۰ تا استوری پشت هم توله سگشو استوری می‌کنه حس می‌کنه همه عاشقشن
-﻿
 ⚡ @Tasiyanc
 </div>
 

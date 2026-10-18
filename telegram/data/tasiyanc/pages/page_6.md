@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/26 01:32
+📅 آخرین بروزرسانی: 1405/07/26 08:00
 
 ---
+
+## tasiyanc — post 10784
+
+<div align="center"><video src="files/post_10784_tasiyanc_10784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10784_tasiyanc_10784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 آیا میدونید؟ بعضی اپ‌هایی که بهشون دسترسی دوربین دادید، در شرایط خاص می‌تونن از دوربین گوشی شما استفاده کنن؛ روی نسخه‌های جدید اندروید و آیفون معمولاً وقتی دوربین فعال بشه، نشانگر سبز بالای صفحه گوشی نشون داده میشه و دسترسی مخفی کاملاً بی‌ردپا مثل قبل نیست.
+
+برای اپ‌هایی که بهشون اعتماد ندارید بخصوص اپ‌های ایرانی و خارجی نامعتبر، بهتره دسترسی دوربین رو ببندید:
+
+▪️وارد تنظیمات (Settings) بشید.
+▪️به بخش (Apps) برید.
+▪️برنامه موردنظر رو انتخاب کنید.
+▪️وارد (App permissions) و بعد(Camera) بشید.
+▪️گزینه (Don’t allow) رو انتخاب کنید.
+
+
+یه بار لیست دسترسی دوربین برنامه‌هاتون رو چک کنید؛ احتمالاً چندتاشون واقعاً هیچ نیازی به دوربین ندارن 👀
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10783
+
+<div align="center"><video src="files/post_10783_tasiyanc_10783.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10783_tasiyanc_10783.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖امروز 10 October
+تولد 42 سالگی «پاول دورف» بنیانگذار و مالک تلگرام هستش💖
+
++ ممنون بابت ساختن یکی از امن‌ترین و بهترین پیام‌رسان‌های دنیا؛ تلگرام
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10782
 
@@ -326,32 +364,6 @@ https://t.me/+ramzL0orpc5hMTBk
 ایران عالیه
 💖در پی درگیری لفظی میان راننده یک نیسان و یک موتورسوار، موتورسیکلت واژگون شد و نیسان نیز در آستانه واژگونی قرار گرفت
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10762
-
-<div align="center"><img src="files/post_10762_tasiyanc_10762.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖پشماتون فر بخوره / دختر خانم ۱۶ ساله که طی دوسال رابطه جنسی به HPV « زیگیل‌تناسلی » مبتلا شده
-
-۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10761
-
-<div align="center"><video src="files/post_10761_tasiyanc_10761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10761_tasiyanc_10761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: خاکِ ایران به افغانستان واگذار شد!
-
-محسن زنگنه: قرار شده ۱۱۰ هکتار از چابهار رو بدیم به مردم افغانستان تا بتونن یه سرزمین متعلق به خودشون داشته باشن.
-البته قرار بود سهم بیشتری بهشون بدیم اما یه سری محدودیت هست و اینکار مشکله، ولی حتما پیگیری میکنیم که حلش کنیم!
 ⚡ @Tasiyanc
 </div>
 
