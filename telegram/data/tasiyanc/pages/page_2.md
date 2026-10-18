@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/26 08:00
+📅 آخرین بروزرسانی: 1405/07/26 12:41
 
 ---
+
+## tasiyanc — post 10871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود بر دوستان و همراهان همیشگی
+
+درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
+</div>
+
+## tasiyanc — post 10870
+
+<div align="center"><video src="files/post_10870_tasiyanc_10870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10870_tasiyanc_10870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت پشم افکن/ 10 بار بارداری برای دختری متولد 1385 !
+
+طبق روایت خانم دکتر، این دختر تاکنون ۳ سقط جنین و ۴ زایمان طبیعی داشته و حالا خودش را برای سومین سزارین آماده می‌کند!
+یعنی دختری که هنوز به ۲۰ سالگی نرسیده، چنین تجربه‌ای از بارداری و زایمان داشته است!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G24🅰 🛒 ورود به سایت 👇 ✅ https://leworkcihsa.shop/fa/affiliates/…
+</div>
+
+## tasiyanc — post 10868
+
+<div align="center"><img src="files/post_10868_tasiyanc_10868.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G24🅰
+🛒 ورود به سایت 👇
+✅ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10867
 
@@ -244,55 +297,6 @@ Odd:1.98
 
 
 +این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10851
-
-<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10849
-
-<div align="center"><img src="files/post_10849_tasiyanc_10849.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰22
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10848
-
-<div align="center"><video src="files/post_10848_tasiyanc_10848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10848_tasiyanc_10848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 فیلم بسیار وایرال شده از رانندگی خفن این دختر شیرازی که اکثر پسرا تو کامنتاش پشماشون ریخته بود :
 
 
 ⚡ @Tasiyanc
