@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/26 12:41
+📅 آخرین بروزرسانی: 1405/07/26 16:55
 
 ---
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10831
 
@@ -250,17 +264,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
 </div>
 
