@@ -1,8 +1,108 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/27 11:24
+📅 آخرین بروزرسانی: 1405/07/27 18:49
 
 ---
+
+## tasiyanc — post 10658
+
+<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
+</div>
+
+## tasiyanc — post 10657
+
+<div align="center"><video src="files/post_10657_tasiyanc_10657.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10657_tasiyanc_10657.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز تو تهران یه دونفر با هم کل میندازن که آخرش خیلی خوب تموم نمیشه:
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10656
+
+<div align="center"><img src="files/post_10656_tasiyanc_10656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴آیا از مجردی رنج میبرید؟
+
+دولت سنگاپور 🇸🇬 برای اینکه آمار ازدواج بالا بره ی سایت همسریابی راه انداخته که الان فقط افراد بین ۲۱ تا ۳۵ سال می‌تونن توی این سایت ثبت‌نام کنن، این سیستم فقط یک نفرو بهتون معرفی می‌کنه تا الکی وقت‌تون تلف نشه و درگیر انتخاب‌های زیاد نشید، هر کسی رو هم انتخاب کنید و باهاش قرار بذارید، هزینه ی دیت اول رو دولت بهتون میده.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10655
+
+<div align="center"><video src="files/post_10655_tasiyanc_10655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10655_tasiyanc_10655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴وضعیت اینستاگرام فارسی روز به روز دارک‌تر میشه :|
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10654
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+7 کانفیگ اوپن‌Vpn پرسرعت 🌟
+
+1 کانفیگ نپستر نامحدود پرسرعت 🌟
+
+
+تست شده با تمام نت‌ها 🛜
+🛜🛜
+🛜
+🛜🛜
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+
+جهت دریافت کانفیگ ها کلیک کنید 👉
+</div>
+
+## tasiyanc — post 10652
+
+<div align="center"><img src="files/post_10652_tasiyanc_10652.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 قتل وحشتناکی که کل اهواز رو در شوک فرو برد!
+
+چند روز پیش یه دختر ۱۵ ساله به اسم سارینا همراه دوس پسرش و رفیقاش، توی «پارک کوثر» اهواز داشته میچرخیده.
+اونجا یه پسرو به اسم علی می بینه و بهش میگه: کونی، سیگار بده بم
+علی میگه کونی خودتی، ولی من دست رو دختر بلند نمیکنم، گمشو ببینم.
+خلاصه، سارینا میگه جرعتشو نداری و دعوا میشه، اونجا سارینا با چاقو علی رو به قتل میرسونه و بعدشم با لگد میزنه به جنازه‌اش!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10651
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10650
 
@@ -202,112 +302,5 @@ https://AmitisBet.com/
 مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
 
 💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 دلار 260.000 ؛ داره می‌ره سمت 300
-
-سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10636
-
-<div align="center"><video src="files/post_10636_tasiyanc_10636.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10636_tasiyanc_10636.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چهره مثبتی که این بلاگر خارجی از ایران و ایرانی انجام داد ، متولیان فرهنگی با بودجه های کلان میلیاردی نتونستن انجام بدن!
-
-دم اون دوتا شیرزن با معرفت هموطن گرم❤️
-
-+شاید پولمون بی ارزش ترین باشه شاید پاسپورتمون بی ارزش باشه ولی مرام معرفت با اختلاف اوله جهانه
-برو همه جا بگو این مردم با این همه سختی بدبختی فشار اقتصادی هنوزم معرفت و مهربونیشون زندست
-
-اینجا ایرانه داداش هرکی واردش بشه یه تیکه از قلبش واسه همیشه اینجا میمونه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10635
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 هفته سوم لیگ‌ ملت‌های اروپا 🇷🇸 صربستان 🆚 آلمان 🇩🇪 ⏰ ساعت ۲۲:۱۵ 🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام 🔼 با بالاترین ضرایب پیش بینی 💵واریز و برداشت ارزی و ریالی❗️ 🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️ 💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️ 🛡تا…
-</div>
-
-## tasiyanc — post 10634
-
-<div align="center"><img src="files/post_10634_tasiyanc_10634.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 هفته سوم لیگ‌ ملت‌های اروپا
-
-🇷🇸 صربستان 🆚 آلمان 🇩🇪
-⏰ ساعت ۲۲:۱۵
-
-🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام
-🔼 با بالاترین ضرایب پیش بینی
-
-💵واریز و برداشت ارزی و ریالی❗️
-🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️
-💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️
-🛡تا ۵ میلیون تومان بیمه شرط ❗️
-
-🎁 فرصت را از دست ندهید! همین حالا پیش‌بینی خود را ثبت کنید و از بونوس‌های ویژهٔ Betegram بهره‌مند شوید.
-
-🔵http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10632
-
-<div align="center"><video src="files/post_10632_tasiyanc_10632.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10632_tasiyanc_10632.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده ، این خانم میخواسته بره مهمونی و گرون ترین لباس یه آنلاین شاپ رو به قیمت ۱۰ میلیون سفارش داده.
-و حالا چیزی که به دستش رسیده:
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10631
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 10630
-
-<div align="center"><img src="files/post_10630_tasiyanc_10630.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️⭕️⭕️⭕️⭕️⭕️⭕️
-
-اولیتت برای انتخاب سایت چیه ❓
-امنیت مالی مهم ترین چیزیه که یه سایت پیشبینی باید داشته باشه
-
-⚡️ ریتزوبت با انواع درگاه های شارژ و‌ در گاه مخصوص و اختصاصی کارت به کارت امنیت مالی رو به کاربراش عرضه میکنه
-
-⚡️ از همه‌مهم‌تر واریز و برداشت در ریتزوبت کاملا خودکار و اتوماتیک انجام میشه تمام پرداخت جوایز زیر 15 دقیقه س
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇
-🅰8
-⚡️@RitzoBetsupports
 </div>
 
