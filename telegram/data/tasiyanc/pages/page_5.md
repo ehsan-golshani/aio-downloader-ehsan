@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/27 18:49
+📅 آخرین بروزرسانی: 1405/07/28 00:26
 
 ---
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10830
+
+<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
+
+https://t.me/+zhWRXOtmyEE5ZjVk
+https://t.me/+zhWRXOtmyEE5ZjVk
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
 
 ## tasiyanc — post 10829
 
@@ -228,44 +264,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا کانفیگ OPEN VPN 🌟
-
-سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
-
-دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10810
-
-<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
-
-
-
-⚡ @Tasiyanc
 </div>
 

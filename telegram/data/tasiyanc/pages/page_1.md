@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/27 18:49
+📅 آخرین بروزرسانی: 1405/07/28 00:26
 
 ---
+
+## tasiyanc — post 10914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 27🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
+</div>
+
+## tasiyanc — post 10913
+
+<div align="center"><img src="files/post_10913_tasiyanc_10913.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+27🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10912
+
+<div align="center"><img src="files/post_10912_tasiyanc_10912.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پورن استار پاکستانی میگه مسلمونم، حجاب دارم، نماز می‌خونم، روزه هم می‌گیرم؛ عزیز من، پس این حجم از تناقض رو کجای مغزمون جا بدیم؟
+
+فقط مونده معمای بابای بچه رو حل کنیم، انگار با یه پرونده جنایی طرفیم!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10911
 
@@ -286,43 +328,5 @@ https://t.me/+HsrP_lU8O081ZWFk
 
 🌐 کانال رسمی ما در تلگرام 👇🅰g26
 ⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشمی دیگه نمونده بریزه / دنیا داره پیشرفت می‌کنه ماشین پرنده میسازه و کلی چیز دیگه ، صداوسیمای ملی ما « خر » آورده وسط پخش زنده دارن شیرشو میدوشن!
-
-استودیو رو با طویله اشتباه گرفتن؟! بعد انتظار دارن مردمم بشینن این محتوای سسشر نگاه کنن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10892
-
-<div align="center"><video src="files/post_10892_tasiyanc_10892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10892_tasiyanc_10892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز October 18، روزِ عزیزترین آدم زندگیمونه.
-
-+ بفرست واسه کسی که برات مهمه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10891
-
-<div align="center"><video src="files/post_10891_tasiyanc_10891.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10891_tasiyanc_10891.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵با دیدن این پشماتون دیگه ۱۰۰٪ می‌ریزه / دیشب تو تجمعات دلار فیک آتیش زدن و شعار مرگ بر دلار آمریکایی دادن مداح‌ میگه این کاغذ زندگی مردم رو نابود کرده!
-
-نابغه‌های اقتصاد! مشکل کاغذ دلاره یا سیاستی که با آمریکا شاخ‌به‌شاخ می‌شه؟ بعد هزینه‌ی عربده‌کشی‌های شمارو باید ما مردم معمولی بدیم
-با آمریکا گنده‌گویی می‌کنید، سفره‌ی مردم رو کوچک می‌کنید سر همین یه تیکه کاغذ ۵۰۰ درصد تورم کردید تو پاچه مردم بدبخت، بعد با سوزوندن دلار تقلبی ادای پیروزها رو درمیارید؟!
-⚡ @Tasiyanc
 </div>
 
