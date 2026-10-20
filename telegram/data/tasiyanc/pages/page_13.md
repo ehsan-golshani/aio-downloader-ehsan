@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/28 18:22
+📅 آخرین بروزرسانی: 1405/07/28 22:34
 
 ---
+
+## tasiyanc — post 10671
+
+<div align="center"><video src="files/post_10671_tasiyanc_10671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10671_tasiyanc_10671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه اینجا مدرسه اس , پس جایی که ما درس خوندیم چیه ؟
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10670
+
+<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 3 October روز جهانی دوست پسره
+
+بفرست واسش 🌹
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10669
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10668
 
@@ -252,48 +290,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r10
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10649
-
-<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
-یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
-</div>
-
-## tasiyanc — post 10647
-
-<div align="center"><img src="files/post_10647_tasiyanc_10647.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته!
-
-این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨
-
-🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن!
-
-🎱 بازی وینگو چطوریه؟
-توی بازی وینگو باید ۶ عدد بین ۱ تا ۴۷ و ۱ عدد بین ۱ تا ۱۰ انتخاب کنی.
-قرعه کشی انجام میشه و هرچی اعداد بیشتری رو درست حدس بزنی، جایزه‌ی بزرگ‌تری می‌بری! 🏆
-
-📆 جمعه ۱۰ مهر
-⏰ ساعت ۱۸:۰۰ به وقت تهران
-
-🎯 جایزه‌ی ویژه: ۱۰۰۰ دلار! 💰
-
-همین حالا ثبت‌نام کن، و بدون هیچ هزینه ای شانستو امتحان کن !
-
-🌐 wingobingo.tv
 </div>
 
