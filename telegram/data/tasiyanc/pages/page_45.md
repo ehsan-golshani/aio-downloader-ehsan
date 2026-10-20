@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 9861
+
+<div align="center"><img src="files/post_9861_tasiyanc_9861.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مدل اسرائیلی به اسم « mia Schem » که حدود 54 روز اسیر حماس بوده
+بعد از آزاد شدنش افسردگی میگیره که چرا اینا منو نکردن حتما خوشگل نیستم و ...
+بخاطر همین میره چندین مدل عمل زیبایی انجام میده و بعدش یه مربی پرورش اندام اسرائیلی بهش داروی بیهوشی میده و بهش تجا*وز میکنه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9860
 
@@ -326,20 +339,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 قیمت دارو هارو ببینید نسبت به سال گذشته فاجعه بار کشیده بالا ...
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فاجعه اقتصادی
-
-هر دلار 218000
-
-طلای ۱۸ عیار 22.500.000
-
-سکه تمام بهار 222.600.000
 
 🩸 @Tasiyanc
 </div>

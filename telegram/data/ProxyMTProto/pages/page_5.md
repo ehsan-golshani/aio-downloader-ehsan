@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 52213
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52212
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: web.arixo.shop
 Port: 443
 Secret: dd27e57f496bbf279605f0198ea6d26067
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52193
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd8960b9810070b6dea7e1f7e2f564b461
 @ProxyMTProto
 </div>
 

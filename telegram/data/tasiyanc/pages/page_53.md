@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 9637
+
+<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9636
 
@@ -335,19 +347,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9615
-
-<div align="center"><img src="files/post_9615_tasiyanc_9615.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ:
-
-اعتراض کردن در ایران بسیار دشوار است، به خصوص زمانی که افرادی حاضرند شما را به قتل برسانند. به همین دلیل است که مردم در ایران اعتراض نمی‌کنند.
-و این احتمال وجود دارد که [رژیم] ایران به شدت تضعیف شود... بسیاری از سربازان آنها حقوق دریافت نمی‌کنند.
-
-
-🩸 @Tasiyanc
 </div>
 

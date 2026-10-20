@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10047
+
+<div align="center"><video src="files/post_10047_tasiyanc_10047.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10047_tasiyanc_10047.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بی‌بی‌سی فارسی از لندن میفرمایند بنزین در ایران تقریباً مجانی است!
+تا حالا شده بی بی سی فارسی حقوق کارگران در ایران را هم به دلار حساب کند و نتیجه بگیرد مجانی کار می‌کنند؟؟
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10046
 
@@ -341,18 +355,6 @@ til.ac/0L4vyJf
 ۹. پوشیدن جوراب شلواری به تنهایی ممنوعه.
 ۱۰. پوشیدن تیشرت‌های بدن‌نما و دارای نمادهای بیگانه ممنوعه.
 ﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10027
-
-<div align="center"><video src="files/post_10027_tasiyanc_10027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10027_tasiyanc_10027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیروز یه خبرنگار لبنانی🇱🇧 داشت از شهر " نبطیه " لبنان گزارش تهیه میکرد که همون لحظه اسرائیل بیخ گوشش حمله کرد :
-
 💋 @Tasiyanc
 </div>
 

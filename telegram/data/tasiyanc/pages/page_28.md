@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10324
+
+<div align="center"><video src="files/post_10324_tasiyanc_10324.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10324_tasiyanc_10324.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این کسخل دیشب تو پونک تهران ، از بالای آپارتمان ۳ تا کوکتل مولوتوف سمت مردم پرت کرده و فرار کرده بود
+
+که امروز موقع فرار در مرز دستگیر میشه با مقاومتی که داشته یه تیرم به پاش زدن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10323
 
@@ -289,22 +303,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10291
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-درصورت ارور چند بار بزنید ⭕️
-🩸 T.me/Tasiyanc
 </div>
 

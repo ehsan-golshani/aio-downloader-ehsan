@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 9558
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💵قیمت هر دلار 203.000 تومان ایرانی
+</div>
 
 ## tasiyanc — post 9556
 
@@ -287,24 +293,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام بر دلار ۲۰۰ تومن ، سلام بر بدبخت ایرانی
-</div>
-
-## tasiyanc — post 9537
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-
-آموزش اتصال ⛓
-
-🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
-
-
-اتصال پر سرعت برای همه 🇮🇷
-
-
-✔️ @TASIYANC ✅
 </div>
 

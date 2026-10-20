@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 171
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 6028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منم لیمیت خوردم
+</div>
 
 ## tasiyanc — post 6027
 
@@ -143,11 +149,5 @@ VİP 🔥.npvt
 
 🔴 آرسنال ❤️
 🇫🇷 پاریس 🔥
-</div>
-
-## tasiyanc — post 6003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هردو کانفیگ اوپن وصله برید حالشو ببرید
 </div>
 

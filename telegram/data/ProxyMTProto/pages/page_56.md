@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: shahi.shambelile.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51190
 
@@ -172,15 +181,6 @@ Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
 Server: 3etare.co.uk.
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51171
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 15443
-Secret: ee5d739d0cab70b86961816e3a9c27d4c17777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

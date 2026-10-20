@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51511
 
@@ -172,15 +181,6 @@ Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
 Server: ir.my-pv.info
 Port: 443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max-speed.co.uk
-Port: 443
-Secret: 84738086f0aa4f0c4f4b977e9d0b254e
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 9729
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 مقام آمریکایی:
+
+نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9728
 
@@ -288,13 +297,5 @@ til.ac/0L4vyJf
 🇫🇷 18 | 15 | 25 | 12
 
 @Tasiyanc 💋
-</div>
-
-## tasiyanc — post 9695
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max-speed.co.uk
+Port: 443
+Secret: 84738086f0aa4f0c4f4b977e9d0b254e
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51491
 
@@ -172,15 +181,6 @@ Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 Server: ir.macauley.info
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn6.cdnwave.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
 @ProxyMTProto
 </div>
 

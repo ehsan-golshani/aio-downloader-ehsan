@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 3etare.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51652
 
@@ -172,15 +181,6 @@ Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
 Server: All-nets.ir.agianaytan.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51633
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fast.mishutkin.click
-Port: 443
-Secret: eef767ebee5708dadc985d58ad6e04560664726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

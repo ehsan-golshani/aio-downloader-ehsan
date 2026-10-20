@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn6.cdnwave.org
+Port: 443
+Secret: ee7391242569590e01416101927d38b565686f66662e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51471
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: kostyanchekloh.lol
 Port: 443
 Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

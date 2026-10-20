@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 52173
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: toka13.amberreed.top
+Port: 443
+Secret: ee9cbfac70061528273114bf7c5c64f17c746f6b6131332e616d626572726565642e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52172
 
@@ -172,15 +181,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52153
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zolony22.lite64.xyz
-Port: 443
-Secret: ee9f8bd664e299f9a95891232c42f8806a6c69746536342e73697465
 @ProxyMTProto
 </div>
 

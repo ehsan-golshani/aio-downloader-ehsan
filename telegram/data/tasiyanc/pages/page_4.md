@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10853
+
+<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برد دیناموزاگرب
+Odd:1.98
+@Aron_tip
+</div>
 
 ## tasiyanc — post 10852
 
@@ -261,15 +271,5 @@ https://t.me/+EADakrBU74wyOGVk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10833
-
-<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
-
-💋 @Tasiyanc
 </div>
 

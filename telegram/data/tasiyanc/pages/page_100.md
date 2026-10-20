@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 8381
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب شب ارومی به نسبت شب‌های گذاشته داشتیم
+</div>
 
 ## tasiyanc — post 8380
 
@@ -197,16 +203,6 @@ Multi Location ⚡ Fast.npvt
 مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
 
 
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
 
 اتصال امن برای همه 🇮🇷
 

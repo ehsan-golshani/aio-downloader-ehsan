@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 52013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdnmarina.com
+Port: 443
+Secret: dd161011f2e6890fb06a45b244c6ff4e7c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52012
 
@@ -172,15 +181,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: cdnbarrel.org
 Port: 443
 Secret: ddd53127c4392815612a47803b9620ee40
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51993
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

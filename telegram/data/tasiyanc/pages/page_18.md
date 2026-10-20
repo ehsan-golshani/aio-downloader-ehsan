@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10553
+
+<div align="center"><video src="files/post_10553_tasiyanc_10553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10553_tasiyanc_10553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت آیفون 16 پرومکس توسط سارق در محله منیریه تهران
+
+دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10552
 
@@ -275,25 +289,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟 📢 در سایت بری بت وارد حساب کاربری خود شوید. 💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋 🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰 ✅ ورود به سایت:👇🅰g2 ⭐…
-</div>
-
-## tasiyanc — post 10532
-
-<div align="center"><img src="files/post_10532_tasiyanc_10532.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📈 10٪ شارژ اضافه بر روی واریزی‌های ارز دیجیتال برای کاربران بری بت ⭐️🌟
-
-📢 در سایت بری بت وارد حساب کاربری خود شوید.
-
-💸 از روش ارز دیجیتال اقدام به شارژ نمایید.🔋
-
-🪩 بر روی واریزی‌های ارز دیجیتال تا 0️⃣1️⃣🔣 شارژ اضافه دریافت نمایید.💰
-
-✅ ورود به سایت:👇🅰g2
-⭐ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-🌟 کانال رسمی ما در تلگرام: 👇
-🔗 https://t.me/BerryBetOfficial
 </div>
 

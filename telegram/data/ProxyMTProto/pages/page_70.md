@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 50911
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media9.happtg.org
+Port: 443
+Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50910
 
@@ -172,15 +181,6 @@ Secret: ee2cd47959b9ece2cc59b76a4a0c010ae37374726d2e79616e6465782e6e6574
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50891
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: api2.kvakzon.top
-Port: 2443
-Secret: eeb2a0e3b5fba31d961cba1437805cf950617069322e6b76616b7a6f6e2e746f70
 @ProxyMTProto
 </div>
 

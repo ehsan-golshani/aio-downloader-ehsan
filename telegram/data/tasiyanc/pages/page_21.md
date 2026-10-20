@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10483
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خواستگاری به سبک اماراتی‌ها؛
+دوماد رفته برا همه اعضای خانواده عروس، حتی برا خدمتکارشون هم آیفون ۱۸ خریده!!!
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10482
 
@@ -271,19 +280,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 
 این تراشه سیگنالهای مغز موقع تلاش برای حرف زدن رو میخونه و به کلمه و صدا تبدیل میکنه!
 این فناوری فعلاً آزمایشی و در مرحله کارآزمایی بالینیه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10463
-
-<div align="center"><img src="files/post_10463_tasiyanc_10463.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما زیبایی دریاچه مرداب سراوان - رشت 🇮🇷 را می‌بینید تکه ای از بهشت!
-
-لذت قایقرانی توی دریاچه سراوان رو نمیشه با قایق سواری توی دریاچه های دیگه مقایسه کرد!
 
 
 💋 @Tasiyanc

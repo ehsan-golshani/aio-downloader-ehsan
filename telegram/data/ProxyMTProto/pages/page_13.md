@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 52053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: e3fand.fesgheli.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52052
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: go.ultraproxy.shop
 Port: 443
 Secret: dd7781b85253bbbf6c34447d0201c30b60
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

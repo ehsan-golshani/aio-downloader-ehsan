@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 9695
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوان ایرانی از خیال داشتن 207 اومد رسید به دلار 207
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 9694
 
@@ -349,15 +357,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9667
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

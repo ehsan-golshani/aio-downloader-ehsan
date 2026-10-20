@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10027
+
+<div align="center"><video src="files/post_10027_tasiyanc_10027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10027_tasiyanc_10027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیروز یه خبرنگار لبنانی🇱🇧 داشت از شهر " نبطیه " لبنان گزارش تهیه میکرد که همون لحظه اسرائیل بیخ گوشش حمله کرد :
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10026
 
@@ -307,22 +319,6 @@ til.ac/0L4vyJf
 
 قیمت هر لیتر بنزین در اسرائیل ۸.۲۵ شِکِل (۲۷۰ هزار تومنه) که میشه ۷.۷۵ شِکِل (۲۳۵ هزار تومن).
 حقوق ها توی اسرائیل بالاست و بطور متوسط 4500 تا 5000 دلار (۱ میلیارد تومن و بالاتر) درامدشونه .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10000
-
-<div align="center"><video src="files/post_10000_tasiyanc_10000.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10000_tasiyanc_10000.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨عبور شاخص کل بورس تهران از مرز ۶.۸ میلیون واحد
-
-
-🔹شاخص کل بورس تهران در پنج دقیقه نخست معاملات امروز دوشنبه ۱۶ شهریور ۱۴۰۵، با افزایش ۱۶۷ هزار واحدی (معادل ۲.۵ درصد رشد) به ۶ میلیون و ۸۹۰ هزار و ۵۸۲ واحد رسید.
 
 
 💋 @Tasiyanc

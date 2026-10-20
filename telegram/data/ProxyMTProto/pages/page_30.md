@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51713
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.42.56.67
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51712
 
@@ -172,15 +181,6 @@ Secret: dd1a452ca2531bf0b6120cc3008ec6580b
 Server: kabab.mikhay.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51693
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kostyanchekloh.lol
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
 @ProxyMTProto
 </div>
 

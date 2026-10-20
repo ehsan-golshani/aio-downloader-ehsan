@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/07/28 00:26
+📅 آخرین بروزرسانی: 1405/07/28 08:23
 
 ---
+
+## tasiyanc — post 10164
+
+<div align="center"><img src="files/post_10164_tasiyanc_10164.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 کانفیگ پرمیوم نامحدود OpenVpn 📶
+
+مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
+
+جهت دریافت کانفیگ ها کلیک کنید
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10163
 
@@ -241,15 +256,6 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 🔴تصاویری نشان می‌دهد که نیروهای اسرائیلی چند لحظه پیش تونل‌های زیر کوه "علی الطاهر" در جنوب لبنان را منفجر کردند.
 پیشتر سپاه پاسداران اعلام کرده بود درصورت انفجار این تونل ها واکنش نشان خواهد داد.
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10139
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨/ترامپ به نیشن:
-اتش بس با این رژیم برای من تمام شده انها آشغال و تفاله هستند پایان رژیم ایران نزدیک است.
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 52133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dene60.hollowfern.sbs
+Port: 443
+Secret: ee0452c14b5e3aa0002b94fed71957540a6c69746536342e73697465
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52132
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: web.arixo.shop
 Port: 443
 Secret: dd27e57f496bbf279605f0198ea6d26067
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

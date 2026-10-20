@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/07/28 00:24
+📅 آخرین بروزرسانی: 1405/07/28 08:21
 
 ---
+
+## ProxyMTProto — post 51913
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ajab-Sorati-Dare-Ooh-OOh.moon
+Port: 8443
+Secret: dd00000000000000000000000000000000
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51912
 
@@ -172,15 +181,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: Unknown
 Port: 22
 Secret: dd79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdntide.org
-Port: 443
-Secret: ddee10a29f2e8abc6797a0c9cb1d476c39
 @ProxyMTProto
 </div>
 
