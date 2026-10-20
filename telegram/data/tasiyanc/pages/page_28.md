@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/07/28 08:23
+📅 آخرین بروزرسانی: 1405/07/28 13:27
 
 ---
+
+## tasiyanc — post 10327
+
+<div align="center"><video src="files/post_10327_tasiyanc_10327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10327_tasiyanc_10327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴عملکرد آنلاین شاپ ها تو اینستاگرام از عملکرد مسئولین بهتر بوده و بیشتر این پیج ها فروش بسیار خوبی دارن
+
+نیرویی خواستید مشتاق همکاری هستیم 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10326
+
+<div align="center"><img src="files/post_10326_tasiyanc_10326.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فیلترشکن جامپ‌جامپ حواشی های اخیر که میگفتن اطلاعات کاربران به سرقت رفته رو گردن نگرفت و تکذیب کرد
+
+من بودمم تکذیب میکردم 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10325
+
+<div align="center"><img src="files/post_10325_tasiyanc_10325.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جمعی از ستارگان هالیوود در مراسم امی ۲۰۲۶ که دیشب برگزار شد :
+
+پ‌ن کراشاتون لایک نداره؟
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10324
 
@@ -265,43 +304,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 
 + استقلال یکی از جوان‌ترین تیمای ایرانه امسال
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10297
-
-<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عجیب اما واقعی !
-توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
-
-یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
-
-عکس مربوط به کلاب M4 Dundas هست
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10296
-
-<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
-تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
-
-مراقب باجناق هاتون باشید🐸
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10295
-
-<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
-
-🩸 @Tasiyanc
 </div>
 

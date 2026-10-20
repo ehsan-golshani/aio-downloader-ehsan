@@ -1,8 +1,44 @@
 # آرشیو کانال MehdiBudam - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/28 08:22
+📅 آخرین بروزرسانی: 1405/07/28 13:26
 
 ---
+
+## MehdiBudam — post 8119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor10
+
+
+slipnet-enc://AQFeaAJICiZAxt0dzPM6mz+BnevNOgNk+2sGacpobLnSdU+9B3dF950bhon/js4JYzk5jTRogyzR+hUWplvwoKzadAJOt7EEnR/5TMptKLlzVNi0jOpcIV/pKaA9zZZonydvOvSU1JNzyZm0fFdVGC/CvzOUb3djyTxDZ8xqO+l2f0iJrDNfDHlCaOY0Zygmjb1dqhD7l3vWksAAq1jBvVQvX5rB2hJTYB6tMsHnDN13Ff/YtcRnLwnqgoewgVtW6gkax0LBm9fGbz6UhJswbEpZTV9e5/B/a4oRSilrlOialCZdmGpoF2FBcU+ff789S9qPtC6yzr6VALmXqkdfRxyXezfymDJsjgJ2DcyLe4LrQwWQ3vla8h81V/HRDwVBk4CfL6JwEUeoB/v/yVcB4BdBEqhEJAQUS7KnpfeNHbvUgCiu9jIGIjgU4d7EDLqDAhqsT1zqGPmXVqBC/9ere1duJZ/M6yqfzPz3BZk5qs9qMuwt+djtyy45n7XLzXq+27mCkpE4Moior7JZB1jSTpEF8SL59rbnSKpy1nTzYV+eJvxNvu0mTnT4m3M58LaT/FPI+fTz335B6NebUOct2pYB/qIYHuHhUNm5sNs7K2leGrZu7fK8+rfGoKnEGcjZc3jMWFII2kgUtV++vBUjTDZCM5N5ivItwS2QYs28BRnkWycIZLbAC8fJyeHOnU5RU8reR4MG2xDb6E+BSU3P/0kMTJIlr2OZlYJHPlJJ
+
+﻿
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8118
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor9
+
+
+slipnet-enc://AZhtkNTpdAO/CrmqNTLYW3zEIgiQyUyZXur7EuNygYGR9DnznzZehMci7GM2DIXGD4x0PGgzLpkQ+CyHImwOd7UBVIydt6tznIzYquPWW2PVaIJv64VU/t+77aofy1Oon3HRSCGOinoAn6JgAcYMkicPk32fu+xPQWFdMGeSUdH070x+Hv5pRItCMUP2C82DN0Snm/h1djr9E1UcZ207WcINa1bQoP2B6tQ8Qvo6yJgnR8tNCTBrFLf3KsiPJbpLkyN93PxEObBApennhuJhWExAAnYBHAeW+aFiQLz64Z6r8Bhxft+MDd9E6vrZ5oDczMTjD8IoR9e6PFQXfZZEOGBnEOkz4IjmxyB5TKaAOCJXdaOxVlFz0qgDL+BYwpwOQegBEX4XZFTjHn0wki/9KrZDFUHzd93srCR5BVHfKXE0ZrLLiXQ6BSYK0IBg5eX/MeWPG4lJuTdTFCHQ75/wJ7kIMlO4ObmiXo48tP9oZlTvxMOaEgrXPSO+rh02PjghkoRFRQH4P1DWiCaHvMeuhq2WrYJGvqQccGUJCWqtnLFjMfoaJBubepj3ggwBYbl6b2TcLgQpQvdiDWSXkIxT+XO+ab097Vftdobb8VDtIYjR7NdRvuPy0PvILxgHmp9sWIi/YK+HoDrjd+hCxW/1tpKxjrk1dfYC/uTnzc+3CkA5utDAumC+tGF3y1DB54wJEDKA15xQPeY5OnGzSDjVkwCI5fezNZcGRHhZFCo=
+
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8117
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tor8
+
+
+slipnet-enc://ASzieen3v58N7dtP4wq8K4c2WsdUOvnRPVSnBUa17XsUhgeEOE5R/h0zq1lBgQR6JniDGdcFvJ7HitxwXvpFAb8IKIq4fi0BP3xg5myCsS1QK/PaFGooRBawT6Ks7Jhgag4AUVin6xrZQv3sH/9Ym3HJ9Az3tb5EIjwfe2aNbBbIv8PxY7UB2vglEHYMCqlIv/C5YQcTAWfHHBUnSdiZ5Kkhi+1KhYaiG6LWED3frHaONVd9J6ML+ZL959cjg0aGKIM2OsRa7EB4oFJ+8ee195QD1K+kCVwJxpJbKjLVrIaoDCCWQZXErT46C868eiMx5jT/accR8uPXAZkSq9QevOkd90U1FlEC5LwHAAaAJbAZQKrPT0Tm71sPlW3Mf3YmBlRo6cLY0ZS6K3100Al9oK5BET33IySVye8Z6Oi+XwslciC3v8tegrRqEvt88RImtn2ObEa051ikQmua3wXfx5HeX6ZO39QbOPa7KBpU09b/jt6cB+jLJk8EEo62WLd7cAtEGHzL7PQd7cyHdjPa2JMvaQ+9CnL31zegyYOF0YUHefbUV/v0OzuhxVN1DrV9cIc677hwLralADYYnHOSmLGkysyq5pSiPk8T873ktVDNU5DO6NPTyMMRrjIHdnrYDJF1ByienyRPwjcVxNaGmJ3aZ9x5480wRzKBQMqlSQ65y+ox+2MlIet2DOkTU2URjfeWWEYnYJ+2htvz31lawlC6rDGc+VRHgw==
+
+
+@MehdiBudam
+</div>
 
 ## MehdiBudam — post 8116
 
@@ -152,23 +188,5 @@ slipnet-enc://AUt1vbsyMCgLdnXCsUqgPXxk+MpomberTz7M5eepUn7f+yRwlKooax4dZzcfn5SjyL
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طرف پیام داده میگه تو هم خوب از این داستانا پول زدی به جیب ها
 کسی این پولای مارو برنداشته؟ من ندیدمشون آخه
-</div>
-
-## MehdiBudam — post 8097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اکثرا تست کردن میگن obfs4 کار نمیکنه اما شما اونم اضافه کنید.
-</div>
-
-## MehdiBudam — post 8096
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق گفته یکی از دوستان Snowflake رو همراه کار میکنه. با مودم هم تست شده وصل میشه.
-</div>
-
-## MehdiBudam — post 8095
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️این روش آی پی شما را تغییر نمی‌دهد
 </div>
 

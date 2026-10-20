@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/07/28 08:23
+📅 آخرین بروزرسانی: 1405/07/28 13:27
 
 ---
+
+## tasiyanc — post 9350
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9349
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+معاوضه امیر با دسته بیل
+</div>
+
+## tasiyanc — post 9348
+
+<div align="center"><img src="files/post_9348_tasiyanc_9348.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جیسون استاتهام ستاره هالیوود : من فقط می‌خوام کار کنم ، پول دربیارم ، با آدمهای خوب غذا بخورم و هر روز عاشق ؛ یک زن باشم
+
+@Tasiyanc 🕒
+</div>
 
 ## tasiyanc — post 9347
 
@@ -230,48 +252,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دختر توپُر & اسکینی ؟ پسر توپُر & سیکس پک ؟ کامنت
-</div>
-
-## tasiyanc — post 9328
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دختر توپُر & اسکینی ؟
-
-پسر توپُر & سیکس پک ؟
-
-کامنت
-</div>
-
-## tasiyanc — post 9323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد 😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9321
-
-<div align="center"><img src="files/post_9321_tasiyanc_9321.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید نوید محمدزاده با پرچم پِلستین
-
-@Tasiyanc ☑️
 </div>
 

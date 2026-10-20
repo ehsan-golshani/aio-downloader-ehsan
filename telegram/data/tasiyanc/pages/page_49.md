@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/28 08:23
+📅 آخرین بروزرسانی: 1405/07/28 13:27
 
 ---
+
+## tasiyanc — post 9755
+
+<div align="center"><video src="files/post_9755_tasiyanc_9755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9755_tasiyanc_9755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
+
+او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9752
 
@@ -203,27 +239,5 @@ til.ac/0L4vyJf
 🟠 توییت جدید دونالد ترامپ
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری پرواز های مهرآباد لغو شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
 </div>
 
