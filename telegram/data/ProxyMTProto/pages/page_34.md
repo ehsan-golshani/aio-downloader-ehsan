@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/07/28 22:32
+📅 آخرین بروزرسانی: 1405/07/29 01:58
 
 ---
+
+## ProxyMTProto — post 51664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proverka.help
+Port: 443
+Secret: dd874b3dac836b10b2bef91d46d0124863
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.42.56.67
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51662
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.workingproxy.xyz
+Port: 443
+Secret: dddb688a36cd7c7b24fa0604392645bd82
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51661
 
@@ -149,33 +176,6 @@ Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
 </div>
 
 ## ProxyMTProto — post 51645
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51644
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: shampoo.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: p.lite64.xyz
-Port: 443
-Secret: ee5b7d8506708660cf5e4bd70d0ccc91d26c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51642
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown
