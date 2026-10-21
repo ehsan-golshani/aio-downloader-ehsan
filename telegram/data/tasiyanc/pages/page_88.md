@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 8771
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝗡𝗣𝗩 𝗩𝗶𝗽 𝗦𝗽𝗲𝗲𝗱⚡.npvt
+</div>
 
 ## tasiyanc — post 8770
 
@@ -257,11 +263,5 @@ Vip for TS ⚡🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Multi Loc ⚡ @Tasiyanc.npvt
-</div>
-
-## tasiyanc — post 8747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به وقت اذان صبح 💔
 </div>
 

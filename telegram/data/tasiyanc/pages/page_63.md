@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع ساعت ۲ پست ها پاک میشه
+</div>
 
 ## tasiyanc — post 9420
 
@@ -191,15 +197,5 @@ https://t.me/+F1CivZlkxrgzMTM0
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
-
-زمینه سازی میکنید گرون کنید جا*شا؟
-
-@Tasiyanc ⭐️
 </div>
 

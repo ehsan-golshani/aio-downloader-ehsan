@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10575
+
+<div align="center"><video src="files/post_10575_tasiyanc_10575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10575_tasiyanc_10575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ویدیو وایرال شده تغییر کاربری لنج های جنوب کشور «که از عمان و امارات بار میاوردن» به قایق های تفریحی
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10574
 
@@ -259,20 +271,6 @@ https://t.me/+NB1g7r1k_5I2ODE0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 یه دختر تو دبی خونه خریده و داره از کص‌و کونش 🍑 تشکر میکنه که باعث شدن خونه بخره.
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10553
-
-<div align="center"><video src="files/post_10553_tasiyanc_10553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10553_tasiyanc_10553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴سرقت آیفون 16 پرومکس توسط سارق در محله منیریه تهران
-
-دختره ساعت ۶:۳۰ صبح در حال گرفتن اسنپ بود که به حرومزاده میاد گوشیش‌رو اینطوری سرقت می‌کنه
 
 @Tasiyanc
 </div>

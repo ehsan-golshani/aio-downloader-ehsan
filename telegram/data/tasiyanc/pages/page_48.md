@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9814
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تسنیم:
+آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9809
 
@@ -331,16 +340,5 @@ til.ac/0L4vyJf
 
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨
-🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
-
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
-@HUNTTER_BET  @HUNTTER_BET
 </div>
 

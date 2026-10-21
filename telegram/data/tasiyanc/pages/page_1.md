@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10936
+
+<div align="center"><video src="files/post_10936_tasiyanc_10936.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10936_tasiyanc_10936.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو از پاستیل خوردن نهال خانم خوشگل وایرال شده :
+
+این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10935
 
@@ -286,18 +300,5 @@ G29🅰
 ✅ https://t.me/BerryBetOfficial
 آدرس سایت:🅰r28
 🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10915
-
-<div align="center"><img src="files/post_10915_tasiyanc_10915.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مارتینز ۴۹ ساله کل زندگیشو فروخت، ۲ هزار کیلومتر با اتوبوس رفت که به عشقش برسه، بعد فهمید عشقش یه مشت کد و الگوریتم بوده!
-
-روچا مارتینز ۴۹ ساله، همه اموالش رو پای به خاطر دختری به اسم جسیکا فروخت ، غافل از اینکه جسیکا اصلاً وجود خارجی نداشته و ساخته‌ی هوش مصنوعی بوده!؛ آخرشم، همون‌جا سکته کرده!
-
-
-⚡ @Tasiyanc
 </div>
 

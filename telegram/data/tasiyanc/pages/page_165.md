@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 165
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 6209
 
 ## tasiyanc — post 6208
 
@@ -177,11 +179,5 @@ Proxy 3 ✅ proxy 3
 دانلود iOS 📱
 آموزش⏩
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6184
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-GANG 🇳🇱🇬🇧🚀 (1).npvt
 </div>
 

@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 120
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 7699
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امشب بازی حساس ساعت 22:30 🏆
+
+🔵 Spain 🇪🇸 Portugal 🇵🇹 🐯
+</div>
 
 ## tasiyanc — post 7698
 
@@ -217,23 +225,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 صبحتون بخیر عشقا 😍
-</div>
-
-## tasiyanc — post 7664
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-4سرور سرعتی پرمیوم متد جدید 
-⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
- 
-✅@Tasiyanc |  تاسیان اتصال امن
 </div>
 

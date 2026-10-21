@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
 
 ## tasiyanc — post 10704
 
@@ -327,17 +338,5 @@ https://t.me/+E--pAy0bkURiOWM0
 
 
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

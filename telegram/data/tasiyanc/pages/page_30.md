@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10289
 
@@ -307,21 +324,5 @@ Join Join Join
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
 </div>
 

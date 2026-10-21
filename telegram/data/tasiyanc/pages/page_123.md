@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 7588
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حالتون چطوره؟
+</div>
 
 ## tasiyanc — post 7586
 
@@ -201,11 +207,5 @@ Fast ⚡️🚀 Premium.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کادو منو نمیدید روز پسره؟
-</div>
-
-## tasiyanc — post 7550
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-روز پسر امروزه ، روزتون مبارک مردهای کوچک باغیرت ❤️
 </div>
 

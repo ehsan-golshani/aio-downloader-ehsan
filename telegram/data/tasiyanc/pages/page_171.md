@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 171
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
 
 ## tasiyanc — post 6051
 
@@ -126,11 +132,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
 </div>
 

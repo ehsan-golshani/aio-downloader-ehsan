@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
+متصل با اکثر اینترنت ها
+اختصاصی، کل سرور ها تست شده
+
+فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
+
+دانلود V2Box نسخه اندروید 🔐
+دانلود V2Box نسخه iOS 🔐
+
+دانلود Npv Tunnel نسخه اندروید 🔐
+دانلود Npv Tunnel نسخه iOS 🔐
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10597
 
@@ -274,17 +293,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r5🅰
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10575
-
-<div align="center"><video src="files/post_10575_tasiyanc_10575.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10575_tasiyanc_10575.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تغییر کاربری لنج های جنوب کشور «که از عمان و امارات بار میاوردن» به قایق های تفریحی
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی
+
+هر دلار 218000
+
+طلای ۱۸ عیار 22.500.000
+
+سکه تمام بهار 222.600.000
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9835
 
@@ -245,15 +259,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9814
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨تسنیم:
-آغاز حملات موشکی ایران علیه پایگاه های آمریکایی در منطقه
 
 🩸 @Tasiyanc
 </div>

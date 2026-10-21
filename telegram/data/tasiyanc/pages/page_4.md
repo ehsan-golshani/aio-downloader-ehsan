@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
 
 ## tasiyanc — post 10873
 
@@ -299,15 +305,5 @@ https://t.me/+EhV1Lz5aPVVlNWI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برد دیناموزاگرب Odd:1.98 @Aron_tip
-</div>
-
-## tasiyanc — post 10853
-
-<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برد دیناموزاگرب
-Odd:1.98
-@Aron_tip
 </div>
 

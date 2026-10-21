@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 179
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 5854
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بهرحال ما ک قطعیم
+</div>
 
 ## tasiyanc — post 5853
 
@@ -174,15 +180,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Premium Fast servers 🔥🌱.npvt
-</div>
-
-## tasiyanc — post 5813
-
-<div align="center"><img src="files/post_5813_tasiyanc_5813.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایرانسل
-
-گوشیم رو بروز کردم
 </div>
 

@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9786
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨
+🔥جالب اینه که تموم فرما رایگانه و هیچ فروش فرمی نداریم
+
+@HUNTTER_BET  @HUNTTER_BET
+@HUNTTER_BET  @HUNTTER_BET
+@HUNTTER_BET  @HUNTTER_BET
+</div>
 
 ## tasiyanc — post 9785
 
@@ -249,17 +260,5 @@ https://Winamit.com/fa
 + زندگی روی خوشی با ما ایرانیا نداره
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9752
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دانستنی
-
-🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
-
-+ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
-
-🩸@Tasiyanc
 </div>
 

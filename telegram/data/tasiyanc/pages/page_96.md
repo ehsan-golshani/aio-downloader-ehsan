@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 8518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 چابهار چندین انفجار مهیب
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8517
 
@@ -244,11 +252,5 @@ Loc 🇩🇪 🇩🇪
 
 ✔️ T.me/Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8479
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خب بخوابید آروم شد
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10193
+
+<div align="center"><video src="files/post_10193_tasiyanc_10193.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10193_tasiyanc_10193.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دختر ایرانی با حجاب اختیاری رفته غذا بخوره با این صحنه روبرو شد :
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10191
 
@@ -355,21 +367,6 @@ A cinematic black-and-white editorial portrait of a young woman sitting indoors 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨اولین ویدیو منتشر شده از آزار و اذیت دختران ایران‌زمین توسط بیناموس‌های عراقی در سمنان که ساعتی بعد منجر به درگیری شدید بین جوانان وطن پرست و عراقی‌های حرامزاده در این شهر شد
 
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10164
-
-<div align="center"><img src="files/post_10164_tasiyanc_10164.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم نامحدود OpenVpn 📶
-
-مناسب برای دانلود ⬇️ هوش مصنوعی 🤖 اینستاگرام و یوتوب 📸 🎥
-
-جهت دریافت کانفیگ ها کلیک کنید
 
 
 💋 @Tasiyanc

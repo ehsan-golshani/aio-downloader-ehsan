@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9667
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9666
 
@@ -423,17 +433,5 @@ til.ac/0L4vyJf
 
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9637
-
-<div align="center"><video src="files/post_9637_tasiyanc_9637.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9637_tasiyanc_9637.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تصاویر آخرالزمانی از سیل امروز در نپال ، خانه ها ، پل‌ها ، ۴۰ کیلومتر جاده ، ۱۹ سد نابود شدند و ۳۰۰ نفر مفقود هستند
-
-💋 @Tasiyanc
 </div>
 

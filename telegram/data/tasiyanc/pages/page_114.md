@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 7944
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت 🔐
+
+سرور سرعتی پرمیوم متد جدید سرور ⚡️
+
+تست شده روی همه نت ها 🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود اندروید 🕹
+
+دانلود آیفون 📱
+
+مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
+
+
+
+اتصال امن برای همه 🇮🇷
+
+✔️ T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 7943
 
@@ -228,11 +252,5 @@ Cinematic street photography, a person standing in a dense crowd of blurred pede
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 7916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عکس مربوط به انفجار دزفول فیکه.
 </div>
 

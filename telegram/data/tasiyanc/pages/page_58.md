@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 9537
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+
+آموزش اتصال ⛓
+
+🔴 کانفیگ‌های قدیمی پاک کنید یا یکجا کلیردیتا بزنید جدیدارو بریزید ⭕️
+
+
+اتصال پر سرعت برای همه 🇮🇷
+
+
+✔️ @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 9536
 
@@ -333,11 +352,5 @@ til.ac/0L4vyJf
 
 @Tasiyanc 
 💋
-</div>
-
-## tasiyanc — post 9514
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc Mumbai 🇮🇳.ovpn
 </div>
 

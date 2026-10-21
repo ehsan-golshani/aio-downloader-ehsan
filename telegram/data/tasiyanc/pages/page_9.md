@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/29 19:28
+📅 آخرین بروزرسانی: 1405/07/29 23:22
 
 ---
+
+## tasiyanc — post 10768
+
+<div align="center"><video src="files/post_10768_tasiyanc_10768.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10768_tasiyanc_10768.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 بازگشت ناو آبراهام لینکلن به خانه 🇺🇸
+
+ناو آبراهام لینکلن بعد از بیش از ده ماه عملیات در خاورمیانه و جنگ با ایران به ( بندر سن‌دیگو - کالیفرنیا) رسید تمام 5 هزار نفر نیرو و پرسنل این ناو با سلامت کامل به خانه برگشتن
+
+بر اساس آخرین گزارشات «USNI NEWS» تا 5 اکتبر ناوشکن های ارتش ایالات متحده در منطقه حضور دارن؛
+
+•USS George Washington
+•USS George H.W. Bush
+•USS Boxer
+•USS Donald Cook
+•USS Ross
+•USS Shoup
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10767
 
@@ -254,18 +278,6 @@ https://t.me/+wLFODtl1yCEwYzFk
 🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
 این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10748
-
-<div align="center"><img src="files/post_10748_tasiyanc_10748.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پرونده‌ سنگین تجاوز در فوتبال دیواندره!
-
-توی باشگاه فوتبال «ستارگان دیواندره» دو مربی به اسم میثم و ادیب در مدت زمان پنج سال حضور در این باشگاه، به بیش از پنجاه کودک تعرض جنسی کردن!
-اونا به کودکان وعده میدادن در ازای برقراری رابطه جنسی با بچه‌ها، اونارو توی ترکیب اصلی میذارن و به تیم‌های بهتری میفرستن.
 ⚡ @Tasiyanc
 </div>
 
