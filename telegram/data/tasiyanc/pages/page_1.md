@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/29 09:08
+📅 آخرین بروزرسانی: 1405/07/29 14:37
 
 ---
+
+## tasiyanc — post 10931
+
+<div align="center"><img src="files/post_10931_tasiyanc_10931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ایلان ماسک با این ادعای پشم‌ریزون دنیا رو تکون داد ❗️
+
+می‌گه تا ۶ الی ۱۲ ماه دیگه، قراره اولین ایمپلنت‌های بینایی نورالینک کاشته بشن؛ فناوری‌ای که شاید حتی به نابیناهای مادرزاد هم کمک کنه برای اولین بار دنیا رو ببینن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10930
+
+<div align="center"><video src="files/post_10930_tasiyanc_10930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10930_tasiyanc_10930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه نفر به چند پیرمرد ماچا می‌ده و ازشون می‌پرسه به نظرتون این چیه؛ جواب‌هاشون حسابی سوژه شده
+
+یه نفرم جای ماچا میکروفون رو میخواست بخوره
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10929
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ کومو - منچستر یونایند 🌎 ساعت ۲۰:۱۵ ⚽️ لیل - گالاتاسرای 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
+</div>
+
+## tasiyanc — post 10928
+
+<div align="center"><img src="files/post_10928_tasiyanc_10928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ کومو - منچستر یونایند
+🌎 ساعت ۲۰:۱۵
+⚽️ لیل - گالاتاسرای
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r29
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10926
 
@@ -242,96 +303,5 @@
 
 
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10910
-
-<div align="center"><video src="files/post_10910_tasiyanc_10910.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10910_tasiyanc_10910.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان 
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10909
-
-<div align="center"><video src="files/post_10909_tasiyanc_10909.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10909_tasiyanc_10909.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-
-🛒 ورود به سایت 
-👇🅰g27
-
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-
-🌐 کانال رسمی ما در تلگرام 
-👇
-
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10908
-
-<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
-👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
-</div>
-
-## tasiyanc — post 10907
-
-<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️
-اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
-👤
-
-از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
-
-https://t.me/+HsrP_lU8O081ZWFk
-https://t.me/+HsrP_lU8O081ZWFk
-
-
-💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
-لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
-چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
-💰 🅰g27
 </div>
 
