@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/07/28 22:34
+📅 آخرین بروزرسانی: 1405/07/29 04:27
 
 ---
+
+## tasiyanc — post 10905
+
+<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرانسه 
+🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10904
+
+<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10903
 
@@ -264,36 +290,5 @@
 ⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
 🦁 کانال تلگرام: 🅰25
 ⚫️https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10884
-
-<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
-
-• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
-•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
-•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10883
-
-<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
-
-داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
-کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
-
-⚡ @Tasiyanc
 </div>
 

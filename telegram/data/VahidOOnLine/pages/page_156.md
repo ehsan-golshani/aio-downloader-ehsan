@@ -1,8 +1,91 @@
 # آرشیو کانال VahidOOnLine - صفحه 156
 
-📅 آخرین بروزرسانی: 1405/07/29 01:57
+📅 آخرین بروزرسانی: 1405/07/29 04:25
 
 ---
+
+## VahidOOnLine — post 260329
+
+<div align="center"><video src="files/post_260329_VahidOOnLine_260329.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_260329_VahidOOnLine_260329.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر من‌وتو از گراش استان فارس، با ارسال ویدیویی از خرابی خودروی صفر سایپا، از کیفیت پایین و تأخیر در تحویل آن گلایه کرده است. به گفتهٔ او، خودرویی که قرار بود سه‌ماهه تحویل داده شود، با تأخیر به دستش رسیده و بلافاصله پس از خروج از نمایندگی، چرخ عقب آن قفل کرده است.
+برای خریداری که ماه‌ها منتظر مانده، خرابی در نخستین مسیر، هم نگرانی دربارهٔ ایمنی ایجاد می‌کند و هم آغاز دردسر تازه‌ای برای تعمیر و پیگیری است.
+گلایه از سایپا فقط به تأخیر در تحویل خودرو محدود نیست؛ خرابی زودهنگام قطعات، نبود قطعه در نمایندگی و خواب چندروزهٔ خودرو برای تعمیر هم مطرح است.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260328
+
+<div align="center"><video src="files/post_260328_VahidOOnLine_260328.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_260328_VahidOOnLine_260328.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر من‌وتو با حضور بر مزار مهسا امینی در آرامستان آیچی سقز و ارسال ویدیویی، به مناسبت چهارمین سالگرد جان‌باختن او، یادش را گرامی داشته و به او و همهٔ جاویدنامان راه آزادی ادای احترام کرده است.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260327
+
+<div align="center"><video src="files/post_260327_VahidOOnLine_260327.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_260327_VahidOOnLine_260327.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گزارشگر من‌وتو با ارسال ویدیویی از رها کردن بادکنک‌های سفید با نام مهسا امینی در ورودی آرامستان آیچی سقز، از مردم خواسته است به مناسبت چهارمین سالگرد جان‌باختن او، به یاد مهسا و همهٔ جاویدنامان راه آزادی، بادکنک‌های سفید به آسمان بفرستند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260315
+
+<div align="center"><img src="files/post_260315_VahidOOnLine_260315.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+</div>
+
+## VahidOOnLine — post 260314
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای منتشرشده در شبکه‌های اجتماعی روز سه‌شنبه ۲۴ شهریور، از تاخیر طولانی پروازهای شرکت‌های هواپیمایی ایرانی در فرودگاه استانبول و اعتراض مسافران به نحوه رسیدگی به وضعیت آنان حکایت دارد.
+در یکی از این ویدیوها، مسافری می‌گوید پرواز ساعت ۱۱ شب آتا تا ساعت ۵:۳۰ صبح انجام نشده و زمان قطعی حرکت نیز مشخص نیست. به گفته او، مسئولان علت تاخیر را مشکل لاستیک هواپیما اعلام کرده‌اند. این مسافر همچنین از ندادن آب و پتو و اختصاص بن خریدی با مبلغ ناکافی برای تهیه غذا گلایه می‌کند. بر اساس گزارش‌ها پروازهای ماهان، ایران‌ایر و معراج نیز با تاخیر چندساعته روبه‌رو بوده‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260313
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مژگان افتخاری، مادر مهسا ژینا امینی، در آستانه چهارمین سال قتل حکومتی دخترش با انتشار یک فایل صوتی از صدای مهسا، در اینستاگرام نوشت: «ژینا یعنی مرگ پایان زندگی نیست.»
+
+او نوشت: «مهسا یعنی زنان و دختران مهمترین نیروی اجتماعی هستند.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 260312
+
+<div align="center"><img src="files/post_260312_VahidOOnLine_260312.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هانا نیومن، نماینده حزب سبز آلمان در پارلمان اروپا، در شبکه اجتماعی ایکس نوشت: «چهار سال پس از مرگ ژینا مهسا امینی، جمهوری اسلامی همچنان در برابر شجاعت با زندان، گلوله و اعدام پاسخ می‌دهد. اما این نسل ایران را تغییر داده است؛ حتی اگر هنوز نتوانسته باشد جمهوری اسلامی را تغییر دهد.»
+
+او تاکید کرد: «من همچنان تلاش خواهم کرد تا اطمینان حاصل شود که اتحادیه اروپا حمایت خود از جنبش «زن، زندگی، آزادی» را متوقف نخواهد کرد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 260311
 
@@ -164,96 +247,6 @@ Indypersian
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فرماندهی مرکزی آمریکا (سنتکام) روز سه‌نشبه، با انتشار تصاویری در اکس با اعلام پرواز یک هلی‌کوپتر «ام‌اچ-۶۰ سی‌هاوک» از روی عرشه ناوشکن «یو‌اس‌اس رافائل پرالتا» (DDG 115) در در چارچوب «اجرای محاصره دریایی ایران» نوشت: «تا ۲۴ شهریورماه، نیروهای آمریکایی برای اطمینان از تبعیت و اجرای کامل این محاصره، مسیر ۱۰۳ شناور تجاری را تغییر داده‌اند.» در تصاویر منتشرشده برخاستن بالگرد از عرشه این ناو جنگی و گشت‌زنی هوایی آن بر فراز یک شناور تجاری دیده می‌شود.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260298
-
-<div align="center"><img src="files/post_260298_VahidOOnLine_260298.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مسعود پزشکیان در جلسه شورای عالی صنایع دریایی خواستار ایجاد سازوکارهایی برای تسهیل و تسریع روند نوسازی ناوگان دریایی آسیب‌دیده در جریان جنگ ایران شد.
-
-پزشکیان همچنین خواستار استفاده از ظرفیت سازمان اموال تملیکی برای حمایت از بازسازی کشتی‌های آسیب‌دیده در جریان جنگ شد و تاکید کرد این حمایت‌ها باید به شکلی مدیریت شوند که همه مشمولان امکان استفاده از آنها را داشته باشند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260297
-
-<div align="center"><video src="files/post_260297_VahidOOnLine_260297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_260297_VahidOOnLine_260297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی پربازدید از جاده کوهستانی ترانس‌فاگاراشان در رومانی، نزدیک شدن یک توله خرس قهوه‌ای از پشت به مردی در حاشیه جاده را نشان می‌دهد.
-
-راننده‌ای که این لحظات را با دوربین خودرو ثبت کرد، با نزدیک کردن خودرو تلاش کرد خرس را دور کند و مرد نیز پس از حرکت ناگهانی حیوان، با شتاب به سمت خودروی خود دوید.
-
-جاده ترانس‌فاگاراشان به حضور خرس‌های قهوه‌ای در حاشیه مسیر شهرت دارد و مقام‌های رومانی بارها درباره نزدیک شدن گردشگران به این حیوانات و غذا دادن به آن‌ها هشدار داده‌اند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان در بریتانیا روز سه‌شنبه در چهارمین سالگرد جنبش «زن، زندگی، آزادی» یاد مهساژینا امینی، کشته‌شدگان اعتراضات ۱۴۰۱ و جاویدنامان انقلاب ملی در ۱۴۰۴ را گرامی داشتند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260295
-
-<div align="center"><img src="files/post_260295_VahidOOnLine_260295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی مرکزی آمریکا، سنتکام، سه‌شنبه ۲۴ شهریور با انتشار ویدیویی از پرواز یک بالگرد «ام‌اچ-۶۰ سی‌هاوک» از عرشه ناوشکن «یواس‌اس رافائل پرالتا» اعلام کرد این ناوشکن در دریای عرب در حال اجرای محاصره دریایی آمریکا علیه ایران است.
-به گفته سنتکام، نیروهای آمریکایی تا روز سه‌شنبه مسیر ۱۰۳ کشتی تجاری را برای اطمینان از رعایت این محاصره تغییر داده‌اند.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260294
-
-<div align="center"><video src="files/post_260294_VahidOOnLine_260294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_260294_VahidOOnLine_260294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عملیات جمع‌آوری زباله‌های واردشده به خلیج ایسه در نزدیکی ناگویا ژاپن، پس از بارندگی بی‌سابقه ۱۷ شهریور همچنان ادامه دارد. حجم زیادی از زباله‌ها پس از بارندگی و سیلاب وارد آب‌های این منطقه شده است.
-
-برای پاکسازی خلیج، کشتی ویژه «هاکوریو» به‌کار گرفته شده است. این کشتی مسیر تجمع زباله‌ها، به‌ویژه در نقاط تلاقی جریان‌های آب را دنبال می‌کند و با استفاده از جرثقیل پنجه‌ای و سبدهای مخصوص، زباله‌های شناور را از سطح آب جمع‌آوری می‌کند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260293
-
-<div align="center"><video src="files/post_260293_VahidOOnLine_260293.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_260293_VahidOOnLine_260293.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک مخاطب با ارسال ویدیویی به ایران اینترنشنال ضمن انتقاد از گرانی مواد غذایی گفت: «هر بلایی که بر سرمان می‌آورند، از ترس اینکه نمیرم به خیابان نمی‌رویم تا با بلند کردن صدایمان از حقمان دفاع کنیم و خود را نجات دهیم. این زندگی اما از مرگ بدتر است.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 260292
-
-<div align="center"><img src="files/post_260292_VahidOOnLine_260292.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسین طائب، رییس سازمان بسیج، درباره تنگه هرمز گفت: «برخی کشورها تلاش کردند با استفاده از ناوهای جنگی و اسکورت دریایی و هوایی، مسیرهایی را برای عبور کشتی‌ها ایجاد کنند و نشان دهند که می‌توانند بدون توجه به مواضع ایران در منطقه اقدام کنند، اما مقاومت ایران اجازه نداد این موضوع به سادگی به نتیجه برسد.»
-IranintlTV
 
 🤖 @VahidOOnLine
 </div>

@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 137
 
-📅 آخرین بروزرسانی: 1405/07/28 22:34
+📅 آخرین بروزرسانی: 1405/07/29 04:27
 
 ---
+
+## tasiyanc — post 7054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت دلار هم اکنون 155000
+</div>
+
+## tasiyanc — post 7052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختصاصی Ovpn  📶
+
+تست شده تمام نتها 
+🚀
+
+دانلود OpenVpn  🕹
+
+آموزش اتصال
+
+
+✔️ T.me/Tasiyanc 
+✅
+</div>
 
 ## tasiyanc — post 7050
 
@@ -195,23 +218,4 @@ matador ⚡ Fast.npvt
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 وای ببینید چی پیدا کردمه😂
 </div>
-
-## tasiyanc — post 7002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ نامحدود اختصاصی تاسیان 😎
-
-۲ سرور سرعتی مناسب تمام نت‌ها⚡️
-
-دانلود  وب‌گردی ، اینستاگرام
-🚀
-
-دانلود برنامه 🕹 IOS 📱 Android 
-
-آموزش اتصال 🔹
-
-✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7001
 

@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/28 22:34
+📅 آخرین بروزرسانی: 1405/07/29 04:27
 
 ---
+
+## tasiyanc — post 10884
+
+<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
+
+• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
+•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
+•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10883
+
+<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
+
+داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
+کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10882
 
@@ -300,62 +331,5 @@ G24🅰
 💵
 🛍
 👆
-</div>
-
-## tasiyanc — post 10863
-
-<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-
-🔥 مسابقات امروز 
-👍
-
-⚽️ اینتراخت فرانکفورت - کلن
-
-🌎 ساعت ۲۲:۰۰
-⚽️ دپورتیوولاکرونیا - لوانته
-
-🌎 ساعت ۲۲:۳۰
-
-﻿
-
-💸 ضرایب ویژه و رقابتی
-
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r24
-
-🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10862
-
-<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
-
-از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
-این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
-این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
-توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
-
-⚡ @Tasiyanc
 </div>
 

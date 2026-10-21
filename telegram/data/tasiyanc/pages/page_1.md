@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/28 22:34
+📅 آخرین بروزرسانی: 1405/07/29 04:27
 
 ---
+
+## tasiyanc — post 10925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 28🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
+</div>
+
+## tasiyanc — post 10924
+
+<div align="center"><img src="files/post_10924_tasiyanc_10924.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+28🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10923
 
@@ -301,32 +331,6 @@ https://t.me/+HsrP_lU8O081ZWFk
 
 یک کشیش در حال اجرای مراسم مذهبی بود که ناگهان صلیبی از دیوار جدا شد و روی سرش افتاد؛ حادثه‌ای که طبق گزارش‌ها، به مرگ او در همان لحظه منجر شد.
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10905
-
-<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فرانسه 
-🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10904
-
-<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
 
 ⚡ @Tasiyanc
 </div>

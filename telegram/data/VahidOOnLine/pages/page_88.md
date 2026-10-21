@@ -1,8 +1,105 @@
 # آرشیو کانال VahidOOnLine - صفحه 88
 
-📅 آخرین بروزرسانی: 1405/07/29 01:57
+📅 آخرین بروزرسانی: 1405/07/29 04:25
 
 ---
+
+## VahidOOnLine — post 262766
+
+<div align="center"><video src="files/post_262766_VahidOOnLine_262766.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262766_VahidOOnLine_262766.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روزسه‌شنبه هفتم مهر در جریان ضیافت نهاری با حضور چهره‌های برجسته فناوری و مقامات ارشد دولت در کاخ سفید، اعلام کرد که واشنگتن رسماً عبارت «هوش مصنوعی» را به «فراهوش» (Super Intelligence) تغییر خواهد داد.
+
+ترامپ با اشاره به امضای سند رسمی این تغییر نام گفت: «ما همگی هم‌نظر هستیم که این فناوری مصنوعی نیست؛ به همین دلیل امروز سندی را برای تغییر نام رسمی آن به فراهوش امضا می‌کنیم.»
+
+این نشست مهم با حضور رهبران ارشد دنیای فناوری و غول‌های سیلیکون‌ولی از جمله ایلان ماسک، جف بیزوس، ساتیا نادلا (مدیرعامل مایکروسافت)، لیسا سو (مدیرعامل AMD) و مدیران عامل شرکت‌های متا، انویدیا، گوگل، پالانتیر و آنتروپیک برگزار شد. همچنین گرگ براکمن، رئیس OpenAI، به نمایندگی از این شرکت در جلسه حضور داشت.
+
+در سمت دولتی نیز چهره‌هایی چون جی‌دی ونس، معاون رئیس‌جمهور، سوزی وایلز، رئیس دفتر کاخ سفید، اسکات بسنت، وزیر خزانه‌داری و هاوارد لوتنیک، وزیر بازرگانی، ترامپ را همراهی می‌کردند. این تصمیم در ادامه سیاست‌های جدید واشنگتن برای جایگزینی عنوان «فراهوش» در تمامی اسناد و مکاتبات رسمی دولت آمریکا اتخاذ شده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262765
+
+<div align="center"><video src="files/post_262765_VahidOOnLine_262765.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262765_VahidOOnLine_262765.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پدر جاویدنام سپهر شکری، جان‌‌باخته اعتراضات دی‌ماه ۱۴۰۴، با انتشار ویدیویی به سخنان مسعود پزشکیان در نیویورک واکنش نشان داد و گفت: «بچه‌های ما تروریست نبودند؛ گل‌هایی بودند که پرپر شدند.»
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262764
+
+<div align="center"><video src="files/post_262764_VahidOOnLine_262764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262764_VahidOOnLine_262764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی رسیده به ایران اینترنشنال نشان می‌دهد ایرانیان بریتانیا روز سه‌شنبه در ادامه تجمعات هفتگی برای حمایت از انقلاب ملی ایرانیان و علیه اعدام زندانیان و معترضان به دست جمهوری اسلامی، در لندن گرد هم آمدند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262763
+
+<div align="center"><video src="files/post_262763_VahidOOnLine_262763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262763_VahidOOnLine_262763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پویا احمدپور، نوجوان ۱۶ ساله اهل رشت و تنها فرزند خانواده بود. او ۳۱ شهریور ۱۴۰۱، در جریان اعتراضات سراسری، پس از حمله نیروهای حکومتی و وارد شدن ضربات باتوم به سر و گردنش به‌شدت مجروح شد. پویا پس از بازگشت به خانه حالش وخیم شد و روز بعد به بیمارستان انتقال یافت و به کما رفت. او پس از چند روز، ۶ مهر ۱۴۰۱ در بیمارستان جان باخت. پویا قرار بود همان مهرماه سال یازدهم رشته کامپیوتر را آغاز کند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262762
+
+<div align="center"><video src="files/post_262762_VahidOOnLine_262762.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262762_VahidOOnLine_262762.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+احسان افشاری‌منش، ۳۹ ساله و شهروند ایرانی‌ـ‌سوئدی، سال‌ها در سوئد زندگی می‌کرد و برای دیدار و رسیدگی به پدر و مادر سالخورده‌اش به ایران بازگشته بود. او پدر یک فرزند خردسال بود. احسان ۱۸ دی ۱۴۰۴ در جریان اعتراضات تهران هدف گلوله قرار گرفت و ناپدید شد. خانواده‌اش پس از روزها جستجو، پیکر او را در پزشکی قانونی کهریزک پیدا کردند. گزارش‌ها حاکی است پیکرش به‌شدت آسیب دیده بود و خانواده او را از روی خالکوبی‌هایش شناسایی کردند.
+ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262743
+
+<div align="center"><img src="files/post_262743_VahidOOnLine_262743.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مای ساتو، گزارشگر ویژه سازمان ملل، در واکنش به احکام اعدام صادرشده برای محسن اسلام‌خواه و شروین باقریان جبلی، دو معترض بازداشتی، در شبکه اجتماعی ایکس نوشت: «صدور حکم اعدام برای افرادی که هنگام وقوع «اقدامات ادعایی» کودک بوده‌اند، به‌طور کامل ممنوع است.»
+
+او افزود: «رعایت ممنوعیت اعدام کودکان حداقل کاری است که مقام‌های ایرانی می‌توانند انجام دهند، اما مقام‌ها باید اجرای این اعدام‌ها را متوقف کنند. آینده یک جوان نباید با صدور حکم اعدام پایان یابد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 262742
+
+<div align="center"><video src="files/post_262742_VahidOOnLine_262742.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_262742_VahidOOnLine_262742.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسالی به ایران‌اینترنشنال نشان می‌دهد که در پیرانشهر استان آذربایجان غربی، شعار «دانشجویان و دانش‌آموزان علم و دانش می‌خواهند، نه جنگ» روی دیوار یک خیابان نوشته شده است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 262741
 
@@ -194,106 +291,6 @@ IranintlTV
 
 🔹ناچار شدم سرترالین رو قطع کنم، الان تقریباً هر چند دقیقه احساس سرگیجه و کرخت شدن عضلات دارم.
 IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262728
-
-<div align="center"><img src="files/post_262728_VahidOOnLine_262728.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس، معاون رییس‌جمهوری ایالات متحده، در مصاحبه با وینسنت کُگلیانیز، پادکست‌ساز و روزنامه‌نگار محافظه‌کار آمریکایی، مقام‌های جمهوری اسلامی را مسئول فروپاشی تفاهم‌نامه اسلام‌آباد معرفی کرد و گفت آن‌ها با هدف قرار دادن کشتی‌های تجاری در آب‌های منطقه مرتکب اشتباه شدند.
-
-ونس افزود: «فکر می‌کنم ایرانی‌ها متوجه شده‌اند که اشتباه کردند. آن‌ها با ما توافقی امضا کردند، آتش‌بس برقرار شد، قیمت انرژی کاهش یافت و این امکان وجود داشت که اگر ایرانی‌ها به تعهدات خود عمل می‌کردند، از بهبود روابط با آمریکا منافع زیادی به دست آورند.»
-
-او همچنین به ابهام‌ها درباره وضعیت مجتبی خامنه‌ای، رهبر جمهوری اسلامی، اشاره کرد و گفت واشینگتن با قطعیت نمی‌داند که او زنده است یا نه، اما شواهد موجود نشان می‌دهد که همچنان در قید حیات است.
-
-ونس ادامه داد: «ما فکر می‌کنیم او زنده است. البته با قطعیت نمی‌دانیم. من هرگز او را ندیده‌ام. اخیرا هم تصویری از او در مقابل دوربین ندیده‌ام.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262727
-
-<div align="center"><video src="files/post_262727_VahidOOnLine_262727.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262727_VahidOOnLine_262727.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی ارسال‌شده به ایران‌اینترنشنال، حضور نیروهای سپاه و ادوات نظامی را در یکی از مدارس تهران نشان می‌دهد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262726
-
-<div align="center"><img src="files/post_262726_VahidOOnLine_262726.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شاهزاده محمد بن سلمان، ولیعهد عربستان سعودی، روز سه‌شنبه هفتم مهرماه در ریاض با شیخ منصور بن زاید آل نهیان، معاون رئیس امارات متحده عربی دیدار کرد. بر اساس گزارش خبرگزاری رسمی عربستان سعودی، دو طرف روابط میان دوکشور و همچنین آخرین تحولات منطقه را بررسی کردند.
-سفر شیخ منصور بن زاید به ریاض یک روز پس از آن انجام شد که وزیر دفاع عربستان سعودی رسما از او برای سفر به این کشور دعوت کرد.
-همزمان، شاهزاده محمد بن سلمان ولیعهد عربستان سعودی در تماس تلفنی با شیخ تمیم بن حمد آل ثانی، امیر قطر، درباره روابط دوجانبه، تازه‌ترین تحولات منطقه و تلاش‌ها برای دستیابی به امنیت و ثبات گفتگو کرد. عربستان سعودی و قطر طی هفته‌های اخیر نیز بر هماهنگی دیپلماتیک برای کاهش تنش‌های منطقه‌ای تاکید کرده‌اند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262725
-
-<div align="center"><img src="files/post_262725_VahidOOnLine_262725.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دونالد ترامپ، رییس‌جمهوری آمریکا، سه‌شنبه هفتم مهر در واشینگتن گفت حکومت ایران به سلاح هسته‌ای دست نخواهد یافت و جمهوری اسلامی «به‌شدت در حال شکست خوردن» است.
-
-ترامپ تاکید کرد این وضعیت «خیلی خیلی زود» پایان خواهد یافت و قیمت نفت به‌شدت کاهش خواهد یافت.
-
-او اقدام آمریکا در قبال جمهوری اسلامی را یکی از اقداماتی دانست که در آینده به عنوان یکی از مهم‌ترین اقدامات آمریکا در تاریخ ثبت خواهد شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262724
-
-<div align="center"><img src="files/post_262724_VahidOOnLine_262724.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جی‌دی ونس، معاون رئیس‌جمهوری ایالات متحده، در بخش دیگری از گفتگو با وینس کوگلیانسی اعلام کرد بر اساس شواهد موجود، واشنگتن بر این باور است که رهبر ایران همچنان زنده است، هرچند اطمینان قطعی در این باره وجود ندارد.
-
-ونس با پیچیده و مبهم خواندن ساختار تصمیم‌گیری در ایران گفت که جریان‌های مختلفی از جمله تندروها، محافظه‌‌کاران، میانه‌روها و روحانیون در اداره امور نقش دارند.
-
-وی با اشاره به شرایط حاکم بر مدیریت کشور افزود: «رهبر جدید ایران به شدت از مسائل فاصله گرفته و در امور روزمره دخالت نمی‌کند؛ او برخلاف سایرین در برنامه‌های خبری شرکت نکرده و درباره روند مذاکرات اظهار نظر نمی‌کند.»
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262695
-
-<div align="center"><video src="files/post_262695_VahidOOnLine_262695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_262695_VahidOOnLine_262695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی رسیده، بی‌تابی مادر جاویدنام مهدی جمشیدی را بر سر مزار پسرش نشان می‌دهد.
-﻿مهدی جمشیدی، ۲۴ ساله، شامگاه ۱۸ دی‌ ۱۴۰۴ در رستم‌آباد استان گیلان کشته شد.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 262694
-
-<div align="center"><img src="files/post_262694_VahidOOnLine_262694.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ماجد الانصاری، سخنگوی وزارت امور خارجه قطر روز دوشنبه گفت این کشور، به‌عنوان میانجی، تلاش می‌کند تا موانع گفتگوها میان جمهوری اسلامی ایران و آمریکا را از بین ببرد.
-
-به گزارش العربیه، ماجد الانصاری تاکید کرد که مساله بسته ماندن تنگه هرمز، صرفا مساله تاب‌آوری کشورهای منطقه‌ نیست، بلکه پرسش این است که جهان تا کی می‌تواند به این وضعیت ادامه دهد.
-Indypersian
 
 🤖 @VahidOOnLine
 </div>
