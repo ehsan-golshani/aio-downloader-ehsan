@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/29 14:37
+📅 آخرین بروزرسانی: 1405/07/29 19:28
 
 ---
+
+## tasiyanc — post 10935
+
+<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
+
+دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
+
+## tasiyanc — post 10933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G29🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10932
+
+<div align="center"><video src="files/post_10932_tasiyanc_10932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10932_tasiyanc_10932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دختری که با هدف سرگرمی و کسب درآمد با مردهای مختلف از طریق برخی کانال های صیغه‌یابی اشنا میشد می‌رفت باهاشون سکس میکرد، پس از اطلاع از ابتلا به بیماری ایـــــدز ( HIV ) دچار مشکلات روانی شده و تو آسایشگاه روانی بستریه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10931
 
@@ -245,63 +299,5 @@
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 27🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10913
-
-<div align="center"><img src="files/post_10913_tasiyanc_10913.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-27🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10912
-
-<div align="center"><img src="files/post_10912_tasiyanc_10912.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پورن استار پاکستانی میگه مسلمونم، حجاب دارم، نماز می‌خونم، روزه هم می‌گیرم؛ عزیز من، پس این حجم از تناقض رو کجای مغزمون جا بدیم؟
-
-فقط مونده معمای بابای بچه رو حل کنیم، انگار با یه پرونده جنایی طرفیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10911
-
-<div align="center"><video src="files/post_10911_tasiyanc_10911.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10911_tasiyanc_10911.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بازنشر سخنان محمدرضا شاه درباره تروریسم و هشدار به کشورهای اروپایی
-
-ویدیویی از محمدرضا شاه پهلوی، مربوط به حدود ۵۰ سال پیش، در فضای مجازی بازنشر شده که در آن درباره ضرورت مقابله با تروریسم و پیامدهای بی‌توجهی به آن صحبت می‌کند.
-او در این سخنان، از کشورهای اروپایی می‌خواهد تهدیدهای تروریستی را جدی بگیرند و نسبت به پیامدهای احتمالی عدم مقابله با آن هشدار می‌دهد.
-
-
-⚡@Tasiyanc
 </div>
 

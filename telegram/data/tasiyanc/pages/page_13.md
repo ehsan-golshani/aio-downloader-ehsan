@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/29 14:37
+📅 آخرین بروزرسانی: 1405/07/29 19:28
 
 ---
+
+## tasiyanc — post 10682
+
+<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10681
+
+<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10679
+
+<div align="center"><img src="files/post_10679_tasiyanc_10679.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰 یکشنبه‌ای که با یک انتخاب شروع می‌شود و با چندین شگفتی تمام! ⚽️🔥
+امروز ۱۲ مهر ۱۴۰۵، لیگ ملت‌های اروپا از ساعت ۱۶:۳۰ استارت می‌خورد و در ادامه، موج بازی‌ها در ساعت‌های ۱۹:۳۰ و ۲۲:۱۵ شب فوتبالی پرهیجانی می‌سازد.
+اما سؤال امروز اینجاست:
+
+👀 کدام تیم روی کاغذ مدعی است، اما ممکن است همه را غافلگیر کند؟
+از بین بازی‌های امروز یکی را انتخاب کن و قبل از شروع مسابقه ثبتش کن
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+🛰️ آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📷 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰11
+</div>
 
 ## tasiyanc — post 10678
 
@@ -229,54 +298,5 @@ https://AmitisBet.com/
 🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10661
-
-<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
-
-+اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10660
-
-<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+VGH5xHispzJlMjM8
-https://t.me/+VGH5xHispzJlMjM8
-</div>
-
-## tasiyanc — post 10658
-
-<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+VGH5xHispzJlMjM8
-https://t.me/+VGH5xHispzJlMjM8
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
 </div>
 

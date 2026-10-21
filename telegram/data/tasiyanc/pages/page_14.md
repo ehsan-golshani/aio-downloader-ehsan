@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/29 14:37
+📅 آخرین بروزرسانی: 1405/07/29 19:28
 
 ---
+
+## tasiyanc — post 10661
+
+<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
+
++اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10660
+
+<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+</div>
+
+## tasiyanc — post 10658
+
+<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
+</div>
 
 ## tasiyanc — post 10657
 
@@ -239,60 +288,5 @@ https://AmitisBet.com/
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
 🔠🔡🔡🔡🔡🔡🔠🔡🔡
 ۱۸+ | مسئولانه بازی کنg9🅰
-</div>
-
-## tasiyanc — post 10640
-
-<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دکتر بسکابادی:
-اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
-باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
-پسر بودنم سخته
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10639
-
-<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
-
-تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🌟
-
-تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید ❤️
-دانلود برای آیفون  📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 دلار 260.000 ؛ داره می‌ره سمت 300
-
-سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
-
-⚡ @Tasiyanc
 </div>
 
