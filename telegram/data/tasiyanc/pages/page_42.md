@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9957
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
+
+🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9956
+
+<div align="center"><video src="files/post_9956_tasiyanc_9956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9956_tasiyanc_9956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پسرا چقد مهربون شدن جدیدا به هیشکی نه نمیگن😞...
+
++ حقیقتا با دیدن این ریدم
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9954
 
@@ -273,37 +297,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9932
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-⚡دریافت کانفیگ های وایرگارد 🔥
-
-⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9929
-
-<div align="center"><video src="files/post_9929_tasiyanc_9929.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9929_tasiyanc_9929.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وضعیت برخی بلاگرای وطنی تو اینستاگرام روز به روز بدتر و کسشر میشه
-
-+کمر به نابودی مردم بستن
-
-💋 @Tasiyanc
 </div>
 

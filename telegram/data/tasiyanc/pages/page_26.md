@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10394
+
+<div align="center"><video src="files/post_10394_tasiyanc_10394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10394_tasiyanc_10394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوره‌ی جدیدی در صنعت آرایشگری مردان بلاگر آنلاک شد :
+
+خب لامصب یه بار لخت شو بیا 😐
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10393
 
 ## tasiyanc — post 10392
 
@@ -241,31 +257,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 دوتا برادر بعد از فوت پدرشون تصمیم میگیرن تمام اموال باباشونو بالا بکشن،
 دو تا خواهر و دو برادر و مادر خودشونو به قتل میرسونن و یه چاه میکنن و جنازه هارو میندازن توش و تمام اموالو بالا میکشن، با یه دختر اوکی میشه یکیشون که دختره می‌فهمه خیلی پولدارن مشکوک میشه ، میفهمه خانوادشونو به قتل رسوندن، سریع به پلیس گزارش می‌کنه و دستگیر میشن
 ﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10370
-
-<div align="center"><video src="files/post_10370_tasiyanc_10370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10370_tasiyanc_10370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یک نیروی حوثی ضامن نارنجک رو می‌کشه تا به دوستش نشون بده الله ازش محافظت می‌کنه… تا آخر ببینید 🤣
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10369
-
-<div align="center"><video src="files/post_10369_tasiyanc_10369.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10369_tasiyanc_10369.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیشب تو تهران دوتا دختر با موتورشون چند ساعت پشت یه ماشین تو ترافیک گیر کرده بودن؛ وقتی که خسته میشن، میان پایین و می‌بینن اصلا ماشینه راننده نداره و طرف پارک
-کرده رفته😂
 💋 @Tasiyanc
 </div>
 

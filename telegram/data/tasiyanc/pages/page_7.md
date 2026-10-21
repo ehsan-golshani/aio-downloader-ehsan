@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10815
+
+<div align="center"><video src="files/post_10815_tasiyanc_10815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10815_tasiyanc_10815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تو تجمعات شبانه دیشبِ تبریز؛
+یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10814
+
+<div align="center"><video src="files/post_10814_tasiyanc_10814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10814_tasiyanc_10814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10813
 
@@ -254,20 +279,5 @@ https://t.me/+6L9plEThEMk5YTJk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از حدیث ستاری، دندانپزشک و مدل ایرانی در مسابقات میس گلوبال، در بخش لباس‌ملی با طرحی به نام «پرشیا» روی صحنه درخشید؛ لباسی الهام‌گرفته از شکوه ایران باستان که جلوه‌ای از تاریخ و هویت ایران را به نمایش گذاشت.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

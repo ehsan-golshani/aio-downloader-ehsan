@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9788
+
+<div align="center"><img src="files/post_9788_tasiyanc_9788.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9787
+
+<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی_سایت
+
+
+💵12 سایت عالی برای فریلنسری
+(گرفتن پروژه دورکاری ; خونه بشین کار کن)
+
+
+🔗 www.fiverr.com
+
+🔗 www.odesk.com
+
+🔗 www.elance.com
+
+🔗 www.99designs.com
+
+🔗 www.freelancer.com
+
+🔗 www.freelanced.com
+
+🔗 www.ifreelance.com
+
+🔗 www.peopleperhour.com
+
+🔗 www.peopleperhour.com
+
+🔗 www.upwork.com
+
+سایت های معرفی شده معتبر و اثبات شده هستند.
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9786
 
@@ -236,28 +284,6 @@ https://Winamit.com/fa
 🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
 
 او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9754
-
-<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
-
-+ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار رسیده 211000 تومان 😞
-
-+ زندگی روی خوشی با ما ایرانیا نداره
 
 🩸 @Tasiyanc
 </div>

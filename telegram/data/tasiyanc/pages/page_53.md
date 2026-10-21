@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 53
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9671
+
+<div align="center"><video src="files/post_9671_tasiyanc_9671.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9671_tasiyanc_9671.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 
+📶
+
+مناسب برای گیم - دانلود , Ai
+اینستاگرام 
+📸 یوتوب 
+🎥
+
+آموزش اتصال 
+⛓
+
+دانلود برای اندروید 
+🕹
+
+دانلود برای آیفون
+📱
+
+
+
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9668
+
+<div align="center"><img src="files/post_9668_tasiyanc_9668.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طبق یک پیشبینی ریاضی که به یک دانشمند آمریکایی نسبت داده میشود ، دنیا روز جمعه ۱۳ نوامبر ۲۰۲۶ به پایان می‌رسد تقریبا ۷۸ روز دیگه .
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9667
 
@@ -381,57 +421,5 @@ til.ac/0L4vyJf
 
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9643
-
-<div align="center"><video src="files/post_9643_tasiyanc_9643.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9643_tasiyanc_9643.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-•سرور ایران مخصوص گیم( پایداری پینگ )
-
-•مناسب دانلود - وبگردی - اینستاگرام 
-📸
-
-آموزش اتصال 
-
-در صورت ارور چند بار بزنید
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9639
-
-<div align="center"><video src="files/post_9639_tasiyanc_9639.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9639_tasiyanc_9639.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 
-📶
-
-مناسب برای دانلود ، اینستاگرام 📸 یوتوب 
-🎥
-
-تست شده تمام نت‌ها
-
-آموزش اتصال 
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-در صورت ارور چند بار بزنید
-
-
-🩸 T.me/Tasiyanc
 </div>
 

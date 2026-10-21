@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10835
+
+<div align="center"><img src="files/post_10835_tasiyanc_10835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰21
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10834
+
+<div align="center"><video src="files/post_10834_tasiyanc_10834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10834_tasiyanc_10834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدئوی وایرال شده از‌ مراسم جشن فارغ التحصیلی دانشگاه چمران اهواز
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10833
 
@@ -243,30 +274,5 @@ https://t.me/+A6R70wBCKApkYTRk
 https://t.me/+A6R70wBCKApkYTRk
 
 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10815
-
-<div align="center"><video src="files/post_10815_tasiyanc_10815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10815_tasiyanc_10815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 تو تجمعات شبانه دیشبِ تبریز؛
-یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10814
-
-<div align="center"><video src="files/post_10814_tasiyanc_10814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10814_tasiyanc_10814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
-
-⚡ @Tasiyanc
 </div>
 

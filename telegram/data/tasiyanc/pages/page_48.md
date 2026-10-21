@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گویا توی کوهستک «هرمزگان» ترکش موشک امریکا به وسط عروسی برخورد کرده که هدف اصلی اسکله بود
++ متاسفانه این حادثه کشته داده
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تایید نشده - امشب سپاه یه موشک به سمت پایگاه های آمریکایی شلیک کرده که موشکه وسط راه دچار نقض میشه و وسط شهرِ خمین سقوط کرده:
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9814
 
@@ -290,54 +309,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نذر متفاوت پسر سبزواری برای رسیدن به دختر مورد علاقه اش :|
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9788
-
-<div align="center"><img src="files/post_9788_tasiyanc_9788.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-رکورد مسن ترین زن ایران هم رسید به این مادربزرگمون که به ۱۲۹ سال رسیده و کارت ملیشو تازه دریافت کرده
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9787
-
-<div align="center"><img src="files/post_9787_tasiyanc_9787.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی_سایت
-
-
-💵12 سایت عالی برای فریلنسری
-(گرفتن پروژه دورکاری ; خونه بشین کار کن)
-
-
-🔗 www.fiverr.com
-
-🔗 www.odesk.com
-
-🔗 www.elance.com
-
-🔗 www.99designs.com
-
-🔗 www.freelancer.com
-
-🔗 www.freelanced.com
-
-🔗 www.ifreelance.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.peopleperhour.com
-
-🔗 www.upwork.com
-
-سایت های معرفی شده معتبر و اثبات شده هستند.
-
 
 🩸 @Tasiyanc
 </div>

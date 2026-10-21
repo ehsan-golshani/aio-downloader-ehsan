@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 8290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مشخصات کامل بزاریم؟
+</div>
+
+## tasiyanc — post 8289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بعدیا بیان پیوی
+</div>
 
 ## tasiyanc — post 8288
 
@@ -146,25 +158,5 @@ JAVID SHAH 👑
 
 
 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8268
-
-<div align="center"><img src="files/post_8268_tasiyanc_8268.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 وضعیت راه آهن بندرعباس پس از حمله ارتش آمریکا
-
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴خبرگزاری تسنیم: هم اکنون حمله موشکی سپاه به یک کشتی تجاری در تنگه هرمز
-
-
-@Tasiyanc✅
 </div>
 

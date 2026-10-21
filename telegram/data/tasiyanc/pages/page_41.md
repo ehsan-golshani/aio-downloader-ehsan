@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9982
+
+<div align="center"><video src="files/post_9982_tasiyanc_9982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9982_tasiyanc_9982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک تک‌تیرانداز از شبه‌نظامیان یمنی طرفدار عربستان، وقتی که یک جنگجوی حوثی داشته قضای حاجت میکرده، از فرصت استفاده میکنه و به "شمبول" او شلیک میکنه 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9980
 
@@ -265,30 +287,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺حسن روحانی:
 هیچکس از طرف خدا حاکم نشده. همتون مستقیم و غیرمستقیم با رای مردم مسئولیت دارید. از اون بالایی تا پایینی‌. پس ببینید مردم چی میگن؛ همون کارو کنید. اگه میخواید ۲۰ سال دیگه با دنیا بجنگید اول باید مردم موافق باشن. اون که پیغمبرش بود و به خدا وصل بود مشورت میکرد؛ حالا شما کی هستید؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
-
-🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9956
-
-<div align="center"><video src="files/post_9956_tasiyanc_9956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9956_tasiyanc_9956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پسرا چقد مهربون شدن جدیدا به هیشکی نه نمیگن😞...
-
-+ حقیقتا با دیدن این ریدم
 
 💋 @Tasiyanc
 </div>

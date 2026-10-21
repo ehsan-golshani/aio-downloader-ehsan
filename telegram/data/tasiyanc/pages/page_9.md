@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10770
+
+<div align="center"><video src="files/post_10770_tasiyanc_10770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10770_tasiyanc_10770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 پروتز ممه رنگی هم اومد و به ایران هم رسیده گویا
+
+فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10769
+
+<div align="center"><video src="files/post_10769_tasiyanc_10769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10769_tasiyanc_10769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 دانش آموزای آذربایجانی بر علیه تصمیم دولت آذربایجان مبنی بر اخراج معلما و دانش آموزای باحجاب اعتراضات برگزار کردن درصورتی که ۹۹ درصد معترضان خودشون بی حجابن :
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10768
 
@@ -246,38 +271,5 @@ https://t.me/+ramzL0orpc5hMTBk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10750
-
-<div align="center"><img src="files/post_10750_tasiyanc_10750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+wLFODtl1yCEwYzFk
-https://t.me/+wLFODtl1yCEwYzFk
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10749
-
-<div align="center"><img src="files/post_10749_tasiyanc_10749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون فرفری شه
-
-🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
-این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
-
-⚡ @Tasiyanc
 </div>
 

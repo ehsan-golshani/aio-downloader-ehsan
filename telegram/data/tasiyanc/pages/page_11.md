@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10730
+
+<div align="center"><video src="files/post_10730_tasiyanc_10730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10730_tasiyanc_10730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 7 October، روزِ «تو برام مهمی» هست
+
+
++این روز رو به کسی که براش اهمیت میدی بفرست ❤️‍🔥
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10729
+
+<div align="center"><video src="files/post_10729_tasiyanc_10729.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10729_tasiyanc_10729.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 تمجید جذاب پهبادی در آسمان از لیونل مسی !
+
+مراسم زیبای و ویژه برای وداع با مسی
+
+📣 208 مسابقه
+🎯 126 گل
+🎯 67 پاس گل
+🥇طلای المپیک 2008
+🏆 جام جهانی 2022
+🏆 کوپا آمریکا 2021
+🏆 کوپا آمریکا 2024
+🏆 فینالیسیما 2022
+🔴136 پیروزی - 29 شکست و 43 تساوی
+﻿
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10728
 
@@ -273,35 +313,6 @@ https://reffpa.com/L?tag=d_2610459m_2765c_Registration&site=2610459&ad=2765&r=re
 🚨ادعای عجیب یکی از نیروهای آتش‌نشانی در مورد ساخت پلاک مشخصات برای دانش آموزان:
 
 امروز رفتم یه دبیرستان دخترانه برای کنترل مسائل امنیتی بین حرفامون با مسئولین مدرسه متوجه شدم که دارن برای دانش آموزان پلاک مشخصات فردی درست میکنن مثل همونایی که زمان جنگ استفاده میشد؛
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10707
-
-<div align="center"><img src="files/post_10707_tasiyanc_10707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 آبتین شریفی، جوانی از ممسنی و رتبه 1400 کنکور تجربی، تنها یک هفته مانده به اعلام نتایج، بر اثر ایست قلبی از دنیا رفت.
-
-آبتین برای رسیدن به رویای پزشکی تلاش کرده بود، اما مرگ فرصت دیدن نتیجه زحماتش را ازش گرفت
-
-روحش شاد 🖤
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10706
-
-<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
-
 
 ⚡ @Tasiyanc
 </div>

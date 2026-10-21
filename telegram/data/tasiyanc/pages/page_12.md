@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 10707
+
+<div align="center"><img src="files/post_10707_tasiyanc_10707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آبتین شریفی، جوانی از ممسنی و رتبه 1400 کنکور تجربی، تنها یک هفته مانده به اعلام نتایج، بر اثر ایست قلبی از دنیا رفت.
+
+آبتین برای رسیدن به رویای پزشکی تلاش کرده بود، اما مرگ فرصت دیدن نتیجه زحماتش را ازش گرفت
+
+روحش شاد 🖤
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10706
+
+<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10705
 
@@ -311,32 +340,5 @@ https://t.me/+E--pAy0bkURiOWM0
 شدت بمبارون‌ها خیلی شدیدتر خواهد بود، کشورای بیشتری درگیر میشن و این نبرد آخره.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10685
-
-<div align="center"><video src="files/post_10685_tasiyanc_10685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10685_tasiyanc_10685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تولد هالویینی یکی از کافه های تهران
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10684
-
-<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 4 October, روز جهانی حیواناته.
-
-+این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
-
-
-⚡@Tasiyanc
 </div>
 

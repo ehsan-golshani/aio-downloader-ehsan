@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 50
 
-📅 آخرین بروزرسانی: 1405/07/29 23:22
+📅 آخرین بروزرسانی: 1405/07/30 02:28
 
 ---
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9752
 
@@ -211,19 +233,5 @@ til.ac/0L4vyJf
 🚨 فوری پرواز های مهرآباد لغو شد
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
 </div>
 
