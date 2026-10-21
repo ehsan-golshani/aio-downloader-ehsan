@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 10926
+
+<div align="center"><video src="files/post_10926_tasiyanc_10926.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10926_tasiyanc_10926.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این خانوم دو روز پیش یه تبلیغ ساده واسه آنلاین‌شاپ پروتئینش گذاشت، ولی پستش نزدیک ۵ میلیون ویو خورد!
+
+دلیل وایرال شدنشم ظاهراً بیشتر از پروتئین، چاک کونشه مثل طالبی ورامین انداخت بیرون که تو ویدیو حسابی تو چشمه؛ خلاصه تبلیغ پروتئین بود، ولی ملت یه چیز دیگه دیدن!
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10925
 
@@ -317,21 +333,5 @@ https://t.me/+HsrP_lU8O081ZWFk
 لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
 چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
 💰 🅰g27
-</div>
-
-## tasiyanc — post 10906
-
-<div align="center"><video src="files/post_10906_tasiyanc_10906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10906_tasiyanc_10906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اتفاقی عجیب و تلخ در کلیسایی در اکوادور 
-🇪🇨
-
-یک کشیش در حال اجرای مراسم مذهبی بود که ناگهان صلیبی از دیوار جدا شد و روی سرش افتاد؛ حادثه‌ای که طبق گزارش‌ها، به مرگ او در همان لحظه منجر شد.
-
-
-⚡ @Tasiyanc
 </div>
 

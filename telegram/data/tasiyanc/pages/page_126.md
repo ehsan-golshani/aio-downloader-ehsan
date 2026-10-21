@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 7448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️حمله آمریکا به بندرلنگه و بندر کنگ
+</div>
 
 ## tasiyanc — post 7447
 
@@ -191,11 +197,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم بره وار
-</div>
-
-## tasiyanc — post 7419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گگگگگگگگگگگگگللللللللل ایران
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 10844
+
+<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
+
+https://t.me/+EADakrBU74wyOGVk
+https://t.me/+EADakrBU74wyOGVk
+
+تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
+</div>
 
 ## tasiyanc — post 10843
 
@@ -276,17 +291,5 @@ https://apps.apple.com/us/app/npv-tunnel/id162946547
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10824
-
-<div align="center"><video src="files/post_10824_tasiyanc_10824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10824_tasiyanc_10824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
-
-💋 @Tasiyanc
 </div>
 

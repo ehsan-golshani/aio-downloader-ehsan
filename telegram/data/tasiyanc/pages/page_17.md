@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 10586
+
+<div align="center"><video src="files/post_10586_tasiyanc_10586.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10586_tasiyanc_10586.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
+
+و به همین زیبایی پول مردم رو خوردن
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10585
 
@@ -248,19 +262,5 @@ https://AmitisBet.com/
 🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10564
-
-<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لحظه چپ کردن BMW تو جردن تهران
-
-پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
-
-💋 @Tasiyanc
 </div>
 

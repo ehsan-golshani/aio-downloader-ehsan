@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 97
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 8468
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش از انفجار در منطقه سردرود تبریز
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8467
 
@@ -150,11 +158,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بازی بعدی فینال ایران و امریکا
-</div>
-
-## tasiyanc — post 8448
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گل شد ولی افساید
 </div>
 

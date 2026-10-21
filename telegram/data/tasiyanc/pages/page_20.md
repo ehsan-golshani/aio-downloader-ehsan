@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 10522
+
+<div align="center"><img src="files/post_10522_tasiyanc_10522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مادر جاویدنام یاشار سلطانی راد، که فرزندِ پهلوون، بدنساز و کشتی گیرش رو در اعتراضات دی ماه از دست داده بود، پس از تحمل غم و درد فراوان، دق کرد و درگذشت.
+
+پیش از این مادرِ یاشار از شدت غم، چندین بار دچار سکته و بیهوشی شده بود!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10521
 
@@ -325,20 +337,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 😀
 
 📎 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10494
-
-<div align="center"><video src="files/post_10494_tasiyanc_10494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10494_tasiyanc_10494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴به تازگی فشن شو دیزل توی ایتالیا برگزار شده که پشمای همه فرفری شده!
-
-تماشاگرا اون وسط خودارضایی میکردن، تریسام میزدن، لز میکردن، میک لاو میکردن که در نهایت باعث شد نصف سالن ارضا بشن!
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 188
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 5595
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانالت عالیه من همیشه با تو وصلم
+</div>
 
 ## tasiyanc — post 5594
 
@@ -177,11 +183,5 @@ WAR 🔥.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚀 4 SRVR.npvt
-</div>
-
-## tasiyanc — post 5565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-باز تاسیان پخت پز شروع کرد
 </div>
 

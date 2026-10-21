@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 9945
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9944
 
@@ -289,14 +295,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨 حمله موشکی از سیریک به تنگه هرمز
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 آغاز حملات هولناك اسرائیل به جنوب لبنان
 
 💋 @Tasiyanc
 </div>

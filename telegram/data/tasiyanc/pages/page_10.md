@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/07/29 04:27
+📅 آخرین بروزرسانی: 1405/07/29 09:08
 
 ---
+
+## tasiyanc — post 10739
+
+<div align="center"><img src="files/post_10739_tasiyanc_10739.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کمکِ 200‌ميليون دلاری جمهوری اسلامی به حزب‌الله؛
+
+طبق گفته دو منبع آگاه، حزب‌الله ماه پیش 200 میلیون دلار از جمهوری اسلامی واسه کمک به آوارگان گرفته.
+حزب‌الله قصد داره تو مرحله اول به هر خانواده‌ی واجد شرایط، 3 هزار دلار (تقریبا ۸۰۰ میلیون تومن) پرداخت کنه.
+اولویت هم با خانواده‌هاییه که اسرائیل، روستاشون رو تخریب کرده یا به‌دلیل حضور ارتش اسرائیل، امکان بازگشت به اونجا رو ندارن.
+حدود 50 هزار خانواده در انتظار دریافت این مبلغ هستن.
+واسطه‌هایی که این پول رو منتقل کردن، به دلیلِ ریسکِ بالا، 20 درصد کارمزد گرفتن که چهار برابر کارمزد معمول بوده.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10738
 
@@ -257,20 +273,6 @@ https://t.me/+EObzAJI5HS5jOTk8
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴اگر گوشی‌تون مدل بالا نیست ولی دوست داری عکس‌های باکیفیت بگیری، این ویدئو رو حتما ببین
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10718
-
-<div align="center"><video src="files/post_10718_tasiyanc_10718.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10718_tasiyanc_10718.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحبتای «وایرال شده» این دختر خانم راجب چیزایی که این روزا خیلی از پسرا درگیرشن ؛
-
-قبول کنید حرف حق رو زد....
 
 ⚡ @Tasiyanc
 </div>
