@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 189
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 5598
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+من فقط با نپستر این چنل وصلم
+</div>
 
 ## tasiyanc — post 5597
 
@@ -175,11 +181,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تو ده مین ۱۰۰ تا فور 😐
-</div>
-
-## tasiyanc — post 5568
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نامحدودن بستگی داره چقد سرور شلوغ باشه
 </div>
 

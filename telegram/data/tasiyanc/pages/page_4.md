@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی صرافی ایرانی
+
+🔵 این روزها که بحث تحریم صرافی‌ها و محدودیت دسترسی به دارایی‌های دیجیتال داغ شده، انتخاب محل مناسب برای تبدیل ارز اهمیت بیشتری پیدا کرده.
+پیشنهاد شخصی من برای تبدیل و معامله‌ی دارایی‌های دیجیتال، صرافی تبدیل هست. البته پیشنهاد می‌کنم مثل هر پلتفرم دیگه‌ای، قبل از استفاده شرایط و ریسک‌هاش رو بررسی کنید.
+
+🔗 https://tabdeal.org/
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10887
 
@@ -314,20 +328,5 @@ G24🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10867
-
-<div align="center"><video src="files/post_10867_tasiyanc_10867.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10867_tasiyanc_10867.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این چوپان اهل خراسان شمالی یه کوزه سکه طلا پیدا کرده، تحویل داده و با افتخار هم تعریف می‌کنه!
-
-+بعضیا انقدر خنگن که اگه حماقت طلا بود، خودشون یه گنج ملی بودن!
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10697
+
+<div align="center"><video src="files/post_10697_tasiyanc_10697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10697_tasiyanc_10697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10696
 
@@ -309,21 +322,6 @@ https://AmitisBet.com/
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨شرکت کشیشیان که توی عرصه تولید گوشت داره فعالیت میکنه با این تبلیغش تونسته کلی ویو بگیره و فروش محصولاتش تقریبا ۳ برابر شده:
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10677
-
-<div align="center"><video src="files/post_10677_tasiyanc_10677.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10677_tasiyanc_10677.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨به ساعت صفر جنگ زمینی داریم نزدیک میشیم !!!
-
-ارتش آمریکا رسماً گفته نیروهای خنثی‌سازی هسته‌ای همراه رنجرهای هنگ 75، یه تمرین برای تصرف و پاک‌سازی یه تأسیسات هسته‌ای زیرزمینی انجام دادن؛
-
-این نیروها به‌طور مستمر برای سناریوهای عملیات ویژه، نبرد شهری، پاکسازی ساختمان‌ها و تصرف اهداف حساس آموزش می‌بینند.
 ⚡ @Tasiyanc
 </div>
 

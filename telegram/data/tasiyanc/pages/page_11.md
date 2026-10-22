@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10742
+
+<div align="center"><video src="files/post_10742_tasiyanc_10742.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10742_tasiyanc_10742.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
+💵تبدیل 2میلیون به 10میلیون
+💵 
+😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
+✅ 
+👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
+</div>
 
 ## tasiyanc — post 10741
 
@@ -277,21 +292,5 @@ https://t.me/+KpqdIyXNfcMzOWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این مار شکار کوچیک نمی‌زنه؛😨 فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵 https://t.me/+EObzAJI5HS5jOTk8 https://t.me/+EObzAJI5HS5jOTk8 💯حال کردم به همتون پول دراوردن رو یاد بدم من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
-</div>
-
-## tasiyanc — post 10721
-
-<div align="center"><img src="files/post_10721_tasiyanc_10721.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مار شکار کوچیک نمی‌زنه؛😨
-فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵
-
-
-https://t.me/+EObzAJI5HS5jOTk8
-https://t.me/+EObzAJI5HS5jOTk8
-
-💯حال کردم به همتون پول دراوردن رو یاد بدم
-من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10384
+
+<div align="center"><video src="files/post_10384_tasiyanc_10384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10384_tasiyanc_10384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده چند تا دختر توی تهران میرن کافه ، بهشون میگن اماکن گیر میده لطفاً حجابتونو رعایت کنین که این صحنه رو خلق میکنن 😂:
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10383
 
@@ -275,18 +287,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 💎ادرس عضویت کانال vip:
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10362
-
-<div align="center"><video src="files/post_10362_tasiyanc_10362.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10362_tasiyanc_10362.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توی تهران طرف کارگر افغانی استخدام کرده کافش یک ماه هم حقوقشون جلو داده ،
-افغانی مست کرده و کل وسایل مغازه اش رو زده شکونده صد ها میلیون خسارت بهش زده و فرار کرده.
-
-💋 @Tasiyanc
 </div>
 

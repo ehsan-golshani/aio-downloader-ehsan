@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10721
+
+<div align="center"><img src="files/post_10721_tasiyanc_10721.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مار شکار کوچیک نمی‌زنه؛😨
+فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵
+
+
+https://t.me/+EObzAJI5HS5jOTk8
+https://t.me/+EObzAJI5HS5jOTk8
+
+💯حال کردم به همتون پول دراوردن رو یاد بدم
+من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
+</div>
 
 ## tasiyanc — post 10720
 
@@ -315,19 +331,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دیشب یه سوسک رفته بود خونه یه خانم، اونم این شکلی رفته بود بالا صندلی و به گربه‌اش التماس میکرد که سوسک رو بکشه 😅
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10697
-
-<div align="center"><video src="files/post_10697_tasiyanc_10697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10697_tasiyanc_10697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
 
 
 ⚡ @Tasiyanc

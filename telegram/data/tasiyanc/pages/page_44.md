@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 44
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 9922
+
+<div align="center"><video src="files/post_9922_tasiyanc_9922.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9922_tasiyanc_9922.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه نصیحت
+اگه تو هند زندگی میکنی و‌ قصد خودکشی داری لطفاً تا تهش برو
+چون اگه منصرف بشی پلیس میکشتت 🤣
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9921
 
@@ -234,60 +248,5 @@
 💳 آموزش شارژ با کارت بانکی
 💸آموزش شارژ با یو ووچر
 💰آموزش شارژ با ارز دیجیتال
-</div>
-
-## tasiyanc — post 9902
-
-<div align="center"><video src="files/post_9902_tasiyanc_9902.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9902_tasiyanc_9902.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 سایت جهانی WePari 
-🔥
-                       
-         
-😃
-😃
-😃
-😃
-         
-😃
-😃
-😃
-😃
-
-
-🔥 بازگشت باخت به صورت هفتگی
-
-🔥پرداخت جوایز سریع و امن
-
-🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: Wepari2
-
-👽ثبت نام کنید.   
-👇
-
-📱 نصب اپلیکیشن اندروید کلیک کنید
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
-
-
-
-🌐آدرس سایت
-👇
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-til.ac/0L4vyJf
-
-
-📲 کانال تلگرامی #وی_پاری :
-
-
-✅ @Wepari2
 </div>
 

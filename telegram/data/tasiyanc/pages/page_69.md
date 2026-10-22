@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 69
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 9284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اتمام چالش ، ریکشن هرکی بیشتر باشه برندس تا ساعت ۱۵😂❤️
+</div>
 
 ## tasiyanc — post 9283
 
@@ -69,20 +75,5 @@ Admin : @Tssub
 هر وقت از سینگلی خسته میشید یه دیت برید ، بعدش تا ۶ ماه انگیزه پیدا میکنید برا سینگلی 😞
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 9259
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-در صورت ارور چند بار بزنید
-
-✔️ T.me/Tasiyanc
 </div>
 

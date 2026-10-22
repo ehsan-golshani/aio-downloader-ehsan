@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10098
+
+<div align="center"><video src="files/post_10098_tasiyanc_10098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10098_tasiyanc_10098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پارت جدید؛ برنامه عشق ابدی آمریکاییا چخبره 😐😐
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10097
 
@@ -271,21 +285,5 @@ Tasiyan | تاسیان pinned a photo
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10078
-
-<div align="center"><img src="files/post_10078_tasiyanc_10078.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده این روزا در اینستاگرام 🤖🤖
-
-💜 Name 1980
-Prompt
-What would i have looked like in the 80’s
-
-آموزش استفاده ➡️
-
-⚡ @Tasiyanc
 </div>
 

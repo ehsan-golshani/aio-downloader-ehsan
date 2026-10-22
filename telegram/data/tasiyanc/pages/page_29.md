@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10339
+
+<div align="center"><img src="files/post_10339_tasiyanc_10339.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 زیبایی حیرت‌انگیز بانو آنا آرماس در مراسم اکران جهانی فیلم (No Time To Die)
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10338
 
@@ -266,18 +276,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
 
 سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10316
-
-<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
-
-که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
 
 💋 @Tasiyanc
 </div>

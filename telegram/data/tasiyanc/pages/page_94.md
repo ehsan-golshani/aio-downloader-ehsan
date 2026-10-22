@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 94
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 8622
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 ترامپ درباره جنگ ایران:
+
+ما می‌خواهیم به این جنگ پایان دهیم، اما می‌خواهیم به شیوه درست آن را تمام کنیم
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 8621
 
@@ -241,17 +250,5 @@ Fact @TASIYANC ✅
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبلیغات و همکاری با مجموعه ما
 👉 Admin @TsSub
-</div>
-
-## tasiyanc — post 8600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸 ترامپ :
-
-بیش از 52 هزار معترض در ایران در دو ماه گذشته توسط جمهوری اسلامی کشته شدند؛
-
-اما نمیدونم چرا هیچکس راجب این موضوع صحبت نمی‌کنه، هیچ رسانه ای ازش نمیگه!
-
-@Tasiyanc ⭐️
 </div>
 

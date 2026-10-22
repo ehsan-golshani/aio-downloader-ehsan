@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10847
+
+<div align="center"><img src="files/post_10847_tasiyanc_10847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فوری، خبرگزاری جماران:
+
+احتمالا از ساعت ۱۲ امشب، قیمت اینترنت ۴۰ درصد افزایش خواهد یافت!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10846
 
@@ -259,18 +271,5 @@ https://t.me/+zhWRXOtmyEE5ZjVk
 اگر اینا زندگی میکنن قطعا زندگی مارو می‌کنه .
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

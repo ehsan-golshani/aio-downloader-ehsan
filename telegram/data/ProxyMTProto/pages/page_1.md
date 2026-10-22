@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/07/30 21:14
+📅 آخرین بروزرسانی: 1405/08/01 00:29
 
 ---
+
+## ProxyMTProto — post 52389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ultra.mishutkin.click
+Port: 443
+Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 178.105.6.160
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52385
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tg.getsurfvpn.com
+Port: 443
+Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: delvari.ir.aysghfkzcxg.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52383
 
@@ -127,60 +181,6 @@ Secret: dded74276eabb934874721ad7a5c9e7c94
 Server: darya.saheledarya.co.uk.
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnswell.com
-Port: 443
-Secret: dd203c1c0173ed19b5bf9f28f81777eaec
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnwave.org
-Port: 443
-Secret: dd65373b054948c84eb4a74630d4a79b22
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52365
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fast.mishutkin.click
-Port: 443
-Secret: eef767ebee5708dadc985d58ad6e04560664726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kabab.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

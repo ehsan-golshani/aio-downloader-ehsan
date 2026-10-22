@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 6728
+
+<div align="center"><img src="files/post_6728_tasiyanc_6728.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیچی سلامتی هنوز آتش بسه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6727
 
@@ -180,19 +189,5 @@ INFERNO ⚡ vip.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @Tasiyanc Configs⚡🚀.txt
-</div>
-
-## tasiyanc — post 6707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی تاسیان 🆕
-
-✅50 کانفیگ تست شده سرعتی
-
-مناسب وب‌گردی ، استریم ، اینستاگرام 🦦
-
-فایل Txt رو باز کنین کانفیگ رو تو آپ 🔐 & 🔐 & 🔐 بزنید پینگ بگیرید وصل شید  🚀
-
-@Tasiyanc ✅
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 7863
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏺آمریکا اعلام کرد همچنان به تفاهم‌نامه با ایران متعهد است و به دنبال مسیر دیپلماتیک است
+</div>
 
 ## tasiyanc — post 7861
 
@@ -251,11 +257,5 @@ https://t.me/+v0wRP5SGNrg5MThk ⭐️
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هیچ اختلالی تو دیتا سنترا نداریم به کسشرات چنلای کانفیگ گوش ندید ، چیزی باشه خودم اطلاع رسانی میکنم
 همش برا جذب ممبره
-</div>
-
-## tasiyanc — post 7806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترامپ : ممکنه دوباره جنگ با ایران پر قدرت شروع بشه.
 </div>
 

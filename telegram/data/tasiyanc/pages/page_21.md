@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10525
+
+<div align="center"><video src="files/post_10525_tasiyanc_10525.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10525_tasiyanc_10525.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
+
+#N @Tasiyanc
+</div>
 
 ## tasiyanc — post 10524
 
@@ -286,21 +298,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 25. مکزیک
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10500
-
-<div align="center"><video src="files/post_10500_tasiyanc_10500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10500_tasiyanc_10500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 لمس کون دوس دخترتون میتونه باعث افزایش سلامت و طول عمر و شادی شما و طرف مقابل بشه!
-
-به صورت علمی ثابت شده که لمس دوس دختر به طور کلی عمر رو طولانی نمی کنه، اما اگه باسنش رو لمس کنین، کمک بزرگی به افزایش عمر و سلامتی و شادی شما و دختره می‌کنه!
-
-
-
-⚡ @Tasiyanc
 </div>
 

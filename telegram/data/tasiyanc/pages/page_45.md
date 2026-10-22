@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 9902
+
+<div align="center"><video src="files/post_9902_tasiyanc_9902.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9902_tasiyanc_9902.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
 
 ## tasiyanc — post 9901
 
@@ -261,18 +316,6 @@ sg12
 به اعضای فرقه نوشیدنی انگور حاوی سیانور داده شد. یه عده خودشون نوشیدن و یه عده هم که مقاومت کردن با زور و اجبار مجبور به نوشیدن شدن. تعدادی هم که خواستن فرار کنن، با شلیک نیروهای امنیتی وابسته به جونز کشته شدن.
 
 اون روز مجموعا ۹۱۸ نفر تو جونزتاون کشته شدن که ۲۷۰ نفرشون بچه بودن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9877
-
-<div align="center"><video src="files/post_9877_tasiyanc_9877.dat" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9877_tasiyanc_9877.dat" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠تریلر جدید فصل اول سریال هری پاتر با نام هری پاتر و سنگ جادو منتشر شد
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 9801
+
+<div align="center"><video src="files/post_9801_tasiyanc_9801.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9801_tasiyanc_9801.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪آپ اندروید سایت جهانی Melbet
+💥
+
+
+🎁بونوس ورزشی هر چهارشنبه
+🔥
+
+💸واریز و برداشت متنوع
+💵
+
+⭕️بدون نیاز به فیلتر شکن
+⭕️
+
+
+🎁کد هدیه ثبت نام Melbet90 
+✌️
+
+✔https://t.me/+x60dZGAgXTUxM2U0
+</div>
 
 ## tasiyanc — post 9800
 
@@ -323,16 +350,6 @@ til.ac/0L4vyJf
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 پایان اسطوره فوتبال لیونل مسی
 مسی از تیم ملی آرژانین برای همیشه خداحافطی کرد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9771
-
-<div align="center"><img src="files/post_9771_tasiyanc_9771.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نوید محمد زاده از اجرای نمایش آرش بخاطر حواشی اخراج شد 😂
 
 🩸 @Tasiyanc
 </div>

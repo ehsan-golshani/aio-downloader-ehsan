@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 122
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 7653
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فستیوال این مادرقهبه ها تموم نشد؟
+</div>
 
 ## tasiyanc — post 7652
 
@@ -152,11 +158,5 @@ https://t.me/FreeConfigTsBot?start=facac4538f0c
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تیم انور سادات بزرگ شاهنشاه فقید مصر و استرالیا رفت پنالتی
-</div>
-
-## tasiyanc — post 7620
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ربات دانلودر اختصاصی تاسیان آپدیت شد ، پست ها و ریلز های اینستاگرام و بقیه شبکه های اجتماعی بفرستید مشخصات فیلم یا سریال و ... هم براتون نشون داده خواهد شد @TasiyanAploadBot
 </div>
 

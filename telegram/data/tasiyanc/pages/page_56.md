@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 9608
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+
+مناسب تمام اوپراتور ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ، وبگردی ، Ai ، گیم
+
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9607
 
@@ -297,18 +318,5 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نرخ هر دلار کف طهران 205000
-</div>
-
-## tasiyanc — post 9579
-
-<div align="center"><video src="files/post_9579_tasiyanc_9579.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9579_tasiyanc_9579.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 توی برنامه زیگیل ابدی آمریکا یک شرکت کننده ایرانی به نام پارمیدا حضور داشت یه دور بغل همه مردا رفت بقیشو خودتون ببینید .
-
-
-🩸 @Tasiyanc
 </div>
 

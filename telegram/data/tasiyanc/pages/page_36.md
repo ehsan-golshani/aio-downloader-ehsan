@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 10128
+
+<div align="center"><video src="files/post_10128_tasiyanc_10128.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10128_tasiyanc_10128.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔔 اپلیشیکن بدون فیلتر1xbet 
+3️⃣
+2️⃣
+1️⃣
+
+🤝 اسپانسر لالیگا🇪🇸
+
+🤝 اسپانسر سری آ
+🇮🇹
+
+🤝اسپانسر باشگاه یوونتوس🇮🇹
+🤩 آموزش ثبت نام در 1 دقیقه
+
+💀 https://t.me/+mneyQS4mfqNjNjBk
+</div>
 
 ## tasiyanc — post 10127
 
@@ -323,20 +346,6 @@ sa18
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺ترامپ: ایرانی‌ها تمام تلاششان را می‌کنند تا روی نتیجه انتخابات ما اثر بگذارند، به این امید که یک گروه ضعیف روی کار بیاید تا کاری به کار آن‌ها نداشته باشد و بگذارد به سلاح هسته‌ای برسند
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10098
-
-<div align="center"><video src="files/post_10098_tasiyanc_10098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10098_tasiyanc_10098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پارت جدید؛ برنامه عشق ابدی آمریکاییا چخبره 😐😐
-
-
 
 💋 @Tasiyanc
 </div>

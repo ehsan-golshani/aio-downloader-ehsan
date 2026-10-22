@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/07/30 21:16
+📅 آخرین بروزرسانی: 1405/08/01 00:31
 
 ---
+
+## tasiyanc — post 7691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کارلو آنجلوتی رید برزیل و حذف کرد
+</div>
 
 ## tasiyanc — post 7689
 
@@ -179,11 +185,5 @@ Fast ⚡ Unlimited.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 زجه بزن عرزشی ، زجه زدنای شما منو ارضا میکنه
-</div>
-
-## tasiyanc — post 7653
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فستیوال این مادرقهبه ها تموم نشد؟
 </div>
 
