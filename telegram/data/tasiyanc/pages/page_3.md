@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/07/30 10:12
+📅 آخرین بروزرسانی: 1405/07/30 16:17
 
 ---
+
+## tasiyanc — post 10904
+
+<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ مس شهر بابک - پرسپولیس 🌎 ساعت ۱۶:۴۵ ⚽️ پیکان - فجر سپاسی 🌎 ساعت ۱۶:۴۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!…
+</div>
+
+## tasiyanc — post 10902
+
+<div align="center"><img src="files/post_10902_tasiyanc_10902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ مس شهر بابک - پرسپولیس
+🌎 ساعت ۱۶:۴۵
+⚽️ پیکان - فجر سپاسی
+🌎 ساعت ۱۶:۴۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r27
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10901
 
@@ -246,50 +292,5 @@
 •علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10883
-
-<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
-
-داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
-کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G25🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10881
-
-<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G25🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

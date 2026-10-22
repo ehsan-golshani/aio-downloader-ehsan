@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/07/30 10:12
+📅 آخرین بروزرسانی: 1405/07/30 16:17
 
 ---
+
+## tasiyanc — post 10672
+
+<div align="center"><video src="files/post_10672_tasiyanc_10672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10672_tasiyanc_10672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨یادی کنیم از ویدیو وایرال شده کنسرت بانو سابرینا کارپنتر که وسطای اجرا چشمش به یه ایرانی میخوره و دیالوگ جالبی بینشون شکل میگیره 😂
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10671
+
+<div align="center"><video src="files/post_10671_tasiyanc_10671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10671_tasiyanc_10671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه اینجا مدرسه اس , پس جایی که ما درس خوندیم چیه ؟
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10670
+
+<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 3 October روز جهانی دوست پسره
+
+بفرست واسش 🌹
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10669
 
@@ -243,44 +281,5 @@ https://t.me/+VGH5xHispzJlMjM8
 💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
 
 🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10650
-
-<div align="center"><img src="files/post_10650_tasiyanc_10650.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r10
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10649
-
-<div align="center"><img src="files/post_10649_tasiyanc_10649.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر ریال ایران حدود 0.00000039 دلار ارزش داره، در حالی که قیمت هر واحد همستر کامبت حدود 0.0001729 دلاره
-یعنی ارزش یک واحد همستر آشغال تقریباً ۴۴۰ برابر یک ریاله !
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
 </div>
 
