@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/01 18:17
+📅 آخرین بروزرسانی: 1405/08/01 22:32
 
 ---
+
+## tasiyanc — post 10882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G25🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
+
+## tasiyanc — post 10881
+
+<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G25🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10880
+
+<div align="center"><img src="files/post_10880_tasiyanc_10880.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرکت پشم افکن دیگر از آموزش‌پرورش
+
+🔵ظاهراً «آخوندک» هم زیادی حساسیت‌برانگیز بوده، تغییرش دادن به «راهِبَک»!
+وقتی به‌جای حل مشکلات کشور، دغدغه اینه که مبادا اسم یه حشره به کسی بربخوره!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10879
 
@@ -314,51 +357,5 @@ G24🅰
 توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10861
-
-<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
-
-مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
-</div>
-
-## tasiyanc — post 10859
-
-<div align="center"><img src="files/post_10859_tasiyanc_10859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
-
-🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
-
-🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
-
-🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
-⏰ ۱ تا ۱۵ اکتبر
-🏆 جایزه برای 0️⃣5️⃣ نفر برتر
-👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
-
-🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
-
-🏢 ورود به سایت 👇
-⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-✈️ کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
 </div>
 

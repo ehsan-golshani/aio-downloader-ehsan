@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/01 18:17
+📅 آخرین بروزرسانی: 1405/08/01 22:32
 
 ---
+
+## tasiyanc — post 10821
+
+<div align="center"><img src="files/post_10821_tasiyanc_10821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵قتل ناموسی این‌بار در قشم
+
+یه دختر ۲۸ ساله به اسم مریم یارمحمدی توی قشم زندگی می‌کرده که!!!
+شوهر چند مدتی بود بهش مشکوک میشه و به برادر زنش ماجرارو میگه که ، برادر زن میگه نه همچین چیزی ممکن نیست ، بعد مدتی به طرف ثابت میشه
+بعد اینکه مطمئن شدن باهم همدست میشن سینه ها و واژن زن رو تیکه تیکه میکنن با چاقو و میزارن تا بمیره
+هردو متهم دستگیر شدن ولی طبق گزارشات برادر مقتول تو کمتر از ۶ ساعت آزاد شده !!!!
+جسد بی‌جان مریم روز پنج‌شنبه هفته پیش به خاک سپرده شد
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10820
+
+<div align="center"><img src="files/post_10820_tasiyanc_10820.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 برداشت ریالی از صرافی های (نوبیتکس، بیت‌پین، ارزاینجا، تترلند و رمزینکس ) متوقف شده؛
+
+خبرگزاری فارس اعلام کرد از ساعت ۱۶ امروز، خدمات بانکی و واریز و برداشت وجه برای ۵ پلتفرم رمزارزی محدود شده است.
+نوبیتکس اعلام کرده این تصمیم به خاطر خودداری صرافی‌ها از ارائه اطلاعات کاربران و دفاع از حریم خصوصی آن‌ها اتخاذ شده است.
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10819
+
+<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
+
+از اخر اول شدیم 🗿
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10818
 
@@ -227,51 +267,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g19 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10799
-
-<div align="center"><video src="files/post_10799_tasiyanc_10799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10799_tasiyanc_10799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-🅰g19
-https://t.me/+A6R70wBCKApkYTRk
-https://t.me/+A6R70wBCKApkYTRk
-
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10798
-
-<div align="center"><img src="files/post_10798_tasiyanc_10798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مثل اینکه بانو جنیفر لوپز، ۵۷ ساله، تو ازدواجش با بن افلک یه بند تو قرار داد ازدواجش داشته اونم این بوده که «حداقل ۴ روز در هفته رابطه جنسی داشته باشن»
-
-بن افلک هم بعد اینکه دید داره کمر نابود میشه فرار رو بر قرار ترجیح داد....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10797
-
-<div align="center"><video src="files/post_10797_tasiyanc_10797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10797_tasiyanc_10797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال شده از یک مدرسه پسرونه که معلم داره درس میده و دانش آموزان دور هم جمع شدن کله‌پاچه میزنن :
-
-
-💋 @Tasiyanc
 </div>
 

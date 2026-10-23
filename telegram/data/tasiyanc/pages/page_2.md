@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/01 18:17
+📅 آخرین بروزرسانی: 1405/08/01 22:32
 
 ---
+
+## tasiyanc — post 10945
+
+<div align="center"><img src="files/post_10945_tasiyanc_10945.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مهدی خراتیان کارشناس صداوسیما:
+
+«سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
+
+یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پرزیدنت دونالد ترامپ:
+
+مذاکره با ایران تقریبا برام تموم شدست. به زودی اتفاقی در ایران رقم میزنیم. خیلیا فکر میکنن این اتفاق بعد از انتخابات میفته ولی خواهیم دید چه خواهد شد.
+
+قطعی اینترنت از رگ گردن نزدیک‌تره!!!!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10942
+
+<div align="center"><video src="files/post_10942_tasiyanc_10942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10942_tasiyanc_10942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امـروز ۳۰ مهر، روز پـسـره‍
+
+شما ثابت کردید که مردانگی به سن‌ُ سال نیست روزتون مبارک پسرای خوش‌قلب ایران‌زمین ...
+
+بفرست واسه پسر خوشگلت 🩵
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10941
 
@@ -254,49 +296,5 @@ G29🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10923
-
-<div align="center"><video src="files/post_10923_tasiyanc_10923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10923_tasiyanc_10923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این یارو دیگه چه حرومزاده‌ایه؟!
-
-همکلاسی دبستانی دخترش می‌اومده خونه‌شون درس بخونه و بازی کنه، اینم بهش علاقه‌مند می‌شه؛ سال‌ها بعد زنشو طلاق می‌ده و با همون دختر ازدواج می‌کنه!
-
-خب کسکش مگه قحطی آدم اومده بود؟! 🤦🏻‍♂️ هم‌سن‌وسال خودت کم بود، رسیدی به همکلاسی بچه‌ت؟! این حجم از بی‌شرمی و عادی سازی اینجور کثافت کاریا دیگه واقن پشم ریزونه
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان ✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10921
-
-<div align="center"><img src="files/post_10921_tasiyanc_10921.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-🛒 ورود به سایت 👇🅰g28
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🌐 کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
 </div>
 

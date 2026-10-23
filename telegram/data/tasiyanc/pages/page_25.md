@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/08/01 18:17
+📅 آخرین بروزرسانی: 1405/08/01 22:32
 
 ---
+
+## tasiyanc — post 10448
+
+<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
+این کشور اولین کشور درجهانه که اینکارو میکنه.
+یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10447
+
+<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10446
+
+<div align="center"><video src="files/post_10446_tasiyanc_10446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10446_tasiyanc_10446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨خبرنگار حوادث:
+
+آتنا قاسمی ؛ دختر ۱۴ ساله کرجی که ۲۵ مردادماه به بهونه تولد یه پسر که رفیقش بوده از خونه خارج شد و دیگه برنگشت؛ بعد از یک ماه جسـدش در پزشکی قانونی پیدا شد که موهاشو کوتاه کرده بودن و انگار از طبقه پنجم سقوط کرده.
+این دختر ۲۵ مردادماه میگه میرم تولد یکی از دوستای اجتماعی پسرم. که یهو ساعت ۹ شب گوشیش خاموش میشه و دیگه خبری ازش نمیشه. اون پسره رو بازدداشت کردن و مشخص میشه اصلا تولدی درکار نبوده؛ چون تولد پسر ۱۲ شهریور بوده. توی اعترافاتش گفته اون روز آتنا رو سوار کردم و یه ساعت‌ بعد توی همون خیابون پیادش کردم و دیگه خبری ازش نداشتم.
+خلاصه مراقب خودتون باشید و توی روابطتون دقت کنید بخصوص دختر خانومای عزیز
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10445
 
@@ -272,46 +316,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 دختره تو ماشین دوس‌پسرش نشسته داره به دوس‌پسر دومش پیام میده پسره هم هار هار مثل خر می‌خنده
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10423
-
-<div align="center"><img src="files/post_10423_tasiyanc_10423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-توییت اکانت رسمی تلگرام در توییتر
-
-خطاب به ایلان ماسک نوشته ثروت واقعی به پول و... نیست به ممه های گنده‌س
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10422
-
-<div align="center"><img src="files/post_10422_tasiyanc_10422.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترفند
-
-اگه ویدیویی تو اکسپلور اینستاگرامت مدام تکرار میشه و دوستش نداری، روی سه‌نقطه یا سه‌خط پست بزن و Not interested رو انتخاب کن.
-
-این کار به الگوریتم می‌فهمونه محتوای مشابه رو کمتر بهت پیشنهاد بده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 
