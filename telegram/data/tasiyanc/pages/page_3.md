@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/01 13:18
+📅 آخرین بروزرسانی: 1405/08/01 18:17
 
 ---
+
+## tasiyanc — post 10920
+
+<div align="center"><video src="files/post_10920_tasiyanc_10920.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10920_tasiyanc_10920.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو که طرف داره کمر یه دختر رو تتو می‌زنه، چند میلیون بازدید خورده!
+
+حالا اینکه دقیقاً چه گهی تو این ویدیو هست که ملت این‌جوری ریختن سرش، خودش جای بحث داره!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10919
+
+<div align="center"><video src="files/post_10919_tasiyanc_10919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10919_tasiyanc_10919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فوری | کارشناس صداوسیما با یک نظریه تاریخی، علم نظامی جهان رو وارد عصر جدیدی کرد!
+
+استاد خوش‌چشم می‌فرمایند: «می‌تونیم مادر بمب‌ها رو با دوش پرتاب بزنیم!»
+
+کسکش، تو خودت می‌فهمی چه گهی داری می‌خوری یا فکر کردی ملت یه مشت احمقن که هر چرت‌وپرتی بلغور کنی باور کنن؟!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10918
+
+<div align="center"><video src="files/post_10918_tasiyanc_10918.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10918_tasiyanc_10918.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از کالاف وارفر4
+
+قسمت‌هایی از نسخه جدید مدرن وارفر ۴، شما در نقش سرباز کره شمالی🇰🇵 بازی می‌کنید؛ جایی که اگه اشتباهی به عکس کیم جونگ اون شلیک کنید، هم‌تیمی‌هاتون خودشون دخلتون رو میارن!
+
+بنظرم نکته جالبیه و دیکتاتوریه کیم رو به زیبایی به رخ جهان کشیده
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ پاری سن ژرمن - بارسلونا 🌎 ساعت ۲۲:۳۰ ⚽️ لیورپول - ویارئال 🌎 ساعت ۲۲:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
+</div>
 
 ## tasiyanc — post 10916
 
@@ -281,65 +332,6 @@ https://t.me/+HsrP_lU8O081ZWFk
 
 از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10900
-
-<div align="center"><video src="files/post_10900_tasiyanc_10900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10900_tasiyanc_10900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!
-
-از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10899
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 26🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10898
-
-<div align="center"><img src="files/post_10898_tasiyanc_10898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-26🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10896
-
-<div align="center"><video src="files/post_10896_tasiyanc_10896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10896_tasiyanc_10896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵حکومت فغانسه و مکرون 🇫🇷 در آستانه سقوط !
-
-خیابون‌ها ملتهب، درگیری‌ها گسترده و اوضاع حسابی به‌هم‌ریخته ، معترضا ریختن تو کلی فروشگاه های معتبر مثل لویی‌ویتون - آدیداس - نایک هرچی بود شکوندن غارت کردن
-
-آماری که تاامروز منتشرشده؛ تا الان فقط یک نفر جونش رو از دست داده؛ اونم نه بر اثر شلیک مستقیم نیروهای امنیتی، بلکه به گفته پلیس فرانسه، طرف وسط اعتراضات دچار ایست قلبی‌تنفسی شده و فوت کرده!
 💋 @Tasiyanc
 </div>
 
