@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 52150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52149
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: toka69.velvetoak.work
 Port: 443
 Secret: ee1fb23d3871d7fb9570f26aee4fc6456b6c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nfc.neo-duo.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

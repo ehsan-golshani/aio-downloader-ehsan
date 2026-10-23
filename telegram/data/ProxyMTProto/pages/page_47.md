@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 51469
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51468
 
@@ -172,15 +181,6 @@ Secret: 865d8256f6769081944d727dc7954720
 Server: for.download.ir.zigoraaat.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e696d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51449
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnpulse.org
-Port: 443
-Secret: dd93ca4f625e3fe727f9f3b42abef3fcf6
 @ProxyMTProto
 </div>
 

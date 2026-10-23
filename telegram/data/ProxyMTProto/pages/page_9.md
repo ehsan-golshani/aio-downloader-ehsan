@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 52230
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd8960b9810070b6dea7e1f7e2f564b461
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52229
 
@@ -172,15 +181,6 @@ Secret: ee942d2deee4d90bc892c74fd132b34d116d61782e7275
 Server: ving.mozitop.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52210
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mimizo19.tidelark.cc
-Port: 443
-Secret: ee6ce7aa9636179a5f67366aaab4702a266d696d697a6f31392e746964656c61726b2e6363
 @ProxyMTProto
 </div>
 

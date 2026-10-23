@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 73
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 50948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gc.mtproto.baby
+Port: 443
+Secret: dd55bd33705487f11397a1a45d8dacdfc6
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50947
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: mtp1.hlebushek.com
 Port: 443
 Secret: eea61deab187a415531ac418cd29ae58ee706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50928
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add617669746f2e7275
 @ProxyMTProto
 </div>
 

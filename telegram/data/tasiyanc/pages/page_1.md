@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/01 00:31
+📅 آخرین بروزرسانی: 1405/08/01 08:13
 
 ---
+
+## tasiyanc — post 10954
+
+<div align="center"><video src="files/post_10954_tasiyanc_10954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10954_tasiyanc_10954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁 0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی 💰 کش بک روزانه و هفتگی 🌛 چرخ و فلک ویژه جام جهانی 💣 بالاترین ضرایب پیش بینی 📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱 🕸ورود به سایت: 👇 🪩 https:/…
+</div>
+
+## tasiyanc — post 10952
+
+<div align="center"><video src="files/post_10952_tasiyanc_10952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10952_tasiyanc_10952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁
+
+
+0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی
+
+💰 کش بک روزانه و هفتگی
+
+🌛 چرخ و فلک ویژه جام جهانی
+
+💣 بالاترین ضرایب پیش بینی
+
+
+📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱
+
+🕸ورود به سایت: 👇
+🪩 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+🛫 کانال رسمی ما: 👇🅰30
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10951
 
@@ -245,52 +291,5 @@ G30🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G29🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10932
-
-<div align="center"><video src="files/post_10932_tasiyanc_10932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10932_tasiyanc_10932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 دختری که با هدف سرگرمی و کسب درآمد با مردهای مختلف از طریق برخی کانال های صیغه‌یابی اشنا میشد می‌رفت باهاشون سکس میکرد، پس از اطلاع از ابتلا به بیماری ایـــــدز ( HIV ) دچار مشکلات روانی شده و تو آسایشگاه روانی بستریه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10931
-
-<div align="center"><img src="files/post_10931_tasiyanc_10931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ایلان ماسک با این ادعای پشم‌ریزون دنیا رو تکون داد ❗️
-
-می‌گه تا ۶ الی ۱۲ ماه دیگه، قراره اولین ایمپلنت‌های بینایی نورالینک کاشته بشن؛ فناوری‌ای که شاید حتی به نابیناهای مادرزاد هم کمک کنه برای اولین بار دنیا رو ببینن!
-
-
-💋 @Tasiyanc
 </div>
 

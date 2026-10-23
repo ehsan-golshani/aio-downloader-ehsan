@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 52330
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ponyny28.tidelark.cc
+Port: 443
+Secret: eea02849a55daccdc7f7a05691b7ef7cd1706f6e796e7932382e746964656c61726b2e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52329
 
@@ -172,15 +181,6 @@ Secret: dd27e57f496bbf279605f0198ea6d26067
 Server: 194.120.230.120
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52310
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mt.wexproxy.com
-Port: 8443
-Secret: 7kJv1rlqqtc0CbrNK0ZTvkdjbG91ZGZsYXJlLmNvbQ
 @ProxyMTProto
 </div>
 

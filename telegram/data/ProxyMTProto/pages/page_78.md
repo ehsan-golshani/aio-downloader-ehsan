@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 50848
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: os.vechnostnet.study
+Port: 443
+Secret: ee5cfacb7941f6260de34393a10d2b1d7d7374726d2e79616e6465782e6e6574
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50847
 
@@ -172,15 +181,6 @@ Secret: ee1603010200010001fc030386e24c3add617669746f2e7275
 Server: x.shmelproxy.top
 Port: 443
 Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50828
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.140.144
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

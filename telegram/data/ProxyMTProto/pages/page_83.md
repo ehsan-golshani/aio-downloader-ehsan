@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 83
 
-📅 آخرین بروزرسانی: 1405/08/01 00:29
+📅 آخرین بروزرسانی: 1405/08/01 08:11
 
 ---
+
+## ProxyMTProto — post 50748
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50747
 
@@ -172,15 +181,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ultr.helloworld.surf
-Port: 443
-Secret: eea1ca1aacbe1ecd3dbf1539d4c372e89f7374726d2e79616e6465782e6e6574
 @ProxyMTProto
 </div>
 
