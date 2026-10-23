@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 192
 
-📅 آخرین بروزرسانی: 1405/08/01 08:13
+📅 آخرین بروزرسانی: 1405/08/01 13:18
 
 ---
+
+## tasiyanc — post 5516
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TASIYAN INFO ✅
+t.me/TasiyanOwner
+</div>
+
+## tasiyanc — post 5514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
+
+برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5511
 
@@ -144,11 +181,5 @@ Password @Tasiyanc
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Wifi 🚀.npvt
-</div>
-
-## tasiyanc — post 5491
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ری اکشن نمیزنید؟
 </div>
 

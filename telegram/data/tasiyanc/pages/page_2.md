@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/01 08:13
+📅 آخرین بروزرسانی: 1405/08/01 13:18
 
 ---
+
+## tasiyanc — post 10937
+
+<div align="center"><img src="files/post_10937_tasiyanc_10937.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
+
+🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
+
+💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
+✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
+🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
+📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
+
+💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
+
+🛒 ورود به سایت 👇🅰29
+⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+🌐 کانال رسمی ما در تلگرام 👇
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10936
+
+<div align="center"><video src="files/post_10936_tasiyanc_10936.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10936_tasiyanc_10936.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو از پاستیل خوردن نهال خانم خوشگل وایرال شده :
+
+این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10935
+
+<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
+
+دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
 
 ## tasiyanc — post 10933
 
@@ -238,76 +295,5 @@ G29🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ پاری سن ژرمن - بارسلونا 🌎 ساعت ۲۲:۳۰ ⚽️ لیورپول - ویارئال 🌎 ساعت ۲۲:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
-</div>
-
-## tasiyanc — post 10916
-
-<div align="center"><img src="files/post_10916_tasiyanc_10916.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ پاری سن ژرمن - بارسلونا
-🌎 ساعت ۲۲:۳۰
-⚽️ لیورپول - ویارئال
-🌎 ساعت ۲۲:۳۰
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r28
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10915
-
-<div align="center"><img src="files/post_10915_tasiyanc_10915.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مارتینز ۴۹ ساله کل زندگیشو فروخت، ۲ هزار کیلومتر با اتوبوس رفت که به عشقش برسه، بعد فهمید عشقش یه مشت کد و الگوریتم بوده!
-
-روچا مارتینز ۴۹ ساله، همه اموالش رو پای به خاطر دختری به اسم جسیکا فروخت ، غافل از اینکه جسیکا اصلاً وجود خارجی نداشته و ساخته‌ی هوش مصنوعی بوده!؛ آخرشم، همون‌جا سکته کرده!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 27🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10913
-
-<div align="center"><img src="files/post_10913_tasiyanc_10913.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-27🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 
