@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 9917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9916
 
@@ -296,13 +304,5 @@ til.ac/0L4vyJf
 🔗https://www.novigrad.top
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9896
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وقتشه دلار به جیب بزنی ✅
-همین حالا وارد کانال  Evil Bet شو👇
-https://t.me/+TmGWkUYH_8c0OWZk
 </div>
 

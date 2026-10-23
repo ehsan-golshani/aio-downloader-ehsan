@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 9845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فاجعه اقتصادی هر دلار 218000 طلای ۱۸ عیار 22.500.000 سکه تمام بهار 222.600.000 🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9844
 
@@ -282,21 +288,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨 تو وکیل آباد مشهد یه ماشین به تجمعات زده ٢٠ نفر کشته و زخمی شدن
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9825
-
-<div align="center"><video src="files/post_9825_tasiyanc_9825.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9825_tasiyanc_9825.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ادعای ترامپ:
-
-حمله‌ای بزرگ در انتظار ایران است و اگر رخ دهد تنها بخشی اندکی از آن این کشور باقی خواهد ماند.
 
 
 🩸 @Tasiyanc

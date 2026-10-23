@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 103
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 8365
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+❌انفجار در بندر عباس و بیرجند
+
+@Tasiyanc✅
+</div>
 
 ## tasiyanc — post 8364
 
@@ -227,11 +235,5 @@ Multi Location ⚡ Fast.npvt
 پروکسی | پروکسی | پروکسی | پروکسی
 
 @Tasiyanc ✅ | مرجع کانفیگ
-</div>
-
-## tasiyanc — post 8323
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت همراه اول/ایرانسل تو شهر شما چطوریه؟
 </div>
 

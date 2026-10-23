@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10883
+
+<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
+
+داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
+کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10882
 
@@ -340,22 +355,5 @@ G24🅰
 آدرس سایت:🅰r24
 
 🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10862
-
-<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
-
-از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
-این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
-این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
-توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 101
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 8423
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
+</div>
 
 ## tasiyanc — post 8421
 
@@ -194,11 +200,5 @@ Ip 🇩🇪 🇩🇪
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8391
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر
 </div>
 

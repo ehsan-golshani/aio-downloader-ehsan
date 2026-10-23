@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10238
+
+<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
+
+جرمش چی بوده؟
+چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10236
 
@@ -242,15 +256,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خبرگزاری تابناک خبری منتشر کرد که "جمهوری اسلامی بخشی از اموال علی کریمی را آزاد کرد" و بعد از چند دقیقه پاکش کرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10208
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
-مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
-
 💋 @Tasiyanc
 </div>
 

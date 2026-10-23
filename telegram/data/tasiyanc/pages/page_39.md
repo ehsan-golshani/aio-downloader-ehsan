@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10055
 
@@ -270,17 +279,5 @@ sg17
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
-
-💋 @Tasiyanc
 </div>
 

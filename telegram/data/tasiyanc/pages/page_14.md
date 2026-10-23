@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10692
+
+<div align="center"><video src="files/post_10692_tasiyanc_10692.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10692_tasiyanc_10692.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بعد از آزاد شدن خرید و فروش گوشت خر و اسب و صادر شدن فتوای حلال بودن خوردنشون برخی بلاگرای حرومزاده دارن خوردن گوشت اسب و خرو تبلیغ و عادی سازی میکنن :
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10691
 
@@ -292,17 +305,5 @@ https://t.me/+ha2KmA-UHioxNDI0
 هر دلقکیو فالو کنی معروف کنی ابروت تو سطح جهانی می‌ره تسلیت به جامعه موسیقی ترکیه و عربستان
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10672
-
-<div align="center"><video src="files/post_10672_tasiyanc_10672.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10672_tasiyanc_10672.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨یادی کنیم از ویدیو وایرال شده کنسرت بانو سابرینا کارپنتر که وسطای اجرا چشمش به یه ایرانی میخوره و دیالوگ جالبی بینشون شکل میگیره 😂
-
-@Tasiyanc
 </div>
 

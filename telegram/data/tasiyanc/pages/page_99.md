@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 99
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 8466
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 گزارش اعضا : انفجار در گردنه ی بانه
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8465
 
@@ -148,11 +156,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 آرژانتین کامبک میزنه یا ن؟
-</div>
-
-## tasiyanc — post 8446
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانیااااااااااا میزنه
 </div>
 

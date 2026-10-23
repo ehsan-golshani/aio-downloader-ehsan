@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 58
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 9567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 9566
 
@@ -312,11 +335,5 @@ til.ac/0L4vyJf
 وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇳 @Tasiyanc.ovpn
 </div>
 

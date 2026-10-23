@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 9969
+
+<div align="center"><video src="files/post_9969_tasiyanc_9969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9969_tasiyanc_9969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢حملات ساعت پیش سپاه پاسداران با پهپاد به نفتکش ها و کشتی های حمل کانتینر
+
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9964
 
@@ -249,14 +264,5 @@ sg14
 5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠دلار رسید 227000
-
-عر عر بعضیا فقط واسه حجاب دختر مردمه؟
-💋 @Tasiyanc
 </div>
 

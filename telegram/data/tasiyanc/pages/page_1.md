@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨سفیر آمریکا در ترکیه احتمال حمله به ایران در شنبه یا یکشنبه رو تأیید کرد!
+
+تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10965
 
@@ -269,20 +279,5 @@ G30🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10946
-
-<div align="center"><video src="files/post_10946_tasiyanc_10946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10946_tasiyanc_10946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 شرکت چینی Unitree از ربات بادیگارد خود با قابلیت اجرای حرکات رزمی و قدرت ضربات بالا رونمایی کرد.
-
-طبق ویدئوی منتشرشده، این ربات قادر است ضربات قدرتمندی وارد کند که به بدنه خودرو آسیب می‌زند.
-
-نکته قابل‌توجه، تأکید شرکت سازنده بر استفاده «دوستانه و ایمن» از این ربات است؛ هشداری که با توجه به توانایی‌های فیزیکی آن، اهمیت ویژه‌ای دارد
-⚡ @Tasiyanc
 </div>
 

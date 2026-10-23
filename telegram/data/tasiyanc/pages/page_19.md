@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+kt_bsasgniphZmZk https://t.me/+kt_bsasgniphZmZk 🅰g5 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
+</div>
 
 ## tasiyanc — post 10583
 
@@ -255,18 +261,6 @@ https://AmitisBet.com/
 دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
 
 + دوست پسرش همون موقع :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10562
-
-<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این بانو قهرمان میس المپیا 2026 شد
-
-
 
 @Tasiyanc
 </div>

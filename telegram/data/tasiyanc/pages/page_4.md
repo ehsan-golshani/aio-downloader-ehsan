@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10904
+
+<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10903
 
@@ -280,20 +292,5 @@
 •علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10883
-
-<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
-
-داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
-کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
-
-⚡ @Tasiyanc
 </div>
 

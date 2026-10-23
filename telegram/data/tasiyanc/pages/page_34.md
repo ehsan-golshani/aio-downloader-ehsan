@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨شرکت آنتروپیک اعلام کرده که جمهوری اسلامی داره با استفاده از هوش مصنوعی «کلود» فضای مجازی رو رصد میکنه و مخالفینش رو شناسایی میکنه.
+مثلا شما پست در فضای مجازی علیهشون منتشر کنی که شامل یکسری تگ واژه ها هست که با کمک هوش مصنوعی شما رصد میشید
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10207
 
@@ -306,14 +315,6 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 
 
 آموزش استفاده از پرامپت➡️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 با اعلام رئیس سازمان سنجش نتایج اولیه کنکور تا پایان شهریور ماه یا هفته اول مهر ماه منتشر میشه.
 
 💋 @Tasiyanc
 </div>

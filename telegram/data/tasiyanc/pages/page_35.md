@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 با اعلام رئیس سازمان سنجش نتایج اولیه کنکور تا پایان شهریور ماه یا هفته اول مهر ماه منتشر میشه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10174
 
@@ -303,17 +311,4 @@ Final result: A believable rediscovered real color photograph from Tehran around
 </div>
 
 ## tasiyanc — post 10153
-
-## tasiyanc — post 10150
-
-<div align="center"><img src="files/post_10150_tasiyanc_10150.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توییت نتانیاهو:
-امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
-
-ماموریت را به پایان رساندیم. سال نو مبارک!
-
-💋 @Tasiyanc
-</div>
 

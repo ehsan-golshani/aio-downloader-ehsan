@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 29
 
-📅 آخرین بروزرسانی: 1405/08/01 22:32
+📅 آخرین بروزرسانی: 1405/08/02 01:25
 
 ---
+
+## tasiyanc — post 10355
+
+<div align="center"><video src="files/post_10355_tasiyanc_10355.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10355_tasiyanc_10355.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 وزیر نیرو:
+مردم عزیز مفتخرم اعلام کنم قطعی برق تمام شد!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10354
 
@@ -368,23 +382,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
 https://t.me/+ArmBt6ZWMF84ZDlk
-</div>
-
-## tasiyanc — post 10334
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐 کانفیگ حجم نامحدود نپسترنت مولتی لوک
-
-آموزش اتصال ⛓
-
-دانلود اندروید نسخه جدید 
-حتما دانلود کنید نسخه جدید - قبلش نسخه قدیمی پاک کنید ممکنه ارور بده⭕️
-
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-
-💋 @TASIYANC
 </div>
 
