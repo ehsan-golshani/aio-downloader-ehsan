@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 84
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 8930
+
+## tasiyanc — post 8929
+
+<div align="center"><img src="files/post_8929_tasiyanc_8929.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#کاربردی 🆕
+
+🔎 اگه همیشه استرس اینو داشتید که یه سایت کلاهبرداریه یا نه، این ابزار آنلاین کمکتون می‌کنه هر سایتی رو زیر و رو کنید، درصد احتمال کلاهبردار بودنشو ببینید و دلیلشم بفهمید.
+
+
+• سایت‌ها رو کامل بررسی می‌کنه و نمره اعتماد میده
+• درصد احتمال اسکم بودن رو نشون میده
+• دلیل این تحلیل‌ها رو واضح و راحت توضیح میده
+👉 https://scamminder.com/
+
+👹 @TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8928
 
@@ -259,35 +279,5 @@ IPv6
 New Wallpapers ✨ HD
 
 🔱 @Tasiyanc
-</div>
-
-## tasiyanc — post 8904
-
-<div align="center"><img src="files/post_8904_tasiyanc_8904.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#سرگرمی - #کاربردی
-
-🪐 می‌خوای منظومه شمسی رو زنده ببینی؟
-
-ناسا یک سایت فوق‌العاده ساخته که می‌تونی حرکت سیاره‌ها، فضاپیماها و مأموریت‌های فضایی رو به‌صورت سه‌بعدی و تعاملی تماشا کنی.
-
-🌐 https://eyes.nasa.gov
-
-بعد از باز کردن سایت ، رو هر کدوم از سیاره ها ، شهاب سنگ و ... بزنید با جزییات براتون میاره
-
-🔱 @TASIYANC
-</div>
-
-## tasiyanc — post 8903
-
-<div align="center"><img src="files/post_8903_tasiyanc_8903.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: پست جدید اتاق جنگ اسرائیل
-
-تیک تاک⌛ دقیقا قبل از جنگ ۴۰ روزه، همچین توییتی زده بود.
-
-🔱 @TASIYANc
 </div>
 

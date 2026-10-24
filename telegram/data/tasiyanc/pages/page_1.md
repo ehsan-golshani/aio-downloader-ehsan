@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 10968
+
+<div align="center"><a href="files/post_10968_1xbet_ir.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 1xbet_ir.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💙با نصب اپلیکیشن، بدون نیاز به فیلترشکن به تمامی قسمت‌های سایت دسترسی داشته باشید🌇
+
+▪️اموزش ثبت نام و شارژ و برداشت
+
+1️⃣2️⃣3️⃣
+8️⃣ کد هدیه بونوس 100% برای اولین واریز 💰💰💰👇
+Mn85m
+1️⃣کانال فارسی 1Xbet👇
+📱 @one_Mn85m_xbet
+</div>
+
+## tasiyanc — post 10967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😖 و باز هم در مورد هری کین
+
+⚽️ این بازیکن انگلیسی در ۱۰ بازی متوالی لیگ قهرمانان اروپا گل زده است
+
+💛 رکورد رونالدو ۱۱ بازی متوالی است
+
+📆 ۳ نوامبر بایرن مونیخ به مصاف اتلتیکو می‌رود و کین فرصت دارد تا رکورد کریستیانو را تکرار کند
+
+💬 آیا کین رکورد رونالدو را تکرار می‌کند؟
+
+کانال رسمی وانیکس
+
+لینک دانلود اپلیکیشن بدون فیلتر
+
+کد هدیه بونوس 100% : Mn85m👍
+
+LINK:1XBET.COM
+
+برای دریافت سرور های تست اسیایی  میتونید از ربات زیر : 🅰1
+سرور کشور ترکیه یا ارمنستان بگیرید👇
+VPN FREE
+</div>
 
 ## tasiyanc — post 10966
 
@@ -249,35 +291,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 شرکت کردن در این عرصه جذاب‌تر از تماشا کردن است
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G30🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10947
-
-<div align="center"><img src="files/post_10947_tasiyanc_10947.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G30🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

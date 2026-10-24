@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 9741
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9740
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9739
 
@@ -214,28 +230,5 @@ til.ac/0L4vyJf
 🟠 امروز August 30، روزِ آدمای غمگین و ناراحته.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9707
-
-<div align="center"><img src="files/post_9707_tasiyanc_9707.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این مردی که میبینید اسمش جیسون کوئیج هستش
-
-جیسون با اکانت فیک دخترای سن پایین، تو سایت های پورن مخ افراد پدوفیل رو میزد بعد اونا میکشوند به محلی که میخواست و سرشونو با تبر قطع میکرد.
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تیم ملی والیبال زنان ایران چهارم آسیا شد
-
-🏐 تیم ملی والیبال زنان ایران در دیدار رده‌بندی رقابت‌های قهرمانی آسیا ۲۰۲۶ با نتیجه ۳ بر صفر مغلوب ژاپن شد و به رتبه چهارم آسیا دست یافت
-
-+ درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
-
-💋@Tasiyanc
 </div>
 

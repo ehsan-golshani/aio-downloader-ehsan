@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 72
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 9229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
+دانلود Dark Tunnel  🕹
+
+
+آموزش اتصال به سرور دارک⚡️
+</div>
 
 ## tasiyanc — post 9224
 
@@ -191,35 +209,6 @@ https://t.me/+fxq9NcirUag3N2Zk
 </div>
 
 ## tasiyanc — post 9204
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
-
-@Tasiyanc 🔋
-</div>
-
-## tasiyanc — post 9201
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ اختصاصی پرسرعت OpenVpn 📶

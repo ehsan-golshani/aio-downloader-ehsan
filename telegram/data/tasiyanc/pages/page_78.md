@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 9078
+
+<div align="center"><img src="files/post_9078_tasiyanc_9078.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+6 شب و 6 برد پشت هم 
+✅
+
+من به پول هیچکدومتون نیاز ندارم و قرار نیست چیزی بهتون بفروشم
+
+آماری رو رقم زدم که حتی تازه وارد هم میفهمه این آمار کار هرکس نیست
+🚀
+g16
+https://t.me/+5fvta-uF4QA3ZDY0
+https://t.me/+5fvta-uF4QA3ZDY0
+</div>
+
+## tasiyanc — post 9077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت
+📱
+
+•10 سرور سرعتی تست شده تمام اپراتور ها 
+⚡️
+
+• لوکیشن 🇩🇪 - 🇦🇿 - 🇺🇸
+
+•آموزش اتصال 
+⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید
+
+•اتصال امن برای همه 
+🇮🇷
+
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9076
 
@@ -316,31 +356,5 @@ Join @TASIYANC
 🌐 betinja.bet
 کانال بونوس های رایگان g15
 @betinjabet
-</div>
-
-## tasiyanc — post 9055
-
-<div align="center"><img src="files/post_9055_tasiyanc_9055.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔱 @Tasiyanc - R²all.hc
-</div>
-
-## tasiyanc — post 9054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تقدیم به مردم سرزمینم🖤
-
-کانفیگ اختصاصی نامحدود HttpCustum 📱
-
-سرور سرعتی مناسب تمام نت‌ها ⚡️
-
-آموزش اتصال ✅
-
-دانلود  📱android🕹  iOS
-
-اتصال امن برای همه🏠
-
-💙@TASIYANC ✅
 </div>
 

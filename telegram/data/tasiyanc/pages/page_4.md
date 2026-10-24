@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 10906
+
+<div align="center"><video src="files/post_10906_tasiyanc_10906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10906_tasiyanc_10906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اتفاقی عجیب و تلخ در کلیسایی در اکوادور 
+🇪🇨
+
+یک کشیش در حال اجرای مراسم مذهبی بود که ناگهان صلیبی از دیوار جدا شد و روی سرش افتاد؛ حادثه‌ای که طبق گزارش‌ها، به مرگ او در همان لحظه منجر شد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10905
+
+<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرانسه 
+🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10904
 
@@ -254,43 +284,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
-</div>
-
-## tasiyanc — post 10885
-
-<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢
-🦁به جمع کاربران لوکس ما بپیوندید🦁
-❤️‍🔥بری‌بت❤️‍🔥
-
-😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
-🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
-💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
-🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
-
-💻 ورود به سایت 👇
-⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-🦁 کانال تلگرام: 🅰25
-⚫️https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10884
-
-<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
-
-• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
-•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
-•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
-
-💋 @Tasiyanc
 </div>
 

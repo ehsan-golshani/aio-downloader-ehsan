@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 9767
+
+<div align="center"><img src="files/post_9767_tasiyanc_9767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فواید بوسیدن یار 💋:
+
+•کاهش فشارخون و کمک به سلامت قلب
+
+•از بین بردن گرفتگی عضلات بدن محافظت دندان در برابر پوسیدگی
+
+•افزایش درخشندگی پوست و جلوگیری از شل شدگی صورت
+
+•افزایش قدرت سیستم ایمنی بدن در برابر سرما خوردگی
+
+•کاهش وسواس فکری
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وینامیت 🔥
+
+🎁 شرایط دریافت هدیه ۵۰۰ هزارتومانی
+</div>
 
 ## tasiyanc — post 9765
 
@@ -258,21 +286,5 @@ til.ac/0L4vyJf
 @HUNTTER_BET
 @HUNTTER_BET
 @HUNTTER_BET
-</div>
-
-## tasiyanc — post 9741
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 تیتر اصلی فاکس نیوز رسانه نزدیک به ترامپ: جنگ رسما اغاز شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9740
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 پایگاه نظامی «موفق السلطی» آمریکا در اردن هدف قرار گرفت
-
-🩸 @Tasiyanc
 </div>
 

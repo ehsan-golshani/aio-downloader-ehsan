@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 10154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+40میلیون جایزه برای ۱۰۰ نفر
+همین حالا عضو خانواده وی پاری شو✔️
+</div>
+
+## tasiyanc — post 10153
 
 ## tasiyanc — post 10150
 
@@ -271,45 +280,5 @@ Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Pre
 ⭕️
 
 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10118
-
-<div align="center"><video src="files/post_10118_tasiyanc_10118.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10118_tasiyanc_10118.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده دهه 50 
-👑
-
-Name: Tehran 1350
-
-Prompt 
-🤖
-🤖
-
-Create an ultra-realistic vintage portrait of the same young Iranian woman from the reference photo, preserving her exact facial identity, natural facial proportions, eyes, nose, lips, skin texture and recognizable appearance. Set the scene in Tehran, Iran during the 1350s (1970s). She is standing on a Tehran street near Azadi Square, facing the camera in a sophisticated three-quarter pose while her face remains clearly visible. She is dressed as a fashionable Iranian woman from the 1350s
-
-آموزش استفاده 
-➡️
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10117
-
-<div align="center"><video src="files/post_10117_tasiyanc_10117.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10117_tasiyanc_10117.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یکی از دختران موتورسوار حماسه جدید خلق کرد؛
-فک میکرده با کارت سوخت دیگه نیازی نیست پول بنزین بده ، هر جایگاهی می‌رفته بدون اینکه حساب کنه دنده گاز می‌گرفت می‌رفت تا یکی پیدا میشه میگه پول بنزینتو بده زن ، تازه متوجه میشه باید با کارت سوخت هم پول بنزین پرداخت کنه🗿🤣
-پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
 </div>
 

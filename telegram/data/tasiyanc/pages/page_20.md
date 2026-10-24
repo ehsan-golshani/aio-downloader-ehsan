@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 10564
+
+<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لحظه چپ کردن BMW تو جردن تهران
+
+پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10563
+
+<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
+
++ دوست پسرش همون موقع :
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10562
 
@@ -270,32 +298,6 @@ https://jhet0n.online/fa/?btag=2786270
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10544
-
-<div align="center"><video src="files/post_10544_tasiyanc_10544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10544_tasiyanc_10544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10543
-
-<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران نصب کنین عالیه
-
-🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
 
 ⚡ @Tasiyanc
 </div>

@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 9256
+
+<div align="center"><img src="files/post_9256_tasiyanc_9256.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😤میخوای مسابقات فوتبال پیش بینی کنی؟!
+
+🥇پس نیاز داری به یه سایت بین المللی و معتبر
+🥇
+
+
+⛔دربی بت همون انتخاب  100%
+
+
+💎ویژگی های سایت جهانی Derby Bet:
+
+⬅️امکان شارژ امن با کارت بانکی
+
+⬅️واریز اول دوبل شارژ می شوید(بونوس۱۰۰٪)
+
+⬅️پر اپشن ترین سایت فعال در ایران
+
+⬅️تسویه حساب کمتر از 5 دقیقه
+
+⬅️برگشت بخشی از باخت به صورت هفتگی
+
+⭐دارای لایسنس و مجوز anjuan
+
+
+🚨کد هدیه ثبت نام:GG007
+
+
+⚠️برای دانلود اپلکیشن کلیک کنید
+👉
+r23
+
+🔔کانال دربی بت :
+👇
+
+✅https://t.me/+c5jwC3lt9z45NTE0
+</div>
+
+## tasiyanc — post 9255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+زمستان تمام شد ، بهار تمام شد ، تابستان داره تموم میشه ، اما سوز آن دِی هرگز تمام شد
+</div>
 
 ## tasiyanc — post 9254
 
@@ -248,23 +296,5 @@ https://t.me/+c5jwC3lt9z45NTE0
 r22
 🔔کانال دربی بت :👇
 ✅https://t.me/+c5jwC3lt9z45NTE0
-</div>
-
-## tasiyanc — post 9229
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9225
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟کانفیگ نامحدود اختصاصی دارک تانل 🌟
-دانلود Dark Tunnel  🕹
-
-
-آموزش اتصال به سرور دارک⚡️
 </div>
 

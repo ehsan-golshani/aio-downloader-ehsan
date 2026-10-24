@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/08/02 01:25
+📅 آخرین بروزرسانی: 1405/08/02 03:50
 
 ---
+
+## tasiyanc — post 10405
+
+<div align="center"><img src="files/post_10405_tasiyanc_10405.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دستور جادویی برای پرامپت حرفه‌ای‌تر!
+
+🚨اگه می‌خوای جواب‌های دقیق‌تر و تخصصی‌تری از هوش مصنوعی بگیری، فقط کافیه پرامپت‌تو با این فرمول شروع کنی :
+
+Act as a … + تخصص
+
+مثلاً:
+Act as a senior UX designer
+Act as an expert copywriter
+Act as a motivational coach
+
+🦋 این تکنیک باعث می‌شه مدل مثل یه متخصص فکر کنه و جواب بده ، خروجی‌هاش شگفت‌انگیزن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10404
+
+<div align="center"><img src="files/post_10404_tasiyanc_10404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آنی نایت، پورن استار معروف استرالیایی اومد رکورد جهانی تعداد سکس تو ۲۴ ساعتو جابجا کنه اما بعد از شش ساعت و سکس با ۵۸۳ مرد حالش بد شد و الان بیمارستان بستریه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10403
 
@@ -217,28 +248,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 🔴خوش‌تیپ ترین رهبران جهان با حضور پزشکیان تو رتبه یازدهم 😂
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10381
-
-<div align="center"><img src="files/post_10381_tasiyanc_10381.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 علی ضیا (مجری حکومتی) همراه با همسرش در ایتالیا ...
-
-+ امروز از طریق اینستاگرام اعلام کرد زنی که کنارشه همسرشه
-عکسها با کیفیت شدن✅
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10380
-
-<div align="center"><img src="files/post_10380_tasiyanc_10380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تو کشور روسیه تعداد زنان 10 میلیون بیشتر از مرد هاست و بسیاری از اونا به‌دنبال شریك زندگی برای ازدواج هستن که پیدا نمیشه .
-بخاطر جنگ با اوکراین حتی مهاجر هم کم شده و امکان ازدواج ندارن.
-
-⚡ @Tasiyanc
 </div>
 
