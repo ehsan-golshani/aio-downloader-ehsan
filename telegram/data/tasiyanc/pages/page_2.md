@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 10960
+
+<div align="center"><img src="files/post_10960_tasiyanc_10960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+J5uvqzBai5A2MmI0
+https://t.me/+J5uvqzBai5A2MmI0
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
+</div>
+
+## tasiyanc — post 10959
+
+<div align="center"><video src="files/post_10959_tasiyanc_10959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10959_tasiyanc_10959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 هجوم طوفان شن به دشتیاری چابهار؛ آسمان دشتیاری در محاصره گردوخاک!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10958
+
+<div align="center"><video src="files/post_10958_tasiyanc_10958.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10958_tasiyanc_10958.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یکی از زیباترین جانداران و آب‌زیان اقیانوس رو میبینید !
+
+ماهی «ماندارین» با این ترکیب رنگ خیره‌کننده، انگار مستقیم از دل دنیای فانتزی بیرون اومده!
+
+طبیعت واقعاً توی خلق این موجود سنگ تموم گذاشته!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10957
+
+<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
+
+ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
 
 ## tasiyanc — post 10955
 
@@ -242,76 +308,5 @@ G30🅰
 ✅ https://t.me/BerryBetOfficial
 آدرس سایت:🅰r30
 🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10939
-
-<div align="center"><video src="files/post_10939_tasiyanc_10939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10939_tasiyanc_10939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حرف‌های این خانوم درباره برابری زن و مرد وایرال شده که میگه؛
-
-انقدر نگید زن و مرد برابرن؛ چون، ۹۰ درصد زن‌ها حقوقشون رو برای خودشون خرج می‌کنن، ولی مردا که کار می‌کنن باید خرج زن و بچه و کل خونه رو بدن و از کلی خواسته های خودشون میزنن تا خانوادشون تو رفاه باشه و چیزی کم نداشته باشن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10938
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان ✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10937
-
-<div align="center"><img src="files/post_10937_tasiyanc_10937.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-🛒 ورود به سایت 👇🅰29
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🌐 کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10936
-
-<div align="center"><video src="files/post_10936_tasiyanc_10936.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10936_tasiyanc_10936.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو از پاستیل خوردن نهال خانم خوشگل وایرال شده :
-
-این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10935
-
-<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
-
-دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 173
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 6055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+۵ مین دیگه میزارم
+</div>
+
+## tasiyanc — post 6054
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اماده باشین
+</div>
+
+## tasiyanc — post 6053
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه چیزای دستم رسیده نمی‌دونم بزارم نزارم🤣
+</div>
+
+## tasiyanc — post 6052
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عکس و ..؟
+</div>
+
+## tasiyanc — post 6051
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خب بریم به آدرس و شماره تلفن یا چیزای دیگه بدم؟
+</div>
 
 ## tasiyanc — post 6050
 
@@ -101,36 +131,5 @@
 اکانت منم پریده
 توروخدا میشه کاری کرد برگرده
 پیج کاریم بوده
-</div>
-
-## tasiyanc — post 6031
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جامپ جامپ برای آیفون هم اپل آیدی میپرونه و بات شناسایی میکنه
-لطفا اطلاع رسانی کنید برای دوستانی ک اپل دارن
-</div>
-
-## tasiyanc — post 6030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مال منم حالا چیکاکنم برکرده
-</div>
-
-## tasiyanc — post 6029
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اره برامنم امروز پرید
-</div>
-
-## tasiyanc — post 6028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم لیمیت خوردم
-</div>
-
-## tasiyanc — post 6027
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-منم اکانتم پرید
 </div>
 

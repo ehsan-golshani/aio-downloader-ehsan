@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 9755
+
+<div align="center"><video src="files/post_9755_tasiyanc_9755.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9755_tasiyanc_9755.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یک مرد به‌نام «محمدباقر د» در مشهد ( شهرک طرق ) دست به جنایت هولناک زد
+
+او دو کودک خردسال خود به نام یاسین ۲ ساله و رادوین ۱ ساله و همسر ۲۳ ساله خود زهرا رو با ساط*ور بقتل رساند و اندکی بعد خودشو از طبقه سوم ساختمان انداخت پایین و خودکشی کرد ″تابناک″
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9754
+
+<div align="center"><img src="files/post_9754_tasiyanc_9754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴کودک 4 ساله تبریزی « میرحسام قربانی» در اثر حملات سگ‌های ولگرد در تبریز جان باخت
+
++ همین سگارو بیان جمع کنن ۴ تا ادم میان فاز روشن فکری برمیدارن و نمیدونن سگها شدیدا به ادمهایی که توانایی دفاع از خود ندارن « زن‌ها،کودکان،کهن‌سالان» اگه جای خلوت گیر بیارن حمله میکنند ذات وحشیگری دارن
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار رسیده 211000 تومان 😞
+
++ زندگی روی خوشی با ما ایرانیا نداره
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 9752
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانستنی
+
+🔴طبق ماده ۷۰۲ قانون مجازات اسلامی: هرکس مشروبات الکلی رو بخره، بسازه، بفروشه، حمل کنه، نگه داره، یا در اختیار کس دیگه بذاره، به ۶ ماه الی ۱ سال حبس محکوم میشه
+
++ تا ۷۴ ضربه شلاق میخوره و تا ۵ برابر ارزش کالا، جریمه نقدی میشه.
+
+🩸@Tasiyanc
+</div>
+
+## tasiyanc — post 9751
+
+<div align="center"><img src="files/post_9751_tasiyanc_9751.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨دانشگاه تهران اعلام کرده به رتبه‌های برتر بابت انتخاب این دانشگاه بورسیه ماهانه می‌دهد.
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9750
 
@@ -179,45 +237,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠 توییت جدید دونالد ترامپ
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری پرواز های مهرآباد لغو شد
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ: اگر در پی تلافی حملات امشب به کشورهای منطقه حمله کنید، با تلفات سنگینی روبه‌رو خواهید شد.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9731
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آکسیوس: ارتش آمریکا در خاورمیانه به حالت آماده باش درآمده است و برای پاسخ ایران آماده شده است. پروکسی |  پروکسی | پروکسی پروکسی | پروکسی  | پروکسی 😑 @TasiyanProxy
-</div>
-
-## tasiyanc — post 9729
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 مقام آمریکایی:
-
-نیروهای ما امروز دو سکوی پرتاب موشک سپاه پاسداران ایران را در جزیره لارک بمباران کردند
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9728
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨🚨 حمله امریکا به جزیره لارک
 
 🩸 @Tasiyanc
 </div>

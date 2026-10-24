@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 10918
+
+<div align="center"><video src="files/post_10918_tasiyanc_10918.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10918_tasiyanc_10918.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از کالاف وارفر4
+
+قسمت‌هایی از نسخه جدید مدرن وارفر ۴، شما در نقش سرباز کره شمالی🇰🇵 بازی می‌کنید؛ جایی که اگه اشتباهی به عکس کیم جونگ اون شلیک کنید، هم‌تیمی‌هاتون خودشون دخلتون رو میارن!
+
+بنظرم نکته جالبیه و دیکتاتوریه کیم رو به زیبایی به رخ جهان کشیده
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10917
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ پاری سن ژرمن - بارسلونا 🌎 ساعت ۲۲:۳۰ ⚽️ لیورپول - ویارئال 🌎 ساعت ۲۲:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
+</div>
+
+## tasiyanc — post 10916
+
+<div align="center"><img src="files/post_10916_tasiyanc_10916.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ پاری سن ژرمن - بارسلونا
+🌎 ساعت ۲۲:۳۰
+⚽️ لیورپول - ویارئال
+🌎 ساعت ۲۲:۳۰
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r28
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10915
+
+<div align="center"><img src="files/post_10915_tasiyanc_10915.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مارتینز ۴۹ ساله کل زندگیشو فروخت، ۲ هزار کیلومتر با اتوبوس رفت که به عشقش برسه، بعد فهمید عشقش یه مشت کد و الگوریتم بوده!
+
+روچا مارتینز ۴۹ ساله، همه اموالش رو پای به خاطر دختری به اسم جسیکا فروخت ، غافل از اینکه جسیکا اصلاً وجود خارجی نداشته و ساخته‌ی هوش مصنوعی بوده!؛ آخرشم، همون‌جا سکته کرده!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10914
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 27🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
+</div>
 
 ## tasiyanc — post 10913
 
@@ -255,82 +323,5 @@ https://t.me/+HsrP_lU8O081ZWFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 26🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10898
-
-<div align="center"><img src="files/post_10898_tasiyanc_10898.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-26🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10896
-
-<div align="center"><video src="files/post_10896_tasiyanc_10896.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10896_tasiyanc_10896.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵حکومت فغانسه و مکرون 🇫🇷 در آستانه سقوط !
-
-خیابون‌ها ملتهب، درگیری‌ها گسترده و اوضاع حسابی به‌هم‌ریخته ، معترضا ریختن تو کلی فروشگاه های معتبر مثل لویی‌ویتون - آدیداس - نایک هرچی بود شکوندن غارت کردن
-
-آماری که تاامروز منتشرشده؛ تا الان فقط یک نفر جونش رو از دست داده؛ اونم نه بر اثر شلیک مستقیم نیروهای امنیتی، بلکه به گفته پلیس فرانسه، طرف وسط اعتراضات دچار ایست قلبی‌تنفسی شده و فوت کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10895
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🏆 یک گل جلو بیفت، برنده شو! ☑️ با قابلیت جدید «یک گل جلو» در بری بت، لازم نیست تا سوت پایان منتظر بمونی! 🧭🆗 کافیه روی بازی‌های فوتبال لیگ‌های منتخب، قبل از شروع مسابقه شرط تکی یا میکس ببندی. اگه تیم انتخابی‌ات حتی برای یک لحظه یک گل جلو بیفته، شرطت برنده…
-</div>
-
-## tasiyanc — post 10894
-
-<div align="center"><img src="files/post_10894_tasiyanc_10894.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥🏆 یک گل جلو بیفت، برنده شو!
-
-☑️ با قابلیت جدید «یک گل جلو» در بری بت، لازم نیست تا سوت پایان منتظر بمونی!
-
-🧭🆗 کافیه روی بازی‌های فوتبال لیگ‌های منتخب، قبل از شروع مسابقه شرط تکی یا میکس ببندی. اگه تیم انتخابی‌ات حتی برای یک لحظه یک گل جلو بیفته، شرطت برنده می‌شه! 🔝
-
-👍🔥 از لیگ برتر انگلیس تا لالیگا، سری آ و لیگ قهرمانان اروپا؛ هیجان برد زودهنگام رو تجربه کن!
-
-🎁 بری بت؛ یک گل تا برد فاصله داری!
-
-🌐 ورود به سایت 👇
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🌐 کانال رسمی ما در تلگرام 👇🅰g26
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10893
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشمی دیگه نمونده بریزه / دنیا داره پیشرفت می‌کنه ماشین پرنده میسازه و کلی چیز دیگه ، صداوسیمای ملی ما « خر » آورده وسط پخش زنده دارن شیرشو میدوشن!
-
-استودیو رو با طویله اشتباه گرفتن؟! بعد انتظار دارن مردمم بشینن این محتوای سسشر نگاه کنن!
-
-⚡ @Tasiyanc
 </div>
 

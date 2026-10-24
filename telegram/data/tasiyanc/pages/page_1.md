@@ -1,8 +1,92 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 10980
+
+<div align="center"><video src="files/post_10980_tasiyanc_10980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10980_tasiyanc_10980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم وایرال شده یه نوزاد که با سیبیل به دنیا اومده !
+
+
+هنوز معلوم نیست داستان این سبیل از کجا آب می‌خوره، ولی قیافه‌ش جوریه انگار به‌جای شیرمادر، باید چایی و قلیون بدیم بهش 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10979
+
+<div align="center"><img src="files/post_10979_tasiyanc_10979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این زوج تایلندی با 58 ساعت و 35 دقیقه بوسیدن ، رکورد جهانی طولانی‌ترین بوسه رو شکستند!
+
+بعد از این همه مدت، دیگه جدایی‌شون نه با قهر، بلکه با کمبود اکسیژن اعلام میکنم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10978
+
+<div align="center"><video src="files/post_10978_tasiyanc_10978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10978_tasiyanc_10978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سرقت خشونت‌آمیز طلاهای یک زن در یکی از مناطق تهران
+
+یک زن هنگام خرید در تهران هدف حمله سارق قرار گرفت و طلاهایش به‌زور سرقت شد.
+در کنار گرانی و فشارهای اقتصادی، حالا امنیت مردم هم زیر سؤال است!
+⚠️ مراقب باشید؛ طلا همراه نبرید و در خیابان گوشی دستتان نگیرید.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10977
+
+<div align="center"><a href="files/post_10977_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد چلسی ⚽️
++برد دورتموند ⚽️
+
+برنده 2.500.000 شوید 🇪🇺
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 10976
+
+<div align="center"><img src="files/post_10976_tasiyanc_10976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نبرد بزرگ چلسی⚽️ و تاتنهام⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g2
+</div>
 
 ## tasiyanc — post 10975
 
@@ -214,71 +298,5 @@ VPN FREE
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+J5uvqzBai5A2MmI0 https://t.me/+J5uvqzBai5A2MmI0 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10960
-
-<div align="center"><img src="files/post_10960_tasiyanc_10960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+J5uvqzBai5A2MmI0
-https://t.me/+J5uvqzBai5A2MmI0
-
-🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10959
-
-<div align="center"><video src="files/post_10959_tasiyanc_10959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10959_tasiyanc_10959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 هجوم طوفان شن به دشتیاری چابهار؛ آسمان دشتیاری در محاصره گردوخاک!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10958
-
-<div align="center"><video src="files/post_10958_tasiyanc_10958.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10958_tasiyanc_10958.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یکی از زیباترین جانداران و آب‌زیان اقیانوس رو میبینید !
-
-ماهی «ماندارین» با این ترکیب رنگ خیره‌کننده، انگار مستقیم از دل دنیای فانتزی بیرون اومده!
-
-طبیعت واقعاً توی خلق این موجود سنگ تموم گذاشته!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10957
-
-<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
-
-ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
 </div>
 

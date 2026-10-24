@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/02 17:05
+📅 آخرین بروزرسانی: 1405/08/02 20:34
 
 ---
+
+## tasiyanc — post 10708
+
+<div align="center"><video src="files/post_10708_tasiyanc_10708.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10708_tasiyanc_10708.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ادعای عجیب یکی از نیروهای آتش‌نشانی در مورد ساخت پلاک مشخصات برای دانش آموزان:
+
+امروز رفتم یه دبیرستان دخترانه برای کنترل مسائل امنیتی بین حرفامون با مسئولین مدرسه متوجه شدم که دارن برای دانش آموزان پلاک مشخصات فردی درست میکنن مثل همونایی که زمان جنگ استفاده میشد؛
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10707
+
+<div align="center"><img src="files/post_10707_tasiyanc_10707.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 آبتین شریفی، جوانی از ممسنی و رتبه 1400 کنکور تجربی، تنها یک هفته مانده به اعلام نتایج، بر اثر ایست قلبی از دنیا رفت.
+
+آبتین برای رسیدن به رویای پزشکی تلاش کرده بود، اما مرگ فرصت دیدن نتیجه زحماتش را ازش گرفت
+
+روحش شاد 🖤
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10706
+
+<div align="center"><video src="files/post_10706_tasiyanc_10706.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10706_tasiyanc_10706.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴«ویدیو وایرال شده» دختر کوچیک جاویدنام علیرضا پورنخعی، هر روز با کفشای باباش درد و دل می‌کنه و حرف میزنه...
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
+
+## tasiyanc — post 10704
+
+<div align="center"><img src="files/post_10704_tasiyanc_10704.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13
+
+https://t.me/+CHT8I544iFRiNzU0
+https://t.me/+CHT8I544iFRiNzU0
+
+
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
 
 ## tasiyanc — post 10703
 
@@ -260,80 +339,5 @@ https://t.me/+E--pAy0bkURiOWM0
 
 🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان
 💵🅰12g
-</div>
-
-## tasiyanc — post 10686
-
-<div align="center"><video src="files/post_10686_tasiyanc_10686.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10686_tasiyanc_10686.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨مراد ویسی (تحلیل‌گر):
-جنگی که توی راهه، آخرین جنگ ترامپ با جمهوری اسلامی خواهد بود!
-اما به قدری این جنگ شدید و گسترده‌اس، که جنگ ۱۲ و ۴۰ روزه، پیشش یه شوخیه!
-شدت بمبارون‌ها خیلی شدیدتر خواهد بود، کشورای بیشتری درگیر میشن و این نبرد آخره.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10685
-
-<div align="center"><video src="files/post_10685_tasiyanc_10685.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10685_tasiyanc_10685.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده تولد هالویینی یکی از کافه های تهران
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10684
-
-<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 4 October, روز جهانی حیواناته.
-
-+این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
-
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10682
-
-<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 
