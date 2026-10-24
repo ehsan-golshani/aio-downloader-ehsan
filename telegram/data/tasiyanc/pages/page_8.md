@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/02 23:05
+📅 آخرین بروزرسانی: 1405/08/03 01:35
 
 ---
+
+## tasiyanc — post 10839
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r22🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10838
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+</div>
 
 ## tasiyanc — post 10837
 
@@ -245,29 +279,5 @@ https://apps.apple.com/us/app/npv-tunnel/id162946547
 خبرگزاری فارس اعلام کرد از ساعت ۱۶ امروز، خدمات بانکی و واریز و برداشت وجه برای ۵ پلتفرم رمزارزی محدود شده است.
 نوبیتکس اعلام کرده این تصمیم به خاطر خودداری صرافی‌ها از ارائه اطلاعات کاربران و دفاع از حریم خصوصی آن‌ها اتخاذ شده است.
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10819
-
-<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
-
-از اخر اول شدیم 🗿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10818
-
-<div align="center"><video src="files/post_10818_tasiyanc_10818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10818_tasiyanc_10818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از تبلیغ جدید بانو سیدنی سویینی
-
-⚡ @Tasiyanc
 </div>
 

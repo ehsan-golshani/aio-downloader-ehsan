@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/02 23:05
+📅 آخرین بروزرسانی: 1405/08/03 01:35
 
 ---
+
+## tasiyanc — post 10983
+
+<div align="center"><a href="files/post_10983_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 10982
+
+<div align="center"><img src="files/post_10982_tasiyanc_10982.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔣از اولین شارژ تا هر واریز بعدی،
+انواع بونوس‌ها و هدایای ورود🔣
+
+🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
+
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵 🅰2
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://www.lenz89bet.online
+</div>
 
 ## tasiyanc — post 10981
 
@@ -280,30 +317,5 @@ VPN FREE
 🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10963
-
-<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
-
-مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10962
-
-<div align="center"><img src="files/post_10962_tasiyanc_10962.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده!
-
-این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده.
-
-💋 @Tasiyanc
 </div>
 

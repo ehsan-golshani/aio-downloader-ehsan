@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/08/02 23:03
+📅 آخرین بروزرسانی: 1405/08/03 01:33
 
 ---
+
+## ProxyMTProto — post 51736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 22
+Secret: dd79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51735
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: matrixxx.top
+Port: 853
+Secret: eee4508d288bf81791177a2f5e73ac06cf6d617472697878782e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51734
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: tg.sosavpn.ru
 Port: 443
 Secret: 7hlDfj9TuZ5A7dfYESrW_3IxOTMtNDctMzMtNjcuc3NsaXAuaW8
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51716
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kabab.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51715
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
 @ProxyMTProto
 </div>
 

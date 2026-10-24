@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/02 23:05
+📅 آخرین بروزرسانی: 1405/08/03 01:35
 
 ---
+
+## tasiyanc — post 10819
+
+<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
+
+از اخر اول شدیم 🗿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10818
+
+<div align="center"><video src="files/post_10818_tasiyanc_10818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10818_tasiyanc_10818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از تبلیغ جدید بانو سیدنی سویینی
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10817
 
@@ -248,24 +272,5 @@ https://t.me/+A6R70wBCKApkYTRk
 بن افلک هم بعد اینکه دید داره کمر نابود میشه فرار رو بر قرار ترجیح داد....
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10797
-
-<div align="center"><video src="files/post_10797_tasiyanc_10797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10797_tasiyanc_10797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال شده از یک مدرسه پسرونه که معلم داره درس میده و دانش آموزان دور هم جمع شدن کله‌پاچه میزنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😀میکس مطمئن امشب           🏴󠁧󠁢󠁥󠁮󠁧󠁿منچستر سیتی🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿 ليورپول          🏴󠁧󠁢󠁥󠁮󠁧󠁿کریستال پالاس🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿ناتینگهام                باضریب⬅️ 2.78 📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1393 دلار🔥                                  ⬇️👇⬇️            …
 </div>
 

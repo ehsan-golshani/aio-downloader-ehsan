@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/08/02 23:03
+📅 آخرین بروزرسانی: 1405/08/03 01:33
 
 ---
+
+## ProxyMTProto — post 51274
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51273
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn8.cdnwave.org
+Port: 443
+Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51272
 
@@ -162,24 +180,6 @@ Secret: eec3fcb57fc846f97afff554fa8b05b473646174612e75746b616e6f732e6c696665
 Server: thebirds.world
 Port: 443
 Secret: bace78f2e29ada4137186fa8b7d14f1d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51254
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: s02.neo-trading.org
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
 @ProxyMTProto
 </div>
 

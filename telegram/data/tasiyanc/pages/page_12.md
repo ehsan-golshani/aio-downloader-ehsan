@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/02 23:05
+📅 آخرین بروزرسانی: 1405/08/03 01:35
 
 ---
+
+## tasiyanc — post 10754
+
+<div align="center"><img src="files/post_10754_tasiyanc_10754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، توییت جدید ترامپ : ما در حال گفتگوی سازنده‌ای با جمهوری اسلامی ایران هستیم و به هیچ عنوان قبل از انتخابات میان دوره ای به ایران حمله نخواهیم کرد.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ با اعلام رسمی سخنگوی قوه قضائیه، بی‌حجابی رسما جرم اعلام شد و از این به بعد در سراسر کشور، برای دخترای بی حجاب پرونده ی قضایی تشکیل میشه و محاکمه میشن‌.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10752
 
@@ -256,33 +274,6 @@ https://t.me/+5cdraE3AwpgyOTlk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نسیم مقصودلو؛ خواهر امیرتتلو :
 خبرهایی که در مورد آزادی امیر پخش شده فیکه و هیچ تغییر در پروندش ایجاد نشده. اون فیلم هم که گفتم شرط عفو شدنش پاک کردن تتوهاشه مال پارساله که اونم دروغ بود.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10734
-
-<div align="center"><video src="files/post_10734_tasiyanc_10734.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10734_tasiyanc_10734.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمام ریخته از این حد حرومزادگی
-
-🚨تو کارخانه شیرخشک سازی،کارگر با کارفرما دعواش میشه،برای انتقام مخفیانه ۲۰ لیتر اسید توی مخزن شیر میریزه و لحظه‌ی آخری آزمایشگاه کارخانه متوجه این قضیه میشه و از یک جنایت بزرگ جلوگیری میشه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10733
-
-<div align="center"><video src="files/post_10733_tasiyanc_10733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10733_tasiyanc_10733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو تهران یه پسره جلو چندتا دختر جو گیر میشه و میخوست به سبک فیلمای سریع و خشن از پنجره یه ماشین بپره تو یه ماشین دیگه که رید :
 
 
 ⚡ @Tasiyanc

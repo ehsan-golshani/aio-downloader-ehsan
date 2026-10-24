@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/02 23:05
+📅 آخرین بروزرسانی: 1405/08/03 01:35
 
 ---
+
+## tasiyanc — post 10901
+
+<div align="center"><video src="files/post_10901_tasiyanc_10901.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10901_tasiyanc_10901.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!
+
+از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10900
+
+<div align="center"><video src="files/post_10900_tasiyanc_10900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10900_tasiyanc_10900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!
+
+از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10899
 
@@ -263,39 +291,5 @@ G25🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10880
-
-<div align="center"><img src="files/post_10880_tasiyanc_10880.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرکت پشم افکن دیگر از آموزش‌پرورش
-
-🔵ظاهراً «آخوندک» هم زیادی حساسیت‌برانگیز بوده، تغییرش دادن به «راهِبَک»!
-وقتی به‌جای حل مشکلات کشور، دغدغه اینه که مبادا اسم یه حشره به کسی بربخوره!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10879
-
-<div align="center"><video src="files/post_10879_tasiyanc_10879.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10879_tasiyanc_10879.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سازمان ملل هم نمی‌تونست این‌جوری داماد رو خلع‌سلاح کنه!
-
-مهریه و شروط عقد این عروس رسماً پکیج کامل تصاحب داماده:
-یه سرویس طلای کامل
-444 سکه تمام بهار آزادی
-تمام وسایل خونه
-نصف هر ملکی و املاکی و ماشین که بعد از ازدواج بخره
-تمام حقوقی مثل حق مسکن و حق طلاق برای عروس!
-فقط قلاده و دهن‌بند آقا داماد از قلم افتاده؛ وگرنه قرارداد از این کامل‌تر نمی‌شد!
-
-
-⚡ @Tasiyanc
 </div>
 
