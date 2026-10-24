@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10659
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+</div>
+
+## tasiyanc — post 10658
+
+<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+VGH5xHispzJlMjM8
+https://t.me/+VGH5xHispzJlMjM8
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
+</div>
 
 ## tasiyanc — post 10657
 
@@ -265,33 +292,6 @@ https://AmitisBet.com/
 🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
 
 تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10638
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🌟
-
-تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید ❤️
-دانلود برای آیفون  📱
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-💋 @TASIYANC
-</div>
-
-## tasiyanc — post 10637
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 دلار 260.000 ؛ داره می‌ره سمت 300
-
-سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
 
 ⚡ @Tasiyanc
 </div>

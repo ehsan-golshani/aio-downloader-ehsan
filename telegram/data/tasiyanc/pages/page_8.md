@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10830
+
+<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
+
+https://t.me/+zhWRXOtmyEE5ZjVk
+https://t.me/+zhWRXOtmyEE5ZjVk
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10829
+
+<div align="center"><video src="files/post_10829_tasiyanc_10829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10829_tasiyanc_10829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جدیدا هرکی میخواد وایرال شه دسـت به دامان فـوتــ‌فتـیش‌ها یا کون فـتیشا میشه؛ از پا ، رون سفید ، باسن برای دیدن شدن استفاده می‌کنه ، مثل این کلوچه فروشی رشتی که تونسته ویو میلیونی بگیره :
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10828
 
@@ -237,33 +266,6 @@ https://t.me/+A6R70wBCKApkYTRk
 سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
 
 دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10810
-
-<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10809
-
-<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
-
-پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
 
 
 ⚡ @Tasiyanc

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10974
+
+<div align="center"><video src="files/post_10974_tasiyanc_10974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10974_tasiyanc_10974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از سورپرایز جذاب برای بازیگر سریال «بازی تاج‌وتخت , GOT » توی استانبول🇹🇷
+
++ «اوون تیل» وسط بازدید از آب‌انبار شرفیه استانبول، با اجرای موسیقی معروف سریال «بازی تاج‌وتخت» با سازهای سنتی غافلگیر شد؛ یه اجرای خفن توی فضایی تاریخی که حسابی حال‌وهوای وستروس رو زنده کرد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10973
+
+<div align="center"><img src="files/post_10973_tasiyanc_10973.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پیت‌بول (رپر معروف آمریکایی) اعتراف کرده که هنگام اجرای مشترکش با جنیفر لوپز در مراسم جوایز موسیقی آمریکا در سال ۲۰۱۱، واقعاً دچار نعوظ شده بوده! :))))
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10972
 
@@ -22,8 +48,6 @@
 </div>
 
 ## tasiyanc — post 10971
-
-<div align="center"><a href="files/post_10971_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 اپلیکیشن MelBet 🔄
@@ -270,23 +294,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 ✅ https://t.me/BerryBetOfficial
 آدرس سایت:🅰r1
 🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10954
-
-<div align="center"><video src="files/post_10954_tasiyanc_10954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10954_tasiyanc_10954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10953
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁 0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی 💰 کش بک روزانه و هفتگی 🌛 چرخ و فلک ویژه جام جهانی 💣 بالاترین ضرایب پیش بینی 📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱 🕸ورود به سایت: 👇 🪩 https:/…
 </div>
 

@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10595
+
+<div align="center"><img src="files/post_10595_tasiyanc_10595.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r6🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10594
+
+<div align="center"><video src="files/post_10594_tasiyanc_10594.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10594_tasiyanc_10594.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اینجا موزه ملی ماشین‌های تاریخی ایرانه 
+👑
+
+تو این موزه از کالسکه تاج‌گذاری «محمد رضا شاه پهلوی» تا کالسکه‌ای که «ناصرالدین شاه» داخلش ترور شد نگهداری میشه.
+کلکسیونی ماشینایی که داخل این موزه نگهداری میشه یکی از گرون‌ قیمت‌ ترین کلکسیونای ماشین داخل خاورمیانه هست.
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10593
 
@@ -247,27 +283,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 « فعلا از طرف گوگل هیچ بیانیه رسمی صادر نشده ولی الان برای پیشگیری تا میتونید با VPN اکانت جی‌میل بسازید »
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10570
-
-<div align="center"><video src="files/post_10570_tasiyanc_10570.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10570_tasiyanc_10570.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از دانشگاه آزاد تهران
-بزرگترین کلاب کشور رو مشاهده میکنید .
-
-دانشگاه آزاد اسلامی، با شعبه های متعدد سراسر ایران.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10569
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
 </div>
 

@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10434
+
+<div align="center"><video src="files/post_10434_tasiyanc_10434.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10434_tasiyanc_10434.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴معرفی فیلم وایرال شده جدید : مادر اژدها
+
+مادری در یک اتفاق نادر و عجیب، بچه‌ای از جنس اژدها به دنیا می‌آورد. با انتشار این خبر، اهالی روستا که از وجود این موجود نگران شده و امنیت خود را در خطر می‌بینند، مادر را از روستا بیرون می‌کنند و تصمیم می‌گیرند بچه را نابود کنند. اما مادر برای محافظت از فرزندش در برابر خشم و بی‌رحمی مردم، دست به هر کاری می‌زند و نبردی پرچالش را آغاز می‌کند...
+
+دانلود فیلم بدون سانسور 👉
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10433
+
+<div align="center"><video src="files/post_10433_tasiyanc_10433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10433_tasiyanc_10433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 یه دختر خانوم بلاگر تو تهران میره به پسرا پیشنهاد میده که به حساب خودش برن کافه، اما هیچ پسری قبول نمیکنه
+آخر سر هم دید همه پسرا دست رد بهش دادن میگه پسرا پرنسس شدن و تنها میره کافه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10432
 
@@ -313,33 +344,5 @@ https://AmitisBet.com/
 
 لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.
 ۱۸+ | مسئولانه بازی کن
-</div>
-
-## tasiyanc — post 10411
-
-<div align="center"><video src="files/post_10411_tasiyanc_10411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10411_tasiyanc_10411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩 تاثیر قهوه بر بدن
-
-تاثیر قهوه بر بدن به ژنتیک‌مون بستگی داره. بعضی از افراد ژن‌هایی دارن که باعث می‌شه سریع‌تر کافئین رو متابولیزه کنن و انرژی زیادی ازش بگیرن…
-
-در حالی که بعضی‌ها به دلیل داشتن ژن‌های خاص، کافئین رو دیرتر تجزیه می‌ کنن و ممکنه دچار بی‌خوابی یا حتی اضطراب بشن.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت
-📱
-سریع، آسان و آنی
-👑
-https://AmitisBet.com/
 </div>
 

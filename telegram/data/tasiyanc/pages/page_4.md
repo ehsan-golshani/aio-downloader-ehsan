@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/02 08:23
+📅 آخرین بروزرسانی: 1405/08/02 12:51
 
 ---
+
+## tasiyanc — post 10912
+
+<div align="center"><img src="files/post_10912_tasiyanc_10912.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پورن استار پاکستانی میگه مسلمونم، حجاب دارم، نماز می‌خونم، روزه هم می‌گیرم؛ عزیز من، پس این حجم از تناقض رو کجای مغزمون جا بدیم؟
+
+فقط مونده معمای بابای بچه رو حل کنیم، انگار با یه پرونده جنایی طرفیم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10911
+
+<div align="center"><video src="files/post_10911_tasiyanc_10911.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10911_tasiyanc_10911.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بازنشر سخنان محمدرضا شاه درباره تروریسم و هشدار به کشورهای اروپایی
+
+ویدیویی از محمدرضا شاه پهلوی، مربوط به حدود ۵۰ سال پیش، در فضای مجازی بازنشر شده که در آن درباره ضرورت مقابله با تروریسم و پیامدهای بی‌توجهی به آن صحبت می‌کند.
+او در این سخنان، از کشورهای اروپایی می‌خواهد تهدیدهای تروریستی را جدی بگیرند و نسبت به پیامدهای احتمالی عدم مقابله با آن هشدار می‌دهد.
+
+
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 10910
 
@@ -294,25 +322,5 @@ https://t.me/+HsrP_lU8O081ZWFk
 + بفرست واسه کسی که برات مهمه
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10891
-
-<div align="center"><video src="files/post_10891_tasiyanc_10891.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10891_tasiyanc_10891.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵با دیدن این پشماتون دیگه ۱۰۰٪ می‌ریزه / دیشب تو تجمعات دلار فیک آتیش زدن و شعار مرگ بر دلار آمریکایی دادن مداح‌ میگه این کاغذ زندگی مردم رو نابود کرده!
-
-نابغه‌های اقتصاد! مشکل کاغذ دلاره یا سیاستی که با آمریکا شاخ‌به‌شاخ می‌شه؟ بعد هزینه‌ی عربده‌کشی‌های شمارو باید ما مردم معمولی بدیم
-با آمریکا گنده‌گویی می‌کنید، سفره‌ی مردم رو کوچک می‌کنید سر همین یه تیکه کاغذ ۵۰۰ درصد تورم کردید تو پاچه مردم بدبخت، بعد با سوزوندن دلار تقلبی ادای پیروزها رو درمیارید؟!
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ ملوان - تراکتور 🌎 ساعت ۱۷:۰۰ ⚽️ سپاهان - شمس آذر قزوین 🌎 ساعت ۱۷:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
 </div>
 
