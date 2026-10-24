@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 10878
+
+<div align="center"><video src="files/post_10878_tasiyanc_10878.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10878_tasiyanc_10878.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 
+🔥 مسابقات امروز 
+👍 ⚽️ اسپانیول - اتلتیکو مادریو 
+🌎 ساعت ۱۵:۳۰ ⚽️ رئال بتیس - بارسلونا 
+🌎 ساعت ۲۰:۰۰ ﻿ 
+💸 ضرایب ویژه و رقابتی 
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
 
 ## tasiyanc — post 10877
 
@@ -337,11 +354,5 @@ G24🅰
 طبق گفته برخی منابع، یه ایرانی با خودش 300 تا آیفون و 1000 تا ادکلن آورده!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+EhV1Lz5aPVVlNWI0 https://t.me/+EhV1Lz5aPVVlNWI0 🎯نمونه سود…
 </div>
 

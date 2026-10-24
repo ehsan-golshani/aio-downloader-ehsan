@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 147
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 6799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز فروش به احتمال زیاد باز شه ، آیپی ثابتن سرورا 🦦
+</div>
 
 ## tasiyanc — post 6798
 
@@ -192,11 +198,5 @@ VIP⚡ APEX ⛓️.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6773
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-VİP - ⛓️OMEGA ⚡.npvt
 </div>
 

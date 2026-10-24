@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/02 20:32
+📅 آخرین بروزرسانی: 1405/08/02 23:03
 
 ---
+
+## ProxyMTProto — post 52154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zolony22.lite64.xyz
+Port: 443
+Secret: ee9f8bd664e299f9a95891232c42f8806a6c69746536342e73697465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52152
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52151
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd1924acaec2bb63dac896a6d02a382f38
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52149
 
@@ -136,51 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: Unknown
 Port: 443
 Secret: dd1924acaec2bb63dac896a6d02a382f38
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dene60.hollowfern.sbs
-Port: 443
-Secret: ee0452c14b5e3aa0002b94fed71957540a6c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ving.mozitop.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52131
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: toka69.velvetoak.work
-Port: 443
-Secret: ee1fb23d3871d7fb9570f26aee4fc6456b6c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52130
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nfc.neo-duo.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

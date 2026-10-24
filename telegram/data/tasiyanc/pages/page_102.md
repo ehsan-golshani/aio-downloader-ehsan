@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 8416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 شبکه 13 اسرائیل: ترامپ پیامی به کشورهای خلیج ارسال کرد:
+
+«اگر در این هفته به توافقی برای آتش‌بس دست نیابید، خود را برای یک تشدید جدی با ایران آماده کنید.»
+
+@TASIYANC ✅
+</div>
 
 ## tasiyanc — post 8415
 
@@ -200,14 +210,6 @@ IP
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨💪 انفجار در سیریک
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 4 انفجار شدید در بندرعباس گزارش میشه
 
 @Tasiyanc ✅
 </div>

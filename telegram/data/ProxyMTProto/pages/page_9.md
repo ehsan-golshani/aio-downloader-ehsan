@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/02 20:32
+📅 آخرین بروزرسانی: 1405/08/02 23:03
 
 ---
+
+## ProxyMTProto — post 52294
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52293
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.arixo.shop
+Port: 443
+Secret: dd27e57f496bbf279605f0198ea6d26067
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52292
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52290
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: work.mishutkin.click
+Port: 443
+Secret: ee61947a32dca6f584a2772676b4b46924776f726b2e6d69736875746b696e2e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52289
 
@@ -136,51 +181,6 @@ Secret: dd65373b054948c84eb4a74630d4a79b22
 Server: Unknown
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52274
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd1924acaec2bb63dac896a6d02a382f38
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52273
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52272
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dded74276eabb934874721ad7a5c9e7c94
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52271
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Arash-kamangir.ir.igakwvwa.info.
-Port: 7443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52270
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: akenai.tg
-Port: 853
-Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
 @ProxyMTProto
 </div>
 

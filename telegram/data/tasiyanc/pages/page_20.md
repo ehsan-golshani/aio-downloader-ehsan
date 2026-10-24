@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 10579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 OpenVPN - کانفیگ نامحدود اختلال شکن
+
+Location 🇺🇸
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10578
 
@@ -262,14 +272,5 @@ https://AmitisBet.com/
 دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️عضویت کانال آنالیز محدوده رفقا؛ اگه اهل بتی ، خودتو برسون 👇🔥
-
-https://t.me/+NB1g7r1k_5I2ODE0
-https://t.me/+NB1g7r1k_5I2ODE0
 </div>
 

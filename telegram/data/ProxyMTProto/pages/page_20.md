@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/02 20:32
+📅 آخرین بروزرسانی: 1405/08/02 23:03
 
 ---
+
+## ProxyMTProto — post 52074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ving.mozitop.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd8960b9810070b6dea7e1f7e2f564b461
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52071
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ultra.proxynet.tech
+Port: 443
+Secret: eec5b6dfd5a5f78d29e7eee7aa64aae742756c7472612e70726f78796e65742e74656368
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.bingi.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52069
 
@@ -136,51 +181,6 @@ Secret: ddd53127c4392815612a47803b9620ee40
 Server: ir-ir.gnutella2.info
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd8960b9810070b6dea7e1f7e2f564b461
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: e3fand.fesgheli.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52052
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ultra.proxynet.tech
-Port: 443
-Secret: eec5b6dfd5a5f78d29e7eee7aa64aae742756c7472612e70726f78796e65742e74656368
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52051
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.arixo.shop
-Port: 443
-Secret: dd27e57f496bbf279605f0198ea6d26067
 @ProxyMTProto
 </div>
 

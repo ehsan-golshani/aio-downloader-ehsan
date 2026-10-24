@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 10772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10771
 
@@ -268,18 +274,6 @@ https://t.me/+ramzL0orpc5hMTBk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️ با اعلام رسمی سخنگوی قوه قضائیه، بی‌حجابی رسما جرم اعلام شد و از این به بعد در سراسر کشور، برای دخترای بی حجاب پرونده ی قضایی تشکیل میشه و محاکمه میشن‌.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10752
-
-<div align="center"><video src="files/post_10752_tasiyanc_10752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10752_tasiyanc_10752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اینجایی که مشاهده میکنید تگزاس نیست، کوهدشت لرستانه که یه چند نفر با همدیگه به مشکل خورده بودن و تصمیم گرفتن با کلاشینکف حلش کنن.
 
 ⚡ @Tasiyanc
 </div>

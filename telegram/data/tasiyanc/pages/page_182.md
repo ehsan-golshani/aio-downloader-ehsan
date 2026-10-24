@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 182
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 5817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوباره بگم؟
+</div>
 
 ## tasiyanc — post 5816
 
@@ -211,18 +217,5 @@ Fast ⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Fast ⚡.npvt
-</div>
-
-## tasiyanc — post 5795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱  سرور نامحدود اختصاصی تاسیان  📱
-
-⛈2سرور تست شده روی همه اپراتورا ⛈ 
-
-در صورت ناپایداری حالت پرواز بزارید دربیاید وصل شید ✅
-
-
-🚀 @Tasiyanc ✅
 </div>
 

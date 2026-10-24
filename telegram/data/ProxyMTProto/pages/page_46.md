@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/08/02 20:32
+📅 آخرین بروزرسانی: 1405/08/02 23:03
 
 ---
+
+## ProxyMTProto — post 51553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: iran.mother.ir.jetish.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: full-vasl.ir-xyz.gdhbvjshjrf.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51550
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: jxjxjo.lol
+Port: 443
+Secret: 865d8256f6769081944d727dc7954720
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51549
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 77.42.56.66
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51548
 
@@ -136,51 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: media7.happtg.org
 Port: 443
 Secret: ee6ec9f7e082baf2397b450727ce78447e686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51533
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51532
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51531
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51530
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: server.syscloudio.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

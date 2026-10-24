@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/02 20:34
+📅 آخرین بروزرسانی: 1405/08/02 23:05
 
 ---
+
+## tasiyanc — post 10940
+
+<div align="center"><img src="files/post_10940_tasiyanc_10940.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ تراکتور - صنعت نفت آبادان
+🌎 ساعت ۱۷:۰۰
+⚽️ یوونتوس - رن
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r30
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10939
 
@@ -278,21 +306,5 @@ G29🅰
 حالا اینکه دقیقاً چه گهی تو این ویدیو هست که ملت این‌جوری ریختن سرش، خودش جای بحث داره!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10919
-
-<div align="center"><video src="files/post_10919_tasiyanc_10919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10919_tasiyanc_10919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری | کارشناس صداوسیما با یک نظریه تاریخی، علم نظامی جهان رو وارد عصر جدیدی کرد!
-
-استاد خوش‌چشم می‌فرمایند: «می‌تونیم مادر بمب‌ها رو با دوش پرتاب بزنیم!»
-
-کسکش، تو خودت می‌فهمی چه گهی داری می‌خوری یا فکر کردی ملت یه مشت احمقن که هر چرت‌وپرتی بلغور کنی باور کنن؟!
-
-💋 @Tasiyanc
 </div>
 
