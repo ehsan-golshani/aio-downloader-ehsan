@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 63
 
-📅 آخرین بروزرسانی: 1405/08/02 01:23
+📅 آخرین بروزرسانی: 1405/08/02 08:22
 
 ---
+
+## ProxyMTProto — post 51182
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sorat-bala.ir.paeez-amad.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51181
 
@@ -173,15 +182,5 @@ Server: x.shmelproxy.top
 Port: 443
 Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51162
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ Прокси массово блокируют и отключают, забери БЕСПЛАТНЫЙ, пока работает.
-
-⚠️ Proxies are getting blocked & disconnected fast, grab a FREE one while it works.
-
-⚠️ بیشتر پروکسی‌ها سریع قطع و فیلتر می‌شن, تا دیر نشده پروکسی رایگانت رو بگیر.
 </div>
 

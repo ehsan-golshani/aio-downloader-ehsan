@@ -1,8 +1,99 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/02 03:50
+📅 آخرین بروزرسانی: 1405/08/02 08:23
 
 ---
+
+## tasiyanc — post 10910
+
+<div align="center"><video src="files/post_10910_tasiyanc_10910.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10910_tasiyanc_10910.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 
+🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 
+💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان 
+✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 
+🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
+</div>
+
+## tasiyanc — post 10909
+
+<div align="center"><video src="files/post_10909_tasiyanc_10909.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10909_tasiyanc_10909.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
+
+
+🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
+
+
+💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
+
+✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
+
+🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
+
+📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
+
+
+💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
+
+
+🛒 ورود به سایت 
+👇🅰g27
+
+⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+
+🌐 کانال رسمی ما در تلگرام 
+👇
+
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10908
+
+<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
+</div>
+
+## tasiyanc — post 10907
+
+<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤
+
+از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
+
+https://t.me/+HsrP_lU8O081ZWFk
+https://t.me/+HsrP_lU8O081ZWFk
+
+
+💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
+لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
+چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
+💰 🅰g27
+</div>
 
 ## tasiyanc — post 10906
 
@@ -223,66 +314,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ ملوان - تراکتور 🌎 ساعت ۱۷:۰۰ ⚽️ سپاهان - شمس آذر قزوین 🌎 ساعت ۱۷:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
-</div>
-
-## tasiyanc — post 10889
-
-<div align="center"><img src="files/post_10889_tasiyanc_10889.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ ملوان - تراکتور
-🌎 ساعت ۱۷:۰۰
-⚽️ سپاهان - شمس آذر قزوین
-🌎 ساعت ۱۷:۳۰
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r26
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی صرافی ایرانی
-
-🔵 این روزها که بحث تحریم صرافی‌ها و محدودیت دسترسی به دارایی‌های دیجیتال داغ شده، انتخاب محل مناسب برای تبدیل ارز اهمیت بیشتری پیدا کرده.
-پیشنهاد شخصی من برای تبدیل و معامله‌ی دارایی‌های دیجیتال، صرافی تبدیل هست. البته پیشنهاد می‌کنم مثل هر پلتفرم دیگه‌ای، قبل از استفاده شرایط و ریسک‌هاش رو بررسی کنید.
-
-🔗 https://tabdeal.org/
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10887
-
-<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
 </div>
 
