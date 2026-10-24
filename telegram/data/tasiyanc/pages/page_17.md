@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 10639
+
+<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
+
+تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10638
 
@@ -296,41 +310,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 💐
 وینگو بینگو
 👆🅰‌7
-</div>
-
-## tasiyanc — post 10617
-
-<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
-💎
-
-
-🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
-
-
-🟠بازی وینگو چیه؟
-یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
-
-
-🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
-
-
-📆 یکشنبه ۱۲ مهر
-
-⏰ ساعت ۲۱:۳۰ (به وقت تهران)
-
-🎙 مجری: سهند
-
-
-🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
-
-لینک ورود به بازی:
-
-
-🌐 https://wingobingo.tv/fa/wingo/14640
 </div>
 

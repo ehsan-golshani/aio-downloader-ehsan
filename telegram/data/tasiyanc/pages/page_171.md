@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 171
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 6107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇩🇪🚀 رایتل.npvt
+</div>
 
 ## tasiyanc — post 6106
 
@@ -173,21 +179,5 @@ Channel@Tasiyanc.ovpn
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚀🇮🇹🇳🇱 سرعتی - VIP.npvt
-</div>
-
-## tasiyanc — post 6081
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶  اختصاصی تاسیان  متد جدید
-
-۲سرور  سرعتی🚀
-
-مناسب دانلود ـ وب‌گردی ـ اینستاگرام ✅
-
-دانلود  NPV tunnel  🌐
-
-نحوه اتصال به سرورها ⏩
-
-🦁  @Tasiyanc ✅
 </div>
 

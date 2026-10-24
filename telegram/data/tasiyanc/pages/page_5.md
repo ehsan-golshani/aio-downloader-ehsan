@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 10892
+
+<div align="center"><video src="files/post_10892_tasiyanc_10892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10892_tasiyanc_10892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز October 18، روزِ عزیزترین آدم زندگیمونه.
+
++ بفرست واسه کسی که برات مهمه
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10891
 
@@ -323,13 +337,5 @@ G25🅰
 
 ✈️ کانال رسمی ما در تلگرام 👇🅰24
 ⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود بر دوستان و همراهان همیشگی
-
-درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 10831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
 
 ## tasiyanc — post 10830
 
@@ -256,18 +262,5 @@ https://t.me/+A6R70wBCKApkYTRk
 میگی ن ؟ بیا تو چنلمون و ببین🔥
 🌐@Aron_tip @Aron_tip
 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا کانفیگ OPEN VPN 🌟
-
-سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
-
-دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
 </div>
 

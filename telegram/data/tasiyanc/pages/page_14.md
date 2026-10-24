@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 10703
+
+<div align="center"><video src="files/post_10703_tasiyanc_10703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10703_tasiyanc_10703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سنگین ترین پرونده مهریه ایران اعلام شد:
+
+اقای جراح ۶۳۶۰ سکه مهریه برای خانم با وفاش زده بوده و الانم تو زندانه😐😂
+
+الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10702
 
@@ -319,17 +335,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10681
-
-<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
-
-
-
-⚡ @Tasiyanc
 </div>
 

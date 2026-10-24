@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/02 12:51
+📅 آخرین بروزرسانی: 1405/08/02 17:05
 
 ---
+
+## tasiyanc — post 10913
+
+<div align="center"><img src="files/post_10913_tasiyanc_10913.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+27🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10912
 
@@ -306,20 +330,6 @@ https://t.me/+HsrP_lU8O081ZWFk
 🔵پشمی دیگه نمونده بریزه / دنیا داره پیشرفت می‌کنه ماشین پرنده میسازه و کلی چیز دیگه ، صداوسیمای ملی ما « خر » آورده وسط پخش زنده دارن شیرشو میدوشن!
 
 استودیو رو با طویله اشتباه گرفتن؟! بعد انتظار دارن مردمم بشینن این محتوای سسشر نگاه کنن!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10892
-
-<div align="center"><video src="files/post_10892_tasiyanc_10892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10892_tasiyanc_10892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز October 18، روزِ عزیزترین آدم زندگیمونه.
-
-+ بفرست واسه کسی که برات مهمه
 
 ⚡ @Tasiyanc
 </div>
