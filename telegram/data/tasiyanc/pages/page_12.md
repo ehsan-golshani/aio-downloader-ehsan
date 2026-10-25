@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/03 13:37
+📅 آخرین بروزرسانی: 1405/08/03 17:42
 
 ---
+
+## tasiyanc — post 10764
+
+<div align="center"><video src="files/post_10764_tasiyanc_10764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10764_tasiyanc_10764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐
+
+همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+ramzL0orpc5hMTBk
+https://t.me/+ramzL0orpc5hMTBk
+🅰g17
+🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10763
+
+<div align="center"><video src="files/post_10763_tasiyanc_10763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10763_tasiyanc_10763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران عالیه
+💖در پی درگیری لفظی میان راننده یک نیسان و یک موتورسوار، موتورسیکلت واژگون شد و نیسان نیز در آستانه واژگونی قرار گرفت
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10762
+
+<div align="center"><img src="files/post_10762_tasiyanc_10762.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖پشماتون فر بخوره / دختر خانم ۱۶ ساله که طی دوسال رابطه جنسی به HPV « زیگیل‌تناسلی » مبتلا شده
+
+۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10761
 
@@ -220,47 +266,5 @@ https://t.me/+wLFODtl1yCEwYzFk
 
 🆔@Aron_tip 🆔 @Aron_tip
 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10744
-
-<div align="center"><video src="files/post_10744_tasiyanc_10744.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10744_tasiyanc_10744.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یه خانم طرفدار حکومت:
-
-من برای مطالبه ملی این مدت جلوی مجلس تو تجمعات شرکت میکردم حالا اطلاعات سپاه دوبار باهام تماس گرفته و احضارم کرده.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10743
-
-<div align="center"><video src="files/post_10743_tasiyanc_10743.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10743_tasiyanc_10743.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو های وایرال شده نجمه جودکی، مجری سابق صداوسیما که راهشو از این سازمان جدا کرده و بلاگر شده عقد آریایی برخی زوج‌هارو میخونه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10742
-
-<div align="center"><video src="files/post_10742_tasiyanc_10742.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10742_tasiyanc_10742.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
-💵تبدیل 2میلیون به 10میلیون
-💵 
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅ 
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
 </div>
 

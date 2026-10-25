@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/08/03 13:37
+📅 آخرین بروزرسانی: 1405/08/03 17:42
 
 ---
+
+## tasiyanc — post 10569
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10568
+
+<div align="center"><img src="files/post_10568_tasiyanc_10568.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰🛍 جشنواره اسلات AmitisBet شروع شد!
+
+از0️⃣3️⃣شهریور تا 2️⃣1️⃣مهر
+با یک شارژ 2️⃣ میلیونی و یا 5️⃣1️⃣ دلاری و انجام بازیهای اسلات
+
+در پایان دوره، روز دوشنبه 3️⃣1️⃣ مهر، معادل 5️⃣🔣 مجموع شارژت رو پاداش نقدی بگیر
+
+هر بازی 🟰 یک امتیاز برای ورود به قرعه‌کشی
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+📱 آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📱 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰4
+</div>
+
+## tasiyanc — post 10567
+
+<div align="center"><video src="files/post_10567_tasiyanc_10567.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10567_tasiyanc_10567.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10566
 
@@ -245,55 +290,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10549
-
-<div align="center"><video src="files/post_10549_tasiyanc_10549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10549_tasiyanc_10549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده ، یکی از کافه های تبریز با آهنگ آذری که همه کنار هم میخونن😍
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅این سایت هدایاش خیلی خفن رفقا از دست ندینش همین حالا عضو شین💯
-https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 10547
-
-<div align="center"><img src="files/post_10547_tasiyanc_10547.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖
-
-🎖️معتبرترین سایت روسی فعال در ایران🎖️
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-💎هدایا سایت جهانی ژتون بت:
-➕واریز اول دو برابر شارژ میشی😍
-➕15% فری بت هدیه برای شارژ بانکی
-➕15% شارژ اضافی برای شارژ ارزی
-➕50% بونوس جمعه برای شرط بندی
-➕50% بونوس دوشنبه برای کازینو
-➕100 اسپین رایگان هفتگی
-➕20% کش بک روزانه برای کازینو
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-🥇دنیای افرهای بی نظیر در ژتون بت👀
-
-🖥️ادرس ورود به سایت:
-https://jhet0n.online/fa/?btag=2786270
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-💖کانال اطلاع رسانی:👇🅰3
-🔔https://t.me/+wZXhBXGTHmsxMTk0
 </div>
 

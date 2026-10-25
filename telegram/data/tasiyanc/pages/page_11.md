@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/03 13:37
+📅 آخرین بروزرسانی: 1405/08/03 17:42
 
 ---
+
+## tasiyanc — post 10786
+
+<div align="center"><img src="files/post_10786_tasiyanc_10786.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18
+
+https://t.me/+uA90XBGKpBRmM2Q0
+https://t.me/+uA90XBGKpBRmM2Q0
+
+🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
+</div>
+
+## tasiyanc — post 10785
+
+<div align="center"><video src="files/post_10785_tasiyanc_10785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10785_tasiyanc_10785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖تو فیلم جدید جان سینا، گلشیفته فراهانی حضور کوتاهی داشت و از بدو ورود خودش و جان سینا لب گرفتن و همو خوردن ...
+
+📺اسم فیلم: Matchbox
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10784
+
+<div align="center"><video src="files/post_10784_tasiyanc_10784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10784_tasiyanc_10784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 آیا میدونید؟ بعضی اپ‌هایی که بهشون دسترسی دوربین دادید، در شرایط خاص می‌تونن از دوربین گوشی شما استفاده کنن؛ روی نسخه‌های جدید اندروید و آیفون معمولاً وقتی دوربین فعال بشه، نشانگر سبز بالای صفحه گوشی نشون داده میشه و دسترسی مخفی کاملاً بی‌ردپا مثل قبل نیست.
+
+برای اپ‌هایی که بهشون اعتماد ندارید بخصوص اپ‌های ایرانی و خارجی نامعتبر، بهتره دسترسی دوربین رو ببندید:
+
+▪️وارد تنظیمات (Settings) بشید.
+▪️به بخش (Apps) برید.
+▪️برنامه موردنظر رو انتخاب کنید.
+▪️وارد (App permissions) و بعد(Camera) بشید.
+▪️گزینه (Don’t allow) رو انتخاب کنید.
+
+
+یه بار لیست دسترسی دوربین برنامه‌هاتون رو چک کنید؛ احتمالاً چندتاشون واقعاً هیچ نیازی به دوربین ندارن 👀
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10783
 
@@ -308,51 +365,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10764
-
-<div align="center"><video src="files/post_10764_tasiyanc_10764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10764_tasiyanc_10764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+ramzL0orpc5hMTBk
-https://t.me/+ramzL0orpc5hMTBk
-🅰g17
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10763
-
-<div align="center"><video src="files/post_10763_tasiyanc_10763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10763_tasiyanc_10763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران عالیه
-💖در پی درگیری لفظی میان راننده یک نیسان و یک موتورسوار، موتورسیکلت واژگون شد و نیسان نیز در آستانه واژگونی قرار گرفت
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10762
-
-<div align="center"><img src="files/post_10762_tasiyanc_10762.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖پشماتون فر بخوره / دختر خانم ۱۶ ساله که طی دوسال رابطه جنسی به HPV « زیگیل‌تناسلی » مبتلا شده
-
-۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
-
-⚡ @Tasiyanc
 </div>
 

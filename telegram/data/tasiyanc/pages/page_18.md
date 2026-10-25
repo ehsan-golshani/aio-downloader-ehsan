@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/03 13:37
+📅 آخرین بروزرسانی: 1405/08/03 17:42
 
 ---
+
+## tasiyanc — post 10637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 دلار 260.000 ؛ داره می‌ره سمت 300
+
+سوال اینجاست چطوری اعتراض کنیم کاور مشکی تحویل خانوادمون ندن؟؟؟؟؟؟؟؟؟
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10636
+
+<div align="center"><video src="files/post_10636_tasiyanc_10636.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10636_tasiyanc_10636.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چهره مثبتی که این بلاگر خارجی از ایران و ایرانی انجام داد ، متولیان فرهنگی با بودجه های کلان میلیاردی نتونستن انجام بدن!
+
+دم اون دوتا شیرزن با معرفت هموطن گرم❤️
+
++شاید پولمون بی ارزش ترین باشه شاید پاسپورتمون بی ارزش باشه ولی مرام معرفت با اختلاف اوله جهانه
+برو همه جا بگو این مردم با این همه سختی بدبختی فشار اقتصادی هنوزم معرفت و مهربونیشون زندست
+
+اینجا ایرانه داداش هرکی واردش بشه یه تیکه از قلبش واسه همیشه اینجا میمونه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 هفته سوم لیگ‌ ملت‌های اروپا 🇷🇸 صربستان 🆚 آلمان 🇩🇪 ⏰ ساعت ۲۲:۱۵ 🔴 بیش از ۵۰۰ نوع آپشن پیش‌بینی برای این بازی در‌‌ بتگرام 🔼 با بالاترین ضرایب پیش بینی 💵واریز و برداشت ارزی و ریالی❗️ 🔥۱۰۰٪ بونوس بر روی اولین واریز ❗️ 💸۱۰٪ بونوس روزانه واریز رمز ارز ❗️ 🛡تا…
+</div>
 
 ## tasiyanc — post 10634
 
@@ -291,44 +326,6 @@ https://t.me/+E4HUFuYfyUw1MjRk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🟠۵ ترفند ساده برای تشخیص تازگی مواد غذایی که هر کسی باید بدونه
 
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیدارهای مهم روز چهارشنبه ۸ مهر 💥بیشتر از ۴۰۰ آپشن پیش بینی برای هر بازی در بتگرام ✔️ شارژ حساب از طریق کارت بانکی،ووچر و ارزدیجیتال ✔️ ۱۰۰٪ بونوس رایگان بر روی اولین واریز ✔️ ۱۰٪ بونوس روزانه واریز رمز ارز ✔️ تا ۵ میلیون تومان بیمه شرط ویژه کاربران…
-</div>
-
-## tasiyanc — post 10614
-
-<div align="center"><img src="files/post_10614_tasiyanc_10614.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیدارهای مهم روز چهارشنبه ۸ مهر
-
-💥بیشتر از ۴۰۰ آپشن پیش بینی برای هر بازی در بتگرام
-
-✔️ شارژ حساب از طریق کارت بانکی،ووچر و ارزدیجیتال
-✔️ ۱۰۰٪ بونوس رایگان بر روی اولین واریز
-✔️ ۱۰٪ بونوس روزانه واریز رمز ارز
-✔️ تا ۵ میلیون تومان بیمه شرط ویژه کاربران جدید
-✔️ امکان فروش شرط های خود
-
-⚡️همین حالا ثبت‌ نام کنید و و از بونوس‌های ویژهٔ بتگرام بهره‌مند شوید.
-
-🔴http://betegram.com/affiliates?btag=3_l7
-</div>
-
-## tasiyanc — post 10613
-
-<div align="center"><video src="files/post_10613_tasiyanc_10613.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10613_tasiyanc_10613.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو از یه خانوم ایرانی توی وان ترکیه که حسابی توی پیج های ترکیه وایرال شده.
 
 @Tasiyanc
 </div>
