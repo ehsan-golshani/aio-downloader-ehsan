@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 51947
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdnwake.org
+Port: 443
+Secret: dd1a3e7d08f914aa2fd8ca999b65a0568a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51946
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: cdnwake.org
 Port: 443
 Secret: dd1a3e7d08f914aa2fd8ca999b65a0568a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51927
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Sorena.ir.igakwvwa.info
-Port: 7443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

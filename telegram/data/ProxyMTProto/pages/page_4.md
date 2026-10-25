@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52427
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52426
 
@@ -171,15 +180,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: naap1.cdnflow.store
 Port: 443
 Secret: 2adba7744ab0b1ca88b609561c0334a1
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir-ir.simpleelegance-us.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 51
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 51486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51485
 
@@ -172,15 +181,6 @@ Secret: eeebd1e4235d2f40f68b3c3610b128157a686f66662e7275
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51466
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nuxt.cdnwave.org
-Port: 443
-Secret: ddc9537655cdb0655d3ea08cc240c8f641
 @ProxyMTProto
 </div>
 

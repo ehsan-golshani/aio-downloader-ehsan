@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 50645
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: telegram.vechnostnet.study
+Port: 443
+Secret: dda8736bb4a03afabc3ebf6b8565400dfc
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50644
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: api2.kvakzon.top
 Port: 443
 Secret: eef6cce71eb4d775d3d908fef1301395b5617069322e6b76616b7a6f6e2e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50625
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

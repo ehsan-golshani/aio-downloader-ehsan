@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: shampoo.mikhay.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52106
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: cdnbarrel.org
 Port: 443
 Secret: ddd53127c4392815612a47803b9620ee40
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52087
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

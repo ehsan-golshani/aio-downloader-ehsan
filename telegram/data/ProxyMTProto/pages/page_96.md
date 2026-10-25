@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 50584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef23617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50583
 
@@ -172,15 +181,6 @@ Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
 Server: Empire-persia.iran.hey-gardash.info.
 Port: 88
 Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50564
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mproxy.vechnostnet.study
-Port: 443
-Secret: dd667e3e75e43a37365faca2d6e8381c00
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 64
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 51225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gov.grasic.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51224
 
@@ -172,15 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: s5.assetflux.org
 Port: 443
 Secret: ee2c46ee89b4f2c79c1d8325d13091e580706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51205
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sahel.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

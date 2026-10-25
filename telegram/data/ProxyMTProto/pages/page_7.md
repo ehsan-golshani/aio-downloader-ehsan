@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdnwave.org
+Port: 443
+Secret: dd65373b054948c84eb4a74630d4a79b22
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52366
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: male21.mosswren.vip
 Port: 443
 Secret: eeb8e5365580b9ad3c2ee355dfcbc245e56d616c6532312e6d6f73737772656e2e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

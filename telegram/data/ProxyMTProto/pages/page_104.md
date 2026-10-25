@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 104
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 50421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.rknsosi.shop
+Port: 443
+Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50420
 
@@ -172,15 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e69626973636f7474692e79656b74616e65742e63
 Server: t.meow-network.com
 Port: 443
 Secret: ee5622e11fff3e49bcc85280197a6106b5742e6d656f772d6e6574776f726b2e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.205.41
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

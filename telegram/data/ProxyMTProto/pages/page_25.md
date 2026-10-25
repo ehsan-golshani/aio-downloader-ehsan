@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52007
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: go.topproxt.asia
+Port: 443
+Secret: dd535832419a84f29b6e2c00e20687f9d9
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52006
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: mobile.mishutkin.click
 Port: 443
 Secret: eed052c02f3e13fa55568670fa5df149086d6f62696c652e6d69736875746b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51987
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: usb.neo-duo.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

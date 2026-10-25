@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir.simpleelegance-us.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52406
 
@@ -172,15 +181,6 @@ Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
 Server: 178.105.6.160
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: akenai.tg
-Port: 853
-Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
 @ProxyMTProto
 </div>
 

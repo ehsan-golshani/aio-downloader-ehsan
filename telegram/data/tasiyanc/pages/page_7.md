@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/03 23:46
+📅 آخرین بروزرسانی: 1405/08/04 02:13
 
 ---
+
+## tasiyanc — post 10876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشمی براتون نمی‌مونه بخونید / همسرش را به ۱۴ تکه تقسیم کرد؛ خانواده مقتول هم رضایت دادند!
+
+•مردی که همسرش را به اتهام خیانت به قتل رسانده و جسدش را تکه‌تکه کرده و داخل چمدان گذاشته بود، چند روز بعد خودش را در تهران به پلیس معرفی کرد.
+
+•اما شوکه‌کننده‌ترین بخش ماجرا، واکنش خانواده مقتول بود!
+قاتل پیش از جنایت، مدارکی از خیانت‌های همسرش جمع‌آوری کرده و به خانواده او داده بود. خانواده هم بارها به دخترشان تذکر داده بودند.
+اما وقتی پلیس خبر قتل دخترشان را به آن‌ها داد، همون لحظه اعلام رضایت کردند!
+حالا قاتل به‌دلیل جنبه عمومی جرم در زندان است و طبق روایت منتشرشده، احتمال آزادی او مطرح شده است.
+« منبع : وحید ناصری بازپرس دادسرای جنایی تهران »
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10875
+
+<div align="center"><video src="files/post_10875_tasiyanc_10875.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10875_tasiyanc_10875.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵خودروی پرنده تسلا بالاخره رونمایی شد!
+
+​ایلان ماسک از نسل جدید Tesla Roadster پرده‌برداری کرد؛ خودرویی با تکنولوژی اسپیس‌ایکس که در رویداد رونمایی رسماً پرواز کرد و از روی چند ماشین گذشت!
+
+​💖 خلاصه مشخصات:
+💖 شتاب ۰ تا ۹۶: زیر ۱ ثانیه
+💖 فناوری: پیکره و پیشران‌های موشکی اسپیس‌ایکس
+💖زمان عرضه: سال ۲۰۲۸
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
+
+## tasiyanc — post 10873
+
+<div align="center"><img src="files/post_10873_tasiyanc_10873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
+
+🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
+
+🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
+
+🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
+⏰ ۱ تا ۱۵ اکتبر
+🏆 جایزه برای 0️⃣5️⃣ نفر برتر
+👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
+
+🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
+
+🏢 ورود به سایت 👇
+⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+✈️ کانال رسمی ما در تلگرام 👇🅰24
+⭐️ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10871
 
@@ -255,50 +322,5 @@ https://t.me/+EhV1Lz5aPVVlNWI0
 https://t.me/+EhV1Lz5aPVVlNWI0
 
 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g23
-</div>
-
-## tasiyanc — post 10855
-
-<div align="center"><video src="files/post_10855_tasiyanc_10855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10855_tasiyanc_10855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده / دیروز توی مشهد مَردی به مناسبت روز دختر، لندکروزِ 70 میلیارد تومنی رو برده بود جلوی یه مدرسه دخترونه تا اونا هرچیزی را که دلشون می‌خواد با ماژیک روی ماشین بِکشن...
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10854
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برد دیناموزاگرب Odd:1.98 @Aron_tip
-</div>
-
-## tasiyanc — post 10853
-
-<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برد دیناموزاگرب
-Odd:1.98
-@Aron_tip
-</div>
-
-## tasiyanc — post 10852
-
-<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز 15 October، روزِ آدمای بد اخلاقه.
-
-
-+این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
-
-
-⚡ @Tasiyanc
 </div>
 

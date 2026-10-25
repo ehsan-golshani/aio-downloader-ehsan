@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 51767
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51766
 
@@ -172,15 +181,6 @@ Secret: ee43b48df152c2246a45ec2f88ea52877264726976652e676f6f676c652e636f6d
 Server: ir.radio-zvez.info
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51747
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: akenai.tg
-Port: 853
-Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
 @ProxyMTProto
 </div>
 

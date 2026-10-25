@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 51025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: live.lovely.lat
+Port: 443
+Secret: eeaadd88aa9facd454936d0c42dc128e776c6976652e6c6f76656c792e6c6174
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51024
 
@@ -172,15 +181,6 @@ Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
 Server: pesar.nanaz.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 13443
-Secret: eee06596f5753c0dc9b56fe4864a4665e57777772e636c6f7564666c6172652e636f6d
 @ProxyMTProto
 </div>
 

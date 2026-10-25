@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52347
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52346
 
@@ -172,15 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: redflag.yazaebalsyadelatproxy.vip
 Port: 443
 Secret: eeae5ab45be1bccbba85eec21085b2fd20726564666c61672e79617a616562616c73796164656c617470726f78792e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dded74276eabb934874721ad7a5c9e7c94
 @ProxyMTProto
 </div>
 

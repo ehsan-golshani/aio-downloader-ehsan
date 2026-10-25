@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 107
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 50361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50360
 
@@ -172,15 +181,6 @@ Secret: 7t3_BeZaaaan_RoooooSH_93ZWIuYmFsZS5haQ==
 Server: proxtstar.live
 Port: 443
 Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50341
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: irancell-mci-rightell-adsl.nowhearthis.co.uk.
-Port: 443
-Secret: eeddffffffc5a1168b2ff3eba31cbfffff7765622e62616c652e6169
 @ProxyMTProto
 </div>
 

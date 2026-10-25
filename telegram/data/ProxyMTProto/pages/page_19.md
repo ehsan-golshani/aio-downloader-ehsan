@@ -1,8 +1,17 @@
 # آرشیو کانال ProxyMTProto - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/03 23:44
+📅 آخرین بروزرسانی: 1405/08/04 02:11
 
 ---
+
+## ProxyMTProto — post 52127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nfc.neo-duo.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52126
 
@@ -172,15 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: turbo.mtproxy.pw
 Port: 443
 Secret: ee776e278c3085b3f903843d06420709516c69746536342e73697465
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: shampoo.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 
