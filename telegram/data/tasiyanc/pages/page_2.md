@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 10975
+
+<div align="center"><video src="files/post_10975_tasiyanc_10975.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10975_tasiyanc_10975.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده رقص دخترها و پسرها تو نمایشگاه بین المللی فیتنس تهران
+
+ویدئویی از رقص دخترها و پسرها کنار هم در نمایشگاه بین‌المللی فیتنس تهران منتشر شده که حسابی حاشیه‌ساز شده و اعتراض شدید حامیان حکومت رو به دنبال داشته!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10974
 
@@ -266,33 +280,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
-</div>
-
-## tasiyanc — post 10955
-
-<div align="center"><img src="files/post_10955_tasiyanc_10955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ چادر ملو اردکان - استقلال
-🌎 ساعت ۱۶:۰۰
-⚽️ الومینیوم اراک - ذوب اهن
-🌎 ساعت ۲۰:۱۵
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r1
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
 </div>
 

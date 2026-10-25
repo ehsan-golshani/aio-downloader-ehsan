@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 10851
+
+<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10850
 
@@ -256,11 +269,5 @@ https://t.me/+EADakrBU74wyOGVk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
 </div>
 

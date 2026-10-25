@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 10660
+
+<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10659
 
@@ -278,20 +288,6 @@ https://AmitisBet.com/
 باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
 پسر بودنم سخته
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10639
-
-<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
-
-تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
 
 ⚡ @Tasiyanc
 </div>

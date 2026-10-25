@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 10788
+
+<div align="center"><video src="files/post_10788_tasiyanc_10788.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10788_tasiyanc_10788.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 فیلم وایرال شده از جشن یه خونواده برای دخترشون که برای اولین بار پریـود شده :
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10787
 
@@ -349,20 +361,6 @@ https://raw.githubuser…s/main/v2ray_links.txt
 🇴🇲 عمان : 800 دلار
 🇸🇦 عربستان : 1000 دلار
 🇦🇪 امارات : 1600 دلار
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10766
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 امروز یکسری تراکت تبلیغاتی توی سطح شهر تهران پخش کردن که روش نوشته:
-خرید کالای دیجیتال از تکنولایف، برای دریافت کد تخفیف، کیوآر کد رو اسکن کنید.
-حالا وقتی شما اون کیوآر کد رو اسکن میکنی، عکس مجتبی خامنه‌ای رو همراه با متن زیر میاره بالا:
-پایان شبه سیه،سفید است.
-ملت ایران می‌دانند پایان رژیم جمهوری اسلامی نزدیک است و در نهایت موجب سقوط خواهد شد.
-- فعلا معلوم نیست این کار چه گروهیه ...
-
 
 ⚡ @Tasiyanc
 </div>

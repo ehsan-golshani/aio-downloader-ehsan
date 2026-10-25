@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 10746
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد مساوی استقلال 💠ضریب 1.43 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
+</div>
 
 ## tasiyanc — post 10745
 
@@ -284,20 +290,5 @@ https://t.me/+5cdraE3AwpgyOTlk
 💖ادرس عضویت بزرگ ترین گروه شرط بندی ایران:
 https://t.me/+KpqdIyXNfcMzOWFk
 https://t.me/+KpqdIyXNfcMzOWFk
-</div>
-
-## tasiyanc — post 10726
-
-<div align="center"><video src="files/post_10726_tasiyanc_10726.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10726_tasiyanc_10726.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠واقعا آرژانتینی ها تو یه سیاره دیگه زندگی می کنن
-وضعیت خیابان های بوینس آیرس !
-
-صحنه‌های دیوانه‌وار از حال و هوای آرژانتین 🇦🇷
-در آستانه مسابقه خداحافظی لیونل مسی؛ کل کشور امروز به خیابان‌ها آمده است شما مقایسه کنید با کشور پرتغال و بازیکناشون که حسابی به رونالدو بی لطفی کردن
-⚡ @Tasiyanc
 </div>
 

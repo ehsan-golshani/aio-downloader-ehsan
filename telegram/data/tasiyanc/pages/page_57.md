@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/08/03 21:21
+📅 آخرین بروزرسانی: 1405/08/03 23:46
 
 ---
+
+## tasiyanc — post 9635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 توییت عجیب علی کریمی - از هیچ شخص یا حزب سیاسی حمایت نمیکنم 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9634
 
@@ -325,18 +331,6 @@ til.ac/0L4vyJf
 
 + حتما مراقب باشید این روزا ممکنه سر همه بیاد
 
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9613
-
-<div align="center"><img src="files/post_9613_tasiyanc_9613.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨استوری فشاری هادی چوپون بعد خط خوردنش از مسابقات مستر المپیا به دلایل سیاسی
-
-+ قهرمان ایران مسعود ذات‌پرور هست نه تو
 
 🩸 @Tasiyanc
 </div>
