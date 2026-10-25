@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/03 01:35
+📅 آخرین بروزرسانی: 1405/08/03 08:34
 
 ---
+
+## tasiyanc — post 10861
+
+<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
+
+مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
 
 ## tasiyanc — post 10859
 
@@ -234,38 +255,5 @@ https://t.me/+EADakrBU74wyOGVk
 تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10841
-
-<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جاده مرگ ایران بشناسید ؛
-اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
-
-جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 26 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-
-با وارد کردن این فایل داخل نپستر 26 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 💖
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
 </div>
 

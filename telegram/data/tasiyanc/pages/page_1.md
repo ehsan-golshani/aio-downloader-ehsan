@@ -1,12 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/03 01:35
+📅 آخرین بروزرسانی: 1405/08/03 08:34
 
 ---
 
-## tasiyanc — post 10983
+## tasiyanc — post 10985
 
-<div align="center"><a href="files/post_10983_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن! آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر…
+</div>
+
+## tasiyanc — post 10984
+
+<div align="center"><img src="files/post_10984_tasiyanc_10984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن!
+
+آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه
+
+این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر از ۷۲ کشور جهان در اون شرکت داشتن.
+«چندین نماینده دیگه از ایران هم موفق به کسب جایزه و دیپلم افتخار شدن»
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10983
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
@@ -296,26 +316,5 @@ VPN FREE
 تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10965
-
-<div align="center"><img src="files/post_10965_tasiyanc_10965.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تفاوت پشم ریزون گرافیک GTA 5 و GTA 6 رو ببینید
-
-از گرافیک و جزئیات پوست و لباس گرفته تا نورپردازی و محیط بازی، راکستار حسابی سطح رو برده بالا!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10964
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
-
-⚡ @Tasiyanc
 </div>
 

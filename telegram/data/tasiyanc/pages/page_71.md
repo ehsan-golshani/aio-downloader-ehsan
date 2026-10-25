@@ -1,8 +1,12 @@
 # آرشیو کانال tasiyanc - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/08/03 01:35
+📅 آخرین بروزرسانی: 1405/08/03 08:34
 
 ---
+
+## tasiyanc — post 9276
+
+## tasiyanc — post 9275
 
 ## tasiyanc — post 9274
 
@@ -163,17 +167,5 @@ r23
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 این همه جوان به خاطر شما رفتن کشته شدن خایه نداشتید بگید جاوید شاه؟
-</div>
-
-## tasiyanc — post 9253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9252
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ابد و یک روز؟؟؟؟
 </div>
 
