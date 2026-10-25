@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10724
+
+<div align="center"><video src="files/post_10724_tasiyanc_10724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10724_tasiyanc_10724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 سوزناکتر از این ویدیو مگه هست؟؛
+
+مادر جاویدنام نازنین زهرا صالحی، دختر ۱۳ ساله‌ای که در اعتراضات دی ماه کشته شد،
+رفته پرونده بچه‌اش رو گرفته، همه نمرات دخترش رو ۷-۸ دادن تا مادرش زجر بکشه !
+مامانش اشک میریزه و میگه دخترم شاگرد ممتاز بود، حداقل براش غیبت میزدین...
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10723
 
@@ -299,17 +315,5 @@ https://t.me/+CHT8I544iFRiNzU0
 الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 8089
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تتر 190 - ریدید تو زندگی ما
+</div>
 
 ## tasiyanc — post 8088
 
@@ -210,14 +216,5 @@
 
 
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیک نیوز چقد زیاد شده 😐
-خبر هارو از اینجا دنبال کنین ، تبلیغ نیست چنل خودمونه
-📶⭕️@TasiyanProxy
-⭕️📶@TasiyanProxy
 </div>
 

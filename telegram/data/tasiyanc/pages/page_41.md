@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 41
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 شرط‌های پدر عروس () واسه داماد گذاشته : 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10043
 
@@ -292,11 +299,5 @@ til.ac/0L4vyJf
 رانندگان اسنپ قراره از ۱۲ شب (۱۷ شهریور) به علت کرایه پایین، کمسیون بالا، گرونی بنزین، گرونی روغن موتور یک روز اعتصاب کنند.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۶ کانفیگ پرمیوم سرعتی OpenVpn 📶 مناسب برای گیم - دانلود , Ai اینستاگرام یوتوب 👈 دریافت کانفیگ ها ➡️ لوکیشن : 🇩🇰🇪🇸🇫🇮🇮🇪 💋 @Tasiyanc
 </div>
 

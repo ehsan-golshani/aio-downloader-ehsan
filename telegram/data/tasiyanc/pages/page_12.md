@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
 
 ## tasiyanc — post 10764
 
@@ -249,22 +255,5 @@ https://t.me/+wLFODtl1yCEwYzFk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💠برد مساوی استقلال 💠ضریب 1.43 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10745
-
-<div align="center"><img src="files/post_10745_tasiyanc_10745.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠برد مساوی استقلال
-
-💠ضریب 1.43
-
-⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
-
-💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16
-
-🆔@Aron_tip 🆔 @Aron_tip
-🆔@Aron_tip 🆔 @Aron_tip
 </div>
 

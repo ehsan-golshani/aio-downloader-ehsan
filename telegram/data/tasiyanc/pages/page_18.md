@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ حجم نامحدود نپسترنت🌟
+
+تست شده با تمام نت‌ها 🛜🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید ❤️
+دانلود برای آیفون  📱
+
+مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 10637
 
@@ -315,18 +332,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 
 
 🌐 https://wingobingo.tv/fa/wingo/14640
-</div>
-
-## tasiyanc — post 10616
-
-<div align="center"><video src="files/post_10616_tasiyanc_10616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10616_tasiyanc_10616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠۵ ترفند ساده برای تشخیص تازگی مواد غذایی که هر کسی باید بدونه
-
-
-@Tasiyanc
 </div>
 

@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10830
+
+<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
+
+https://t.me/+zhWRXOtmyEE5ZjVk
+https://t.me/+zhWRXOtmyEE5ZjVk
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
 
 ## tasiyanc — post 10829
 
@@ -250,20 +266,6 @@ https://t.me/+A6R70wBCKApkYTRk
 سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
 
 دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10810
-
-<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
-
 
 
 ⚡ @Tasiyanc

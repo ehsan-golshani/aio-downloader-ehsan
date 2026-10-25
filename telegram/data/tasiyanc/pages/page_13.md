@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/03 17:42
+📅 آخرین بروزرسانی: 1405/08/03 21:21
 
 ---
+
+## tasiyanc — post 10745
+
+<div align="center"><img src="files/post_10745_tasiyanc_10745.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد مساوی استقلال
+
+💠ضریب 1.43
+
+⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
+
+💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16
+
+🆔@Aron_tip 🆔 @Aron_tip
+🆔@Aron_tip 🆔 @Aron_tip
+</div>
 
 ## tasiyanc — post 10744
 
@@ -281,22 +298,6 @@ https://t.me/+KpqdIyXNfcMzOWFk
 
 صحنه‌های دیوانه‌وار از حال و هوای آرژانتین 🇦🇷
 در آستانه مسابقه خداحافظی لیونل مسی؛ کل کشور امروز به خیابان‌ها آمده است شما مقایسه کنید با کشور پرتغال و بازیکناشون که حسابی به رونالدو بی لطفی کردن
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10724
-
-<div align="center"><video src="files/post_10724_tasiyanc_10724.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10724_tasiyanc_10724.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 سوزناکتر از این ویدیو مگه هست؟؛
-
-مادر جاویدنام نازنین زهرا صالحی، دختر ۱۳ ساله‌ای که در اعتراضات دی ماه کشته شد،
-رفته پرونده بچه‌اش رو گرفته، همه نمرات دخترش رو ۷-۸ دادن تا مادرش زجر بکشه !
-مامانش اشک میریزه و میگه دخترم شاگرد ممتاز بود، حداقل براش غیبت میزدین...
-
 ⚡ @Tasiyanc
 </div>
 
