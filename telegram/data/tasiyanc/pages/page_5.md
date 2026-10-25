@@ -1,8 +1,90 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/03 08:34
+📅 آخرین بروزرسانی: 1405/08/03 13:37
 
 ---
+
+## tasiyanc — post 10908
+
+<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
+</div>
+
+## tasiyanc — post 10907
+
+<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤
+
+از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
+
+https://t.me/+HsrP_lU8O081ZWFk
+https://t.me/+HsrP_lU8O081ZWFk
+
+
+💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
+لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
+چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
+💰 🅰g27
+</div>
+
+## tasiyanc — post 10906
+
+<div align="center"><video src="files/post_10906_tasiyanc_10906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10906_tasiyanc_10906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اتفاقی عجیب و تلخ در کلیسایی در اکوادور 
+🇪🇨
+
+یک کشیش در حال اجرای مراسم مذهبی بود که ناگهان صلیبی از دیوار جدا شد و روی سرش افتاد؛ حادثه‌ای که طبق گزارش‌ها، به مرگ او در همان لحظه منجر شد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10905
+
+<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرانسه 
+🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10904
+
+<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10903
 
@@ -221,78 +303,6 @@
 
 🔗 https://tabdeal.org/
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10887
-
-<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
-</div>
-
-## tasiyanc — post 10885
-
-<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢
-🦁به جمع کاربران لوکس ما بپیوندید🦁
-❤️‍🔥بری‌بت❤️‍🔥
-
-😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
-🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
-💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
-🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
-
-💻 ورود به سایت 👇
-⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-🦁 کانال تلگرام: 🅰25
-⚫️https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10884
-
-<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
-
-• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
-•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
-•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10883
-
-<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
-
-داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
-کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
 
 ⚡ @Tasiyanc
 </div>
