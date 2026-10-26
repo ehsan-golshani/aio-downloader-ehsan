@@ -1,8 +1,99 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/04 09:12
+📅 آخرین بروزرسانی: 1405/08/04 15:11
 
 ---
+
+## tasiyanc — post 10986
+
+<div align="center"><img src="files/post_10986_tasiyanc_10986.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوووق حسااااس رئال مادرید و بارسلونا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن! آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر…
+</div>
+
+## tasiyanc — post 10984
+
+<div align="center"><img src="files/post_10984_tasiyanc_10984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن!
+
+آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه
+
+این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر از ۷۲ کشور جهان در اون شرکت داشتن.
+«چندین نماینده دیگه از ایران هم موفق به کسب جایزه و دیپلم افتخار شدن»
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 10982
+
+<div align="center"><img src="files/post_10982_tasiyanc_10982.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔣از اولین شارژ تا هر واریز بعدی،
+انواع بونوس‌ها و هدایای ورود🔣
+
+🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
+
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵 🅰2
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://www.lenz89bet.online
+</div>
+
+## tasiyanc — post 10981
+
+<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
+
+وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10980
 
@@ -234,67 +325,5 @@ LINK:1XBET.COM
 برای دریافت سرور های تست اسیایی  میتونید از ربات زیر : 🅰1
 سرور کشور ترکیه یا ارمنستان بگیرید👇
 VPN FREE
-</div>
-
-## tasiyanc — post 10966
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨سفیر آمریکا در ترکیه احتمال حمله به ایران در شنبه یا یکشنبه رو تأیید کرد!
-
-تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10965
-
-<div align="center"><img src="files/post_10965_tasiyanc_10965.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تفاوت پشم ریزون گرافیک GTA 5 و GTA 6 رو ببینید
-
-از گرافیک و جزئیات پوست و لباس گرفته تا نورپردازی و محیط بازی، راکستار حسابی سطح رو برده بالا!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10964
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10963
-
-<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
-
-مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10962
-
-<div align="center"><img src="files/post_10962_tasiyanc_10962.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده!
-
-این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10961
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+J5uvqzBai5A2MmI0 https://t.me/+J5uvqzBai5A2MmI0 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
 </div>
 

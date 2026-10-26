@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/04 09:12
+📅 آخرین بروزرسانی: 1405/08/04 15:11
 
 ---
+
+## tasiyanc — post 11006
+
+<div align="center"><video src="files/post_11006_tasiyanc_11006.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11006_tasiyanc_11006.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری / اعتراضات گسترده در صربستان؛ دولت الکساندر وویچ بخاطر فساد و بی‌عدالتی سقوط کرد 
+🇷🇸
+
+اعتراضات دانشجویی علیه فساد و بی‌عدالتی در صربستان، به تجمعات گسترده مردمی تبدیل شد؛ حرکتی که با حضور نسل Z شروع شد و شهروندان بیشتری رو به خیابون‌ها کشوند.
+ویدیوهای منتشرشده از این اعتراضات، تصاویری از رقص و شادی مردم و حتی ثبت لحظات عاشقانه زوج‌ها رو نشون می‌ده؛ تصاویری متفاوت از چیزی که معمولاً از اعتراضات خیابونی می‌بینیم.
+در این اعتراضات حتی یه گلوله به سمت مردم شلیک و کسی کشته نشد
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11005
+
+<div align="center"><img src="files/post_11005_tasiyanc_11005.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اگه یه کشور دیگه به دنیا می‌اومدی، زندگیت چه شکلی می‌شد؟
+با این سایت می‌تونی یه زندگی فرضی توی کشور دیگه رو تجربه کنی و ببینی چقدر ممکن بود سرنوشتت متفاوت باشه! امتحانش کن، ببین توی یه دنیای دیگه چه زندگی‌ای داشتی!
+
+⛓ https://1in8b.life/en/
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11004
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد! ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است. 🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری…
+</div>
+
+## tasiyanc — post 11003
+
+<div align="center"><video src="files/post_11003_tasiyanc_11003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11003_tasiyanc_11003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد!
+
+ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است.
+
+🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری قرار گرفت.
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51 @NBA2kBet
+</div>
+
+## tasiyanc — post 11001
+
+<div align="center"><img src="files/post_11001_tasiyanc_11001.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51
+
+@NBA2kBet
+</div>
 
 ## tasiyanc — post 11000
 
@@ -219,96 +290,5 @@
 
 🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. 🅰r3
 ✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10986
-
-<div align="center"><img src="files/post_10986_tasiyanc_10986.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوووق حسااااس رئال مادرید و بارسلونا رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن! آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر…
-</div>
-
-## tasiyanc — post 10984
-
-<div align="center"><img src="files/post_10984_tasiyanc_10984.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن!
-
-آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه
-
-این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر از ۷۲ کشور جهان در اون شرکت داشتن.
-«چندین نماینده دیگه از ایران هم موفق به کسب جایزه و دیپلم افتخار شدن»
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 10982
-
-<div align="center"><img src="files/post_10982_tasiyanc_10982.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔣از اولین شارژ تا هر واریز بعدی،
-انواع بونوس‌ها و هدایای ورود🔣
-
-🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
-
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵 🅰2
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 10981
-
-<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
-
-وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
-
-
-💋 @Tasiyanc
 </div>
 

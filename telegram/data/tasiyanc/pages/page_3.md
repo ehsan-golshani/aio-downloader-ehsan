@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/04 09:12
+📅 آخرین بروزرسانی: 1405/08/04 15:11
 
 ---
+
+## tasiyanc — post 10966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨سفیر آمریکا در ترکیه احتمال حمله به ایران در شنبه یا یکشنبه رو تأیید کرد!
+
+تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10965
+
+<div align="center"><img src="files/post_10965_tasiyanc_10965.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تفاوت پشم ریزون گرافیک GTA 5 و GTA 6 رو ببینید
+
+از گرافیک و جزئیات پوست و لباس گرفته تا نورپردازی و محیط بازی، راکستار حسابی سطح رو برده بالا!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10964
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10963
+
+<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
+
+مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10962
+
+<div align="center"><img src="files/post_10962_tasiyanc_10962.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده!
+
+این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10961
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+J5uvqzBai5A2MmI0 https://t.me/+J5uvqzBai5A2MmI0 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
+</div>
 
 ## tasiyanc — post 10960
 
@@ -217,96 +279,5 @@ G30🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10946
-
-<div align="center"><video src="files/post_10946_tasiyanc_10946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10946_tasiyanc_10946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 شرکت چینی Unitree از ربات بادیگارد خود با قابلیت اجرای حرکات رزمی و قدرت ضربات بالا رونمایی کرد.
-
-طبق ویدئوی منتشرشده، این ربات قادر است ضربات قدرتمندی وارد کند که به بدنه خودرو آسیب می‌زند.
-
-نکته قابل‌توجه، تأکید شرکت سازنده بر استفاده «دوستانه و ایمن» از این ربات است؛ هشداری که با توجه به توانایی‌های فیزیکی آن، اهمیت ویژه‌ای دارد
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10945
-
-<div align="center"><img src="files/post_10945_tasiyanc_10945.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مهدی خراتیان کارشناس صداوسیما:
-
-«سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
-
-یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پرزیدنت دونالد ترامپ:
-
-مذاکره با ایران تقریبا برام تموم شدست. به زودی اتفاقی در ایران رقم میزنیم. خیلیا فکر میکنن این اتفاق بعد از انتخابات میفته ولی خواهیم دید چه خواهد شد.
-
-قطعی اینترنت از رگ گردن نزدیک‌تره!!!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10942
-
-<div align="center"><video src="files/post_10942_tasiyanc_10942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10942_tasiyanc_10942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امـروز ۳۰ مهر، روز پـسـره‍
-
-شما ثابت کردید که مردانگی به سن‌ُ سال نیست روزتون مبارک پسرای خوش‌قلب ایران‌زمین ...
-
-بفرست واسه پسر خوشگلت 🩵
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10941
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ تراکتور - صنعت نفت آبادان 🌎 ساعت ۱۷:۰۰ ⚽️ یوونتوس - رن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
-</div>
-
-## tasiyanc — post 10940
-
-<div align="center"><img src="files/post_10940_tasiyanc_10940.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ تراکتور - صنعت نفت آبادان
-🌎 ساعت ۱۷:۰۰
-⚽️ یوونتوس - رن
-🌎 ساعت ۲۰:۱۵
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r30
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
 </div>
 
