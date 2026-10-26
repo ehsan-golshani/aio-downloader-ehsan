@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 10809
+
+<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
+
+پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10808
+
+<div align="center"><video src="files/post_10808_tasiyanc_10808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10808_tasiyanc_10808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده یه راننده تاکسی 70 ساله و معلم بازنشسته دو تا توریست لهستانی سوار ماشینش میشن 70 هزار یورو معادل 21 میلیارد تومان تو ماشینش جا میزارن ، راننده تاکسی تمام پول توریست هارو می‌بره سفارت و تحویلشون میده
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10806
 
@@ -236,62 +273,5 @@ https://t.me/+6L9plEThEMk5YTJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18 https://t.me/+uA90XBGKpBRmM2Q0 https://t.me/+uA90XBGKpBRmM2Q0 🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
-</div>
-
-## tasiyanc — post 10786
-
-<div align="center"><img src="files/post_10786_tasiyanc_10786.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊دو دوتا چارتا نکن ؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇🅰g18
-
-https://t.me/+uA90XBGKpBRmM2Q0
-https://t.me/+uA90XBGKpBRmM2Q0
-
-🎯نمونه سود 3 ملیونی ما از میکس لیگ برتر💵
-</div>
-
-## tasiyanc — post 10785
-
-<div align="center"><video src="files/post_10785_tasiyanc_10785.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10785_tasiyanc_10785.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖تو فیلم جدید جان سینا، گلشیفته فراهانی حضور کوتاهی داشت و از بدو ورود خودش و جان سینا لب گرفتن و همو خوردن ...
-
-📺اسم فیلم: Matchbox
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10784
-
-<div align="center"><video src="files/post_10784_tasiyanc_10784.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10784_tasiyanc_10784.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖 آیا میدونید؟ بعضی اپ‌هایی که بهشون دسترسی دوربین دادید، در شرایط خاص می‌تونن از دوربین گوشی شما استفاده کنن؛ روی نسخه‌های جدید اندروید و آیفون معمولاً وقتی دوربین فعال بشه، نشانگر سبز بالای صفحه گوشی نشون داده میشه و دسترسی مخفی کاملاً بی‌ردپا مثل قبل نیست.
-
-برای اپ‌هایی که بهشون اعتماد ندارید بخصوص اپ‌های ایرانی و خارجی نامعتبر، بهتره دسترسی دوربین رو ببندید:
-
-▪️وارد تنظیمات (Settings) بشید.
-▪️به بخش (Apps) برید.
-▪️برنامه موردنظر رو انتخاب کنید.
-▪️وارد (App permissions) و بعد(Camera) بشید.
-▪️گزینه (Don’t allow) رو انتخاب کنید.
-
-
-یه بار لیست دسترسی دوربین برنامه‌هاتون رو چک کنید؛ احتمالاً چندتاشون واقعاً هیچ نیازی به دوربین ندارن 👀
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 11013
+
+<div align="center"><a href="files/post_11013_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11012
+
+<div align="center"><img src="files/post_11012_tasiyanc_11012.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎆 تورنومنت کازینو
+
+💥 فرصت ویژه برای علاقه‌مندان به بازی‌های کازینویی 🆒
+
+📈 رقابت کن، امتیاز جمع کن و سهمت را از جوایز میلیادری بگیر 💰
+
+💯 بونوس🔤0️⃣0️⃣1️⃣ کازینو
+
+🔣0️⃣3️⃣ کش بک هفتگی
+
+📇 امتیاز وفاداری همراه با انواع هدایای نقدی روزانه مخصوص کاربران فعال لنزبت
+
+💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت🅰4
+
+🔤🔤🔤🔤🔤🔤🔤
+
+📱 @lenzbet_official
+
+📱 https://www.lenz7bet.online
+</div>
+
+## tasiyanc — post 11011
+
+<div align="center"><img src="files/post_11011_tasiyanc_11011.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پدری که یک‌تنه یک شبکه قاچاق انسان رو متلاشی کرد تا دختر ۱۴ سالشو نجات بده!
+
+یک ماه کابوس، یک دختر ربوده‌شده و پدری که حاضر نبود تسلیم بشه… «فرانک جروسی» اهل نیویورک برای پیدا کردن دخترش به دل خطر زد و به یک کشتی یورش برد؛ اقدامی که به متلاشی شدن یک شبکه قاچاق انسان هم کمک کرد...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11010
 
@@ -34,8 +85,6 @@
 </div>
 
 ## tasiyanc — post 11008
-
-<div align="center"><a href="files/post_11008_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن اندروید Wepari 🥇
@@ -239,79 +288,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10993
-
-<div align="center"><img src="files/post_10993_tasiyanc_10993.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه ادعاهای تازه درباره مشاهده موجودات گرگ‌مانند در گزارش‌های مرتبط با یوفوها و اسناد پنتاگون!
-
-طبق گزارش دیلی‌میل، صحبت از موجوداتی شبیه «اسکین‌واکر» با قد حدود ۱۸۰ سانتی‌متر، موهای سیاه و خاکستری و ظاهری شبیه گرگ یا سگ به میونه که گفته می‌شه بعضی شاهدان اونا رو دیده‌ان!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10992
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 
-🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد چلسی 
-⚽️
-+برد دورتموند 
-⚽️
-
-برنده 2.500.000 شوید 
-🇪🇺
-
-
-✍️ ورود به کانال اطلاع رسانی وی پاری 
-✈️
-</div>
-
-## tasiyanc — post 10991
-
-<div align="center"><video src="files/post_10991_tasiyanc_10991.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10991_tasiyanc_10991.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نبرد بزرگ بارسلونا
-🏴 و رئال مادرید
-🏴 رو با آپشن های تخصصی در wepari پیشبینی کنید! 
-🔥
-
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید
-🎁
-
-
-🔥شنبه بونوس 100%
-
-🔥 دوشنبه بونوس 50%
-
-
-🤖دانلود اپلیکیشن بدون فیلتر 
-🚀
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
-💸🅰g3
 </div>
 

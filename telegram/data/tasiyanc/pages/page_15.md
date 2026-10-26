@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 10723
+
+<div align="center"><video src="files/post_10723_tasiyanc_10723.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10723_tasiyanc_10723.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴بافت عجیب کشور چین
+
+روی یه شهرک یه شهرک دیگه هم ساخته شده. شبیه فیلم inception شده.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10722
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مار شکار کوچیک نمی‌زنه؛😨 فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵 https://t.me/+EObzAJI5HS5jOTk8 https://t.me/+EObzAJI5HS5jOTk8 💯حال کردم به همتون پول دراوردن رو یاد بدم من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
+</div>
+
+## tasiyanc — post 10721
+
+<div align="center"><img src="files/post_10721_tasiyanc_10721.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این مار شکار کوچیک نمی‌زنه؛😨
+فقط جیب سایتای شرط‌بندی رو می‌زنه، پولشو برمی‌داره و غیب می‌شه🐍💵
+
+
+https://t.me/+EObzAJI5HS5jOTk8
+https://t.me/+EObzAJI5HS5jOTk8
+
+💯حال کردم به همتون پول دراوردن رو یاد بدم
+من قرار نیست از تو پولی بگیرم و همه چیز رایگانه💸🅰g14
+</div>
 
 ## tasiyanc — post 10720
 
@@ -274,62 +311,5 @@ https://t.me/+CHT8I544iFRiNzU0
 💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
 
 🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10701
-
-<div align="center"><img src="files/post_10701_tasiyanc_10701.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-
-⬅️ برداشت‌های آنی و بدون معطلی
-
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r13
-
-✅ https://DerbyBet.com
-
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10700
-
-<div align="center"><video src="files/post_10700_tasiyanc_10700.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10700_tasiyanc_10700.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیشب یه سوسک رفته بود خونه یه خانم، اونم این شکلی رفته بود بالا صندلی و به گربه‌اش التماس میکرد که سوسک رو بکشه 😅
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10697
-
-<div align="center"><video src="files/post_10697_tasiyanc_10697.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10697_tasiyanc_10697.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
-
-
-⚡ @Tasiyanc
 </div>
 

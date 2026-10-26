@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 10932
+
+<div align="center"><video src="files/post_10932_tasiyanc_10932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10932_tasiyanc_10932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دختری که با هدف سرگرمی و کسب درآمد با مردهای مختلف از طریق برخی کانال های صیغه‌یابی اشنا میشد می‌رفت باهاشون سکس میکرد، پس از اطلاع از ابتلا به بیماری ایـــــدز ( HIV ) دچار مشکلات روانی شده و تو آسایشگاه روانی بستریه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10931
+
+<div align="center"><img src="files/post_10931_tasiyanc_10931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ایلان ماسک با این ادعای پشم‌ریزون دنیا رو تکون داد ❗️
+
+می‌گه تا ۶ الی ۱۲ ماه دیگه، قراره اولین ایمپلنت‌های بینایی نورالینک کاشته بشن؛ فناوری‌ای که شاید حتی به نابیناهای مادرزاد هم کمک کنه برای اولین بار دنیا رو ببینن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10930
+
+<div align="center"><video src="files/post_10930_tasiyanc_10930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10930_tasiyanc_10930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه نفر به چند پیرمرد ماچا می‌ده و ازشون می‌پرسه به نظرتون این چیه؛ جواب‌هاشون حسابی سوژه شده
+
+یه نفرم جای ماچا میکروفون رو میخواست بخوره
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10929
 
@@ -260,72 +299,5 @@
 فقط مونده معمای بابای بچه رو حل کنیم، انگار با یه پرونده جنایی طرفیم!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10911
-
-<div align="center"><video src="files/post_10911_tasiyanc_10911.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10911_tasiyanc_10911.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بازنشر سخنان محمدرضا شاه درباره تروریسم و هشدار به کشورهای اروپایی
-
-ویدیویی از محمدرضا شاه پهلوی، مربوط به حدود ۵۰ سال پیش، در فضای مجازی بازنشر شده که در آن درباره ضرورت مقابله با تروریسم و پیامدهای بی‌توجهی به آن صحبت می‌کند.
-او در این سخنان، از کشورهای اروپایی می‌خواهد تهدیدهای تروریستی را جدی بگیرند و نسبت به پیامدهای احتمالی عدم مقابله با آن هشدار می‌دهد.
-
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10910
-
-<div align="center"><video src="files/post_10910_tasiyanc_10910.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10910_tasiyanc_10910.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان 
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10909
-
-<div align="center"><video src="files/post_10909_tasiyanc_10909.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10909_tasiyanc_10909.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-
-🛒 ورود به سایت 
-👇🅰g27
-
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-
-🌐 کانال رسمی ما در تلگرام 
-👇
-
-⭐️ https://t.me/BerryBetOfficial
 </div>
 

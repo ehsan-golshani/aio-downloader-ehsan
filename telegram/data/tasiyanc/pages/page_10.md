@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 10829
+
+<div align="center"><video src="files/post_10829_tasiyanc_10829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10829_tasiyanc_10829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جدیدا هرکی میخواد وایرال شه دسـت به دامان فـوتــ‌فتـیش‌ها یا کون فـتیشا میشه؛ از پا ، رون سفید ، باسن برای دیدن شدن استفاده می‌کنه ، مثل این کلوچه فروشی رشتی که تونسته ویو میلیونی بگیره :
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10828
+
+<div align="center"><video src="files/post_10828_tasiyanc_10828.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10828_tasiyanc_10828.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پارت سوم / ویدیو های وایرال شده از حـال و هـوای ویـلاهای شـمـال در پاییـز
+
+📍خزرشـهر
+
+اگر اینا زندگی میکنن قطعا زندگی مارو می‌کنه .
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10826
 
@@ -225,42 +267,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10809
-
-<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
-
-پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10808
-
-<div align="center"><video src="files/post_10808_tasiyanc_10808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10808_tasiyanc_10808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه راننده تاکسی 70 ساله و معلم بازنشسته دو تا توریست لهستانی سوار ماشینش میشن 70 هزار یورو معادل 21 میلیارد تومان تو ماشینش جا میزارن ، راننده تاکسی تمام پول توریست هارو می‌بره سفارت و تحویلشون میده
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂 
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵 
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/04 21:31
+📅 آخرین بروزرسانی: 1405/08/05 01:40
 
 ---
+
+## tasiyanc — post 10973
+
+<div align="center"><img src="files/post_10973_tasiyanc_10973.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پیت‌بول (رپر معروف آمریکایی) اعتراف کرده که هنگام اجرای مشترکش با جنیفر لوپز در مراسم جوایز موسیقی آمریکا در سال ۲۰۱۱، واقعاً دچار نعوظ شده بوده! :))))
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10972
+
+<div align="center"><video src="files/post_10972_tasiyanc_10972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10972_tasiyanc_10972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨مراقب لینک‌های ناشناس و فایل‌های به‌ظاهر « عکس یادگاری» باشید !
+
+این روزا کلاهبرداری اینترنتی زیاد شده؛ روی لینک‌های ناشناس نزنید و فایل‌هایی با عنوان‌هایی مثل «عکس یادگاری» رو بدون اطمینان باز نکنید.
+⚠️ اگه حسابتون هک شد یا پولی از حسابتون برداشت شد، وقت رو تلف نکنید! سریع با بانک تماس بگیرید و در اولین فرصت به‌صورت حضوری به نزدیک‌ترین پایگاه پلیس فتا در شهرستان محل سکونتتون مراجعه کنید تا موضوع پیگیری و اقدامات لازم برای مسدودسازی حساب مقصد انجام بشه.
+📢 این هشدار رو برای بقیه هم بفرستید تا قربانی کلاهبرداری نشن.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r2🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10970
 
@@ -247,51 +291,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10953
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁 0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی 💰 کش بک روزانه و هفتگی 🌛 چرخ و فلک ویژه جام جهانی 💣 بالاترین ضرایب پیش بینی 📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱 🕸ورود به سایت: 👇 🪩 https:/…
-</div>
-
-## tasiyanc — post 10952
-
-<div align="center"><video src="files/post_10952_tasiyanc_10952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10952_tasiyanc_10952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁
-
-
-0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی
-
-💰 کش بک روزانه و هفتگی
-
-🌛 چرخ و فلک ویژه جام جهانی
-
-💣 بالاترین ضرایب پیش بینی
-
-
-📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱
-
-🕸ورود به سایت: 👇
-🪩 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🛫 کانال رسمی ما: 👇🅰30
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10951
-
-<div align="center"><img src="files/post_10951_tasiyanc_10951.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فوری ‼️ تصویری منتسب به کانال سید مجتبی خامنه‌ای با اشاره به گزینه‌های احتمالی در صورت حمله آمریکا و اسرائیل
-
-در این تصویر، پهپاد، موشک، تنگه هرمز و جنگ منطقه‌ای تیک خورده‌اند. در کنار این موارد، نماد یک تأسیسات هسته‌ای هم دیده می‌شه که گمانه‌زنی‌هایی درباره گزینه بمب هسته‌ای رو مطرح کرده؛ با این حال، نمی‌شه این تصویر رو به‌تنهایی نشونه تهدید به استفاده از بمب اتم دونست.
-
-💋 @Tasiyanc
 </div>
 
