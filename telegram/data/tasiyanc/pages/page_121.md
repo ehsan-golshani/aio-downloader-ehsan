@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 121
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 7789
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه ترامپ عصبانی شد
+</div>
 
 ## tasiyanc — post 7788
 
@@ -170,11 +176,5 @@
 
 دوستانی ک از گروه بن شدن با پشتیبانی در ارتباط باشن
 @StarTasiyan
-</div>
-
-## tasiyanc — post 7733
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرومزاده ها
 </div>
 

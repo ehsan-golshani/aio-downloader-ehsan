@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 10665
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
 
 ## tasiyanc — post 10664
 
@@ -278,19 +286,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
 
 جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10644
-
-<div align="center"><video src="files/post_10644_tasiyanc_10644.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10644_tasiyanc_10644.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقعیت : توی هند 🇮🇳 یه میمون وارد مشروب فروشی شده و انقد مشروب خورده به این روز افتاده😂
-
 
 ⚡ @Tasiyanc
 </div>

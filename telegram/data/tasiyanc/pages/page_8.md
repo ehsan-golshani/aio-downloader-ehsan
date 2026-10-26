@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 10856
+
+<div align="center"><img src="files/post_10856_tasiyanc_10856.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+EhV1Lz5aPVVlNWI0
+https://t.me/+EhV1Lz5aPVVlNWI0
+
+🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g23
+</div>
 
 ## tasiyanc — post 10855
 
@@ -253,11 +271,5 @@ https://t.me/+EADakrBU74wyOGVk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10836
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

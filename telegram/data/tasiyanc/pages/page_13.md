@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 10751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
+</div>
 
 ## tasiyanc — post 10750
 
@@ -274,17 +280,5 @@ https://t.me/+5cdraE3AwpgyOTlk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r14 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10731
-
-<div align="center"><img src="files/post_10731_tasiyanc_10731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r14
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
 </div>
 

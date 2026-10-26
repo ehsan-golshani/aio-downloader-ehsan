@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 10939
+
+<div align="center"><video src="files/post_10939_tasiyanc_10939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10939_tasiyanc_10939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 حرف‌های این خانوم درباره برابری زن و مرد وایرال شده که میگه؛
+
+انقدر نگید زن و مرد برابرن؛ چون، ۹۰ درصد زن‌ها حقوقشون رو برای خودشون خرج می‌کنن، ولی مردا که کار می‌کنن باید خرج زن و بچه و کل خونه رو بدن و از کلی خواسته های خودشون میزنن تا خانوادشون تو رفاه باشه و چیزی کم نداشته باشن!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10938
 
@@ -280,20 +294,5 @@ G29🅰
 کسکش، تو خودت می‌فهمی چه گهی داری می‌خوری یا فکر کردی ملت یه مشت احمقن که هر چرت‌وپرتی بلغور کنی باور کنن؟!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10918
-
-<div align="center"><video src="files/post_10918_tasiyanc_10918.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10918_tasiyanc_10918.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از کالاف وارفر4
-
-قسمت‌هایی از نسخه جدید مدرن وارفر ۴، شما در نقش سرباز کره شمالی🇰🇵 بازی می‌کنید؛ جایی که اگه اشتباهی به عکس کیم جونگ اون شلیک کنید، هم‌تیمی‌هاتون خودشون دخلتون رو میارن!
-
-بنظرم نکته جالبیه و دیکتاتوریه کیم رو به زیبایی به رخ جهان کشیده
-⚡ @Tasiyanc
 </div>
 

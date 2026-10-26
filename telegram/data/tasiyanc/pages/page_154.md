@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 154
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 6580
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختلال رو همراه 😐
+</div>
 
 ## tasiyanc — post 6579
 
@@ -214,13 +220,5 @@ https://t.me/+DhVkjFb6qhZmYTFk
 هم اکنون ورود B-52 به خاور میانه
 @Tasiyanproxy 
 ✅
-</div>
-
-## tasiyanc — post 6553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ادامه اخبار در چنل پروکسی
-
-https://t.me/TasiyanProxy
 </div>
 

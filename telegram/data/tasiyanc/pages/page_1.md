@@ -1,12 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
 
-## tasiyanc — post 10999
+## tasiyanc — post 11000
 
-<div align="center"><a href="files/post_10999_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_11000_tasiyanc_11000.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11000_tasiyanc_11000.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز ۴ آبان؛ سالروز تولد محمدرضاشاه پهلوی هست
+
+امروز زادروز آخرین شاه ایران است؛ محمدرضاشاه پهلوی که در ۴ آبان ۱۲۹۸ در تهران متولد شد و از سال ۱۳۲۰ تا انقلاب ۱۳۵۷ بر ایران سلطنت کرد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10999
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
@@ -297,21 +308,6 @@
 
 وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10980
-
-<div align="center"><video src="files/post_10980_tasiyanc_10980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10980_tasiyanc_10980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم وایرال شده یه نوزاد که با سیبیل به دنیا اومده !
-
-
-هنوز معلوم نیست داستان این سبیل از کجا آب می‌خوره، ولی قیافه‌ش جوریه انگار به‌جای شیرمادر، باید چایی و قلیون بدیم بهش 😂
 
 💋 @Tasiyanc
 </div>

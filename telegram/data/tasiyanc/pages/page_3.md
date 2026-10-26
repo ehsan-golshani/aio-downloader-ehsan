@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/04 02:13
+📅 آخرین بروزرسانی: 1405/08/04 09:12
 
 ---
+
+## tasiyanc — post 10960
+
+<div align="center"><img src="files/post_10960_tasiyanc_10960.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+J5uvqzBai5A2MmI0
+https://t.me/+J5uvqzBai5A2MmI0
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
+</div>
 
 ## tasiyanc — post 10959
 
@@ -292,19 +308,5 @@ G30🅰
 ✅ https://t.me/BerryBetOfficial
 آدرس سایت:🅰r30
 🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10939
-
-<div align="center"><video src="files/post_10939_tasiyanc_10939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10939_tasiyanc_10939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حرف‌های این خانوم درباره برابری زن و مرد وایرال شده که میگه؛
-
-انقدر نگید زن و مرد برابرن؛ چون، ۹۰ درصد زن‌ها حقوقشون رو برای خودشون خرج می‌کنن، ولی مردا که کار می‌کنن باید خرج زن و بچه و کل خونه رو بدن و از کلی خواسته های خودشون میزنن تا خانوادشون تو رفاه باشه و چیزی کم نداشته باشن!
-
-⚡ @Tasiyanc
 </div>
 
