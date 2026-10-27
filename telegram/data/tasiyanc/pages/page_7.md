@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/05 16:37
+📅 آخرین بروزرسانی: 1405/08/05 22:39
 
 ---
+
+## tasiyanc — post 10905
+
+<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرانسه 
+🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10904
+
+<div align="center"><video src="files/post_10904_tasiyanc_10904.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10904_tasiyanc_10904.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مصاحبه یه دختر ۱۹ ساله : «بدبختی اینه پسرا دیگه لاشی هم نیستن من یکیو می‌خوام همزمان با چند نفر بپره، گاهی بیاد منو بکنه و بره دنبال زندگیش؛ نه عشق می‌خوام نه تعهد، فقط حالشو ببریم! »
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10903
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ مس شهر بابک - پرسپولیس 🌎 ساعت ۱۶:۴۵ ⚽️ پیکان - فجر سپاسی 🌎 ساعت ۱۶:۴۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!…
+</div>
+
+## tasiyanc — post 10902
+
+<div align="center"><img src="files/post_10902_tasiyanc_10902.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ مس شهر بابک - پرسپولیس
+🌎 ساعت ۱۶:۴۵
+⚽️ پیکان - فجر سپاسی
+🌎 ساعت ۱۶:۴۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r27
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10901
 
@@ -230,66 +290,5 @@
 ⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
 🦁 کانال تلگرام: 🅰25
 ⚫️https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10884
-
-<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
-
-• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
-•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
-•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10883
-
-<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
-
-داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
-کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10882
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G25🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10881
-
-<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G25🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 

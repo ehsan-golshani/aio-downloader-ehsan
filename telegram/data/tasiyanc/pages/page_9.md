@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/05 16:37
+📅 آخرین بروزرسانی: 1405/08/05 22:39
 
 ---
+
+## tasiyanc — post 10863
+
+<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+
+🔥 مسابقات امروز 
+👍
+
+⚽️ اینتراخت فرانکفورت - کلن
+
+🌎 ساعت ۲۲:۰۰
+⚽️ دپورتیوولاکرونیا - لوانته
+
+🌎 ساعت ۲۲:۳۰
+
+﻿
+
+💸 ضرایب ویژه و رقابتی
+
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r24
+
+🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10862
+
+<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
+
+از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
+این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
+این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
+توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10861
+
+<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
+
+مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
 
 ## tasiyanc — post 10859
 
@@ -207,65 +285,5 @@ https://t.me/+EADakrBU74wyOGVk
 https://t.me/+EADakrBU74wyOGVk
 
 تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10843
-
-<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
-
-ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10842
-
-<div align="center"><video src="files/post_10842_tasiyanc_10842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10842_tasiyanc_10842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
-
-تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10841
-
-<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جاده مرگ ایران بشناسید ؛
-اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
-
-جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 26 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-
-با وارد کردن این فایل داخل نپستر 26 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 💖
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
 </div>
 

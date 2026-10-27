@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/05 16:37
+📅 آخرین بروزرسانی: 1405/08/05 22:39
 
 ---
+
+## tasiyanc — post 10947
+
+<div align="center"><img src="files/post_10947_tasiyanc_10947.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G30🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10946
+
+<div align="center"><video src="files/post_10946_tasiyanc_10946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10946_tasiyanc_10946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 شرکت چینی Unitree از ربات بادیگارد خود با قابلیت اجرای حرکات رزمی و قدرت ضربات بالا رونمایی کرد.
+
+طبق ویدئوی منتشرشده، این ربات قادر است ضربات قدرتمندی وارد کند که به بدنه خودرو آسیب می‌زند.
+
+نکته قابل‌توجه، تأکید شرکت سازنده بر استفاده «دوستانه و ایمن» از این ربات است؛ هشداری که با توجه به توانایی‌های فیزیکی آن، اهمیت ویژه‌ای دارد
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10945
+
+<div align="center"><img src="files/post_10945_tasiyanc_10945.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مهدی خراتیان کارشناس صداوسیما:
+
+«سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
+
+یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پرزیدنت دونالد ترامپ:
+
+مذاکره با ایران تقریبا برام تموم شدست. به زودی اتفاقی در ایران رقم میزنیم. خیلیا فکر میکنن این اتفاق بعد از انتخابات میفته ولی خواهیم دید چه خواهد شد.
+
+قطعی اینترنت از رگ گردن نزدیک‌تره!!!!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10942
 
@@ -240,56 +305,5 @@ G29🅰
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 28🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10924
-
-<div align="center"><img src="files/post_10924_tasiyanc_10924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10923
-
-<div align="center"><video src="files/post_10923_tasiyanc_10923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10923_tasiyanc_10923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این یارو دیگه چه حرومزاده‌ایه؟!
-
-همکلاسی دبستانی دخترش می‌اومده خونه‌شون درس بخونه و بازی کنه، اینم بهش علاقه‌مند می‌شه؛ سال‌ها بعد زنشو طلاق می‌ده و با همون دختر ازدواج می‌کنه!
-
-خب کسکش مگه قحطی آدم اومده بود؟! 🤦🏻‍♂️ هم‌سن‌وسال خودت کم بود، رسیدی به همکلاسی بچه‌ت؟! این حجم از بی‌شرمی و عادی سازی اینجور کثافت کاریا دیگه واقن پشم ریزونه
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10922
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان ✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
 </div>
 

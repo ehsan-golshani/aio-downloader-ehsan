@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/05 16:37
+📅 آخرین بروزرسانی: 1405/08/05 22:39
 
 ---
+
+## tasiyanc — post 10884
+
+<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
+
+• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
+•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
+•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10883
+
+<div align="center"><video src="files/post_10883_tasiyanc_10883.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10883_tasiyanc_10883.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 صداوسیما وقتی می‌بینه ایلان ماسک ماشین پرنده ساخته، سریع کارشناس میاره که بگه: «چیز خاصی نیست!»
+
+داداش شما اول یه ماشین بساز که وسط اتوبان خاموش نشه، بعد بیا درباره ماشین پرنده تسـلا نظر کارشناسی بده ...
+کلاً تو این مملکت هرچی رو نداریم، به جاش می‌گیم چیز مهمی نیست!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G25🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
+
+## tasiyanc — post 10881
+
+<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G25🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10880
 
@@ -270,83 +331,5 @@ G24🅰
 💵
 🛍
 👆
-</div>
-
-## tasiyanc — post 10863
-
-<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-
-🔥 مسابقات امروز 
-👍
-
-⚽️ اینتراخت فرانکفورت - کلن
-
-🌎 ساعت ۲۲:۰۰
-⚽️ دپورتیوولاکرونیا - لوانته
-
-🌎 ساعت ۲۲:۳۰
-
-﻿
-
-💸 ضرایب ویژه و رقابتی
-
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r24
-
-🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10862
-
-<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
-
-از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
-این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
-این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
-توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10861
-
-<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
-
-مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
 </div>
 
