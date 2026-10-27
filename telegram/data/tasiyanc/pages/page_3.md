@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/05 01:40
+📅 آخرین بروزرسانی: 1405/08/05 10:30
 
 ---
+
+## tasiyanc — post 10977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد چلسی ⚽️
++برد دورتموند ⚽️
+
+برنده 2.500.000 شوید 🇪🇺
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 10976
+
+<div align="center"><img src="files/post_10976_tasiyanc_10976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نبرد بزرگ چلسی⚽️ و تاتنهام⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g2
+</div>
+
+## tasiyanc — post 10975
+
+<div align="center"><video src="files/post_10975_tasiyanc_10975.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10975_tasiyanc_10975.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده رقص دخترها و پسرها تو نمایشگاه بین المللی فیتنس تهران
+
+ویدئویی از رقص دخترها و پسرها کنار هم در نمایشگاه بین‌المللی فیتنس تهران منتشر شده که حسابی حاشیه‌ساز شده و اعتراض شدید حامیان حکومت رو به دنبال داشته!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10974
+
+<div align="center"><video src="files/post_10974_tasiyanc_10974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10974_tasiyanc_10974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از سورپرایز جذاب برای بازیگر سریال «بازی تاج‌وتخت , GOT » توی استانبول🇹🇷
+
++ «اوون تیل» وسط بازدید از آب‌انبار شرفیه استانبول، با اجرای موسیقی معروف سریال «بازی تاج‌وتخت» با سازهای سنتی غافلگیر شد؛ یه اجرای خفن توی فضایی تاریخی که حسابی حال‌وهوای وستروس رو زنده کرد!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10973
 
@@ -229,67 +297,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 طبیعت واقعاً توی خلق این موجود سنگ تموم گذاشته!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10957
-
-<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
-
-ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
-</div>
-
-## tasiyanc — post 10955
-
-<div align="center"><img src="files/post_10955_tasiyanc_10955.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ چادر ملو اردکان - استقلال
-🌎 ساعت ۱۶:۰۰
-⚽️ الومینیوم اراک - ذوب اهن
-🌎 ساعت ۲۰:۱۵
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r1
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10954
-
-<div align="center"><video src="files/post_10954_tasiyanc_10954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10954_tasiyanc_10954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
-
-⚡ @Tasiyanc
 </div>
 

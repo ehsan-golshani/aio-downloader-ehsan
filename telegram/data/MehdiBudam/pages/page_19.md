@@ -1,8 +1,21 @@
 # آرشیو کانال MehdiBudam - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/05 05:08
+📅 آخرین بروزرسانی: 1405/08/05 10:28
 
 ---
+
+## MehdiBudam — post 8098
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طرف پیام داده میگه تو هم خوب از این داستانا پول زدی به جیب ها
+کسی این پولای مارو برنداشته؟ من ندیدمشون آخه
+</div>
+
+## MehdiBudam — post 8097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اکثرا تست کردن میگن obfs4 کار نمیکنه اما شما اونم اضافه کنید.
+</div>
 
 ## MehdiBudam — post 8096
 
@@ -188,21 +201,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ فروش لف د گروپ.
-</div>
-
-## MehdiBudam — post 8070
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TCP
-
-79.127.76.226:53,95.38.15.205:53,109.162.251.14:53,185.112.38.46:53,185.140.240.162:53,193.19.144.10:53,95.38.245.146:53,185.124.113.224:53
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از صبح وضعیت اینترنتتون بهتر شده؟
 </div>
 

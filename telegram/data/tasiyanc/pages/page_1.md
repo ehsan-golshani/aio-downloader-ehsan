@@ -1,12 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/05 01:40
+📅 آخرین بروزرسانی: 1405/08/05 10:30
 
 ---
 
-## tasiyanc — post 11013
+## tasiyanc — post 11017
 
-<div align="center"><a href="files/post_11013_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_11017_tasiyanc_11017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11017_tasiyanc_11017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مومیایی روزالیا لومباردو ، دختر کوچکی که پس از بیش از ۱۰۰ سال هنوز چهره‌ای شبیه به زمان حیاتش دارد!
+
+روزالیا در سال ۱۹۲۰، در حدود دو سالگی بر اثر ذات‌الریه از دنیا رفت؛ اما پدرش که نتوانست با مرگ دختر کوچکش کنار بیاد به کمک روش خاص مومیایی‌سازی،تونسته تا به امروز چهره دخترش را حفظ کند
+مومیایی او در دخمه‌های کاپوچین شهر پالرمو در ایتالیا نگهداری می‌شه؛ جایی که بازدیدکننده‌ها با دیدن چهره‌ی این کودک، انگار با تصویری از گذشته روبه‌رو می‌شن…
+بیش از یک قرن گذشته، اما چهره‌ی کوچکش هنوز یادآور زندگی کوتاهی‌ست که خیلی زود به پایان رسید.
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11016
+
+<div align="center"><a href="files/post_11016_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r5
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
+
+💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
+فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
+
+🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
+🌐 www.MelBet1.com
+
+🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
+
+نکته: فقط این هفته فعاله، پس از دستش نده 🙂
+
+🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11014
+
+<div align="center"><video src="files/post_11014_tasiyanc_11014.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11014_tasiyanc_11014.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوری 
+🚨ممنوعیت بنزین آزاد جایگاه‌داران در ۱۲ استان اجرا شد!
+
+با اجرای این طرح، سفرهای بین‌استانی می‌تونه برای راننده‌ها - مسافر ها دردسرساز بشه؛ مثلاً با ۱۱۰ لیتر بنزین شخصی خودت از تهران راهی مشهد بشی، اما برای برگشت با مشکل تأمین سوخت مواجه بشی!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11013
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
@@ -240,53 +309,5 @@
 📱@lenzbet_official
 
 📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 10997
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 3 انفجار شدید متوالی در سیـریک
-
-طبق گزارش ها آمریکا به یک لانچر در این منطقه حمله کرده
-</div>
-
-## tasiyanc — post 10996
-
-<div align="center"><img src="files/post_10996_tasiyanc_10996.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ترافیک اینترنت ایران در رادار کلودفلر به کمترین مقدار بعد از وصل شدن اینترنت رسیده ، قطعی نت؟
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10995
-
-<div align="center"><img src="files/post_10995_tasiyanc_10995.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 هشدار درباره لینک‌های مخرب تلگرام؛ مراقب باشید اکانتتون دیلیت نخوره!
-
-گزارش‌هایی تایید نشده درباره لینک‌های مشکوک تلگرام منتشر شده که ادعا می‌شود با کلیک روی آن‌ها، حساب کاربری حذف می‌شود. همچنین ممکن است لینک مخرب پشت لینک های شیشه ای یا لینک ظاهراً سالم پنهان شده باشد.
-
-⚠️ روی لینک‌های ناشناس که بارها گفتیم از حساب‌های شخصی و کانال‌های نامعتبر کلیک نکنید و قبل از باز کردن هر لینک، آدرس واقعی آن را بررسی کنید.
-اطلاع رسانی کنید
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10994
-
-<div align="center"><video src="files/post_10994_tasiyanc_10994.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10994_tasiyanc_10994.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 فقط چند ساعت پس از افتتاح؛ مجموعه تفریحی کاشان پلمب شد!
-هنوز چند ساعت از افتتاح این مجموعه نگذشته بود که به‌دلیل مسائل مرتبط با حجاب و رقص زنان، دستور پلمب آن از سوی دادستانی کاشان صادر شد!
-
-
-💋 @Tasiyanc
 </div>
 

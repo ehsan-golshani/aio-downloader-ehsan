@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/05 01:40
+📅 آخرین بروزرسانی: 1405/08/05 10:30
 
 ---
+
+## tasiyanc — post 10619
+
+<div align="center"><img src="files/post_10619_tasiyanc_10619.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه میلی‌گلد: مشکل حل شد نگران نباشید دارایی همه واریز میشه
+
+بعد از پیگیری‌های میلی دستور آزادسازی طلاهای میلی از بانک کارگشایی صادر شد خدمت تسویه و تحویل که به علت مسدودی دارایی‌های میلی در بانک کارگشایی مختل شده بود، فردا عصر پس از دریافت طلا از بانک کارگشایی به روال طبیعی بازخواهد گشت.
+همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
+﻿
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10618
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هیجان را با ما تجربه کنید
+💐
+وینگو بینگو
+👆🅰‌7
+</div>
+
+## tasiyanc — post 10617
+
+<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
+💎
+
+
+🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
+
+
+🟠بازی وینگو چیه؟
+یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
+
+
+🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
+
+
+📆 یکشنبه ۱۲ مهر
+
+⏰ ساعت ۲۱:۳۰ (به وقت تهران)
+
+🎙 مجری: سهند
+
+
+🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
+
+لینک ورود به بازی:
+
+
+🌐 https://wingobingo.tv/fa/wingo/14640
+</div>
+
+## tasiyanc — post 10616
+
+<div align="center"><video src="files/post_10616_tasiyanc_10616.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10616_tasiyanc_10616.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠۵ ترفند ساده برای تشخیص تازگی مواد غذایی که هر کسی باید بدونه
+
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10615
 
@@ -231,72 +302,5 @@ Tasiyan | تاسیان pinned a file
 هر گرم طلا: 24 میلیون و 200 هزار تومن
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔐🔐🔐 تعداد 152 سرور پر سرعت V2Ray
-متصل با اکثر اینترنت ها
-اختصاصی، کل سرور ها تست شده
-
-فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
-
-دانلود V2Box نسخه اندروید 🔐
-دانلود V2Box نسخه iOS 🔐
-
-دانلود Npv Tunnel نسخه اندروید 🔐
-دانلود Npv Tunnel نسخه iOS 🔐
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10597
-
-<div align="center"><video src="files/post_10597_tasiyanc_10597.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10597_tasiyanc_10597.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبحتون بخیر ❤️‍🔥
-
-نمک آبرود زیبا « استان مازندران »
-
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10595
-
-<div align="center"><img src="files/post_10595_tasiyanc_10595.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r6🅰
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

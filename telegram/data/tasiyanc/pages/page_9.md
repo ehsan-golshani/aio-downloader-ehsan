@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/05 01:40
+📅 آخرین بروزرسانی: 1405/08/05 10:30
 
 ---
+
+## tasiyanc — post 10853
+
+<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+برد دیناموزاگرب
+Odd:1.98
+@Aron_tip
+</div>
+
+## tasiyanc — post 10852
+
+<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 15 October، روزِ آدمای بد اخلاقه.
+
+
++این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10851
+
+<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10849
 
@@ -226,51 +271,5 @@ https://t.me/+EADakrBU74wyOGVk
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10833
-
-<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10832
-
-<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات های جدید از بانو مگان فاکس
-
-بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
-</div>
-
-## tasiyanc — post 10830
-
-<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
-
-https://t.me/+zhWRXOtmyEE5ZjVk
-https://t.me/+zhWRXOtmyEE5ZjVk
-
-🎯 سود 4 ملیونی از میکس لایو اروپا 💵
 </div>
 

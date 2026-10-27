@@ -1,8 +1,24 @@
 # آرشیو کانال MehdiBudam - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/05 05:08
+📅 آخرین بروزرسانی: 1405/08/05 10:28
 
 ---
+
+## MehdiBudam — post 8070
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+TCP
+
+79.127.76.226:53,95.38.15.205:53,109.162.251.14:53,185.112.38.46:53,185.140.240.162:53,193.19.144.10:53,95.38.245.146:53,185.124.113.224:53
+
+@MehdiBudam
+</div>
+
+## MehdiBudam — post 8069
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از صبح وضعیت اینترنتتون بهتر شده؟
+</div>
 
 ## MehdiBudam — post 8068
 
@@ -224,26 +240,6 @@ Pass: @MehdiBudam
 
 
 slipnet-bundle-enc://AdtSdqSTEtBBogN045YOprvk9gVJe8rCB3HhE1cgDzIApDL3GrDJesg3AkNI7O7MuFcn3EPmx2tQS+3SqxS5v5JCupgoIOFmzvNGnnxiWOlyyJ28HNq1JZrw683M1BtLvQOB8qth5fM9mriWydEJTuihjNVxpIpwbjDNKPXh5j2WA0cotGiD6xF2HK1CPy14aUXbjeaU93T4ZDRhzEcCpnv9JsnWWsayyxZkBgmDVsnjf1UcyjiNjabT72iKLfwRGgcyprdUqV67E3v868I0aztz+Av/KZhHAuMjxbYr2KOt1nw//QTRVyCImouO50CzMxnOec8ahUprdOezSJvdAEwuDehZSXwcmX41c+GNCo7cq+lHkHrZ6CMUTG3HpPtR4WftGuKKgxdbFY10CioAeXfpkLj487tRL3zvbC867GurXCqUbNIV4DAre8cT2n4Rd+vGMl7JOhVZ/h51FGxKgdkn+OwrWBNkog+xIhhXewZIyfVEu4+7VD2vlh4zf4KZ9azMGE9vRqIBoBbSzCoiD+Ev/QNZiXjos1lz1NUVeKbKerikXSSE55zRko1F33ImnUrycRFzmfBIMTQIXRr6lsbap39caD7sL79wvzEMos1XhcKUJKEbLpSq+bnAfa/X3nI19HtSBuBkJRM+NSU1HGsM1JTVvctNKNByYWm9d7almlU/fRPE50bPLswiXdbtQmtFi33wpq+BThx1bigfNoi9rvEQKx01eAqAFzHGIiUtDaFPqDIb7M3oihWc5W+F3QXCSAn9gtgswZhCwcy9o7cgQ1VxGREb7nVA7F+qEveGaO73jm6n1eSVAdV0PI4whB214GWyYRAUQ3UtDXNELSkBkQ2Lb4lo0W+BOwtI0qZXx0bKrI8KBRKoYj4yfFSlbj/b0o6QL9w9FRWaJu2k5G3swVpeGWp9WnUEeRH+JmivZenPkoSaY2WatIm80E4zyat78GP303Wez8Gvd/Rgdr/hfLYKG0qY/M6Ga0ywud8F8oaV/PraE73BVNprMVfiuNTHapXc2bHbU4g9HRenfXldJaK8tD0FS8r4aZ9UA7uTdTkQzyxt03I/HmdbSS6F4pdpXHfCOA==
-
-﻿
-Pass: @MehdiBudam
-
-@MehdiBudam
-</div>
-
-## MehdiBudam — post 8038
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه تشکر هم از همه دوستانی که پستارو تو کانال های خودشون فوروارد میکنن و از طریق استارز و بوست هم حمایت کردن.
-</div>
-
-## MehdiBudam — post 8035
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-108
-
-
-slipnet-bundle-enc://AcHBTeQyfgD3xVlQcGtQ0kNbI0wc8MsWGgypOkv2e/vFk+d1/rqQBZfL37e4TBm3Sa4s69uaytHjD8XZvZl6A+EW87rgZPjHRuMR7rd2oVRjMg7iOsl5S6ADZSeTB1cK+SVAc5zIBiMQNQeHfKA04Egxigkfd1sIFVTNbWWmoEAYQ6hyHaEsIrJUZeOUT58Q40EHh8e9br3pTsNJ0+Q06JNf67lbSk1fZl35u53nCeP8B4+vw0jKfQGbfrmdx6hHjGUSEr25/9LLvP0W2tWcZrYKay0fK0VWxOianIRBkCuLEbJNFkRwtH7SbdYLCLo7jR+5dvcHG/oYR79uZDOyZw3VfgNmra86fBLwpCoDeDLbaUQaQmMK88hqNgnpvdNhnYMCM0GdYHqc0+eF1OFe5tgOoKxUt9Yumtp91mEA9tkw2SXVJW8z+uPrWUSOM3ULReaV4ln/1ThFOpRpZ4kbKaQRY9epR4h53DXtedQhqB7VAM+6qYePOj5k8PxysISYdHTuhc9buwp/L8DuFOcIervFunyh7JpoANOB5L+nlU2Egg/ghhyUr+xGIGMCiaFMNNZuzFSmwdVn6xzCWtcVxNsbBXlXvhyaSyYmUXNnrtIpBSc+ZqKyySSbR+/mBDwJD3Is5azUiB+/Xkh/xewCubkrjlAoX4vt6UN7szzpG+KvqbumnFSK5PiDX6o02SvFlGeBjVld7aOaF8bP5FWsj0A6GleteITIl01P0Mq68raSIFxVE0W6B0H/v3iM7KelX431G0DgXGQACRcb7GgIvLSXv45YK3jsoFpZ2zRNlMnS2n1O/sSqedrlFd5TBy0+If6DFoX4XDSJhSjBrlp8uzmD6ucD750+bbeypORLae53CASAzmyf8TWrBKxZS0gfta7kvn/fep5PoyUF/Zp/Z/76VnWsq+vICO2jS3ooBhP9Xe6h2qjLNECMJjFXWxCn9j9//6hPqYK6XPDIZI7ioqYczhqOjjDlhyHdXOT6HN0J2ZKjUbhyU5l4oFgR3NBceBIc/m60graoypYFhIhMTbultxcFJm3nfeCQFO66B0j+wQYg2z+NCrv61w==
 
 ﻿
 Pass: @MehdiBudam
