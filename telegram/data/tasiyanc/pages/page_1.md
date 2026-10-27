@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/05 10:30
+📅 آخرین بروزرسانی: 1405/08/05 16:37
 
 ---
+
+## tasiyanc — post 11023
+
+<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
+
+قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
+بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
+</div>
+
+## tasiyanc — post 11021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری آیزنکوت رقیب انتخاباتی نتانیاهو :
+
+مردم ایران باید خودشون از داخل رژیمشون تغییر ایجاد کنن؛ اینکه ما بخوایم با حمله ی نظامی رژیم ایران رو تغییر بدیم کار درستی نیست، ما نباید دخالتی کنیم این به خود مردم ایران بستگی داره که میخوان چیکار کنن.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11020
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
+</div>
+
+## tasiyanc — post 11019
+
+<div align="center"><img src="files/post_11019_tasiyanc_11019.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛
+ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
+ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11018
+
+<div align="center"><video src="files/post_11018_tasiyanc_11018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11018_tasiyanc_11018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو پر بازدید از ترسناک‌ترین سیارات کشف‌شده در کیهان؛ سیاراتی عجیب و باورنکردنی که هرگز تصورش را هم نمی‌کردید وجود داشته باشند !
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11017
 
@@ -21,8 +80,6 @@
 </div>
 
 ## tasiyanc — post 11016
-
-<div align="center"><a href="files/post_11016_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 اپلیکیشن MelBet 🔄
@@ -228,86 +285,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد! ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است. 🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری…
-</div>
-
-## tasiyanc — post 11003
-
-<div align="center"><video src="files/post_11003_tasiyanc_11003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11003_tasiyanc_11003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد!
-
-ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است.
-
-🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری قرار گرفت.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51 @NBA2kBet
-</div>
-
-## tasiyanc — post 11001
-
-<div align="center"><img src="files/post_11001_tasiyanc_11001.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51
-
-@NBA2kBet
-</div>
-
-## tasiyanc — post 11000
-
-<div align="center"><video src="files/post_11000_tasiyanc_11000.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11000_tasiyanc_11000.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز ۴ آبان؛ سالروز تولد محمدرضاشاه پهلوی هست
-
-امروز زادروز آخرین شاه ایران است؛ محمدرضاشاه پهلوی که در ۴ آبان ۱۲۹۸ در تهران متولد شد و از سال ۱۳۲۰ تا انقلاب ۱۳۵۷ بر ایران سلطنت کرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10999
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 10998
-
-<div align="center"><img src="files/post_10998_tasiyanc_10998.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔣از اولین شارژ تا هر واریز بعدی،
-انواع بونوس‌ها و هدایای ورود🔣
-
-🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
-
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰3
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://www.lenz89bet.online
 </div>
 

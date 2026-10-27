@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/05 10:30
+📅 آخرین بروزرسانی: 1405/08/05 16:37
 
 ---
+
+## tasiyanc — post 10754
+
+<div align="center"><img src="files/post_10754_tasiyanc_10754.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری، توییت جدید ترامپ : ما در حال گفتگوی سازنده‌ای با جمهوری اسلامی ایران هستیم و به هیچ عنوان قبل از انتخابات میان دوره ای به ایران حمله نخواهیم کرد.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10753
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️⭕️ با اعلام رسمی سخنگوی قوه قضائیه، بی‌حجابی رسما جرم اعلام شد و از این به بعد در سراسر کشور، برای دخترای بی حجاب پرونده ی قضایی تشکیل میشه و محاکمه میشن‌.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10752
+
+<div align="center"><video src="files/post_10752_tasiyanc_10752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10752_tasiyanc_10752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اینجایی که مشاهده میکنید تگزاس نیست، کوهدشت لرستانه که یه چند نفر با همدیگه به مشکل خورده بودن و تصمیم گرفتن با کلاشینکف حلش کنن.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10751
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
+</div>
+
+## tasiyanc — post 10750
+
+<div align="center"><img src="files/post_10750_tasiyanc_10750.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+wLFODtl1yCEwYzFk
+https://t.me/+wLFODtl1yCEwYzFk
+
+🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
+</div>
+
+## tasiyanc — post 10749
+
+<div align="center"><img src="files/post_10749_tasiyanc_10749.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشماتون فرفری شه
+
+🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
+این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10748
 
@@ -206,91 +275,6 @@ https://t.me/+5cdraE3AwpgyOTlk
 نسیم مقصودلو؛ خواهر امیرتتلو :
 خبرهایی که در مورد آزادی امیر پخش شده فیکه و هیچ تغییر در پروندش ایجاد نشده. اون فیلم هم که گفتم شرط عفو شدنش پاک کردن تتوهاشه مال پارساله که اونم دروغ بود.
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10734
-
-<div align="center"><video src="files/post_10734_tasiyanc_10734.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10734_tasiyanc_10734.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشمام ریخته از این حد حرومزادگی
-
-🚨تو کارخانه شیرخشک سازی،کارگر با کارفرما دعواش میشه،برای انتقام مخفیانه ۲۰ لیتر اسید توی مخزن شیر میریزه و لحظه‌ی آخری آزمایشگاه کارخانه متوجه این قضیه میشه و از یک جنایت بزرگ جلوگیری میشه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10733
-
-<div align="center"><video src="files/post_10733_tasiyanc_10733.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10733_tasiyanc_10733.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 دیشب تو تهران یه پسره جلو چندتا دختر جو گیر میشه و میخوست به سبک فیلمای سریع و خشن از پنجره یه ماشین بپره تو یه ماشین دیگه که رید :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10732
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r14 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10731
-
-<div align="center"><img src="files/post_10731_tasiyanc_10731.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r14
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10730
-
-<div align="center"><video src="files/post_10730_tasiyanc_10730.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10730_tasiyanc_10730.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 7 October، روزِ «تو برام مهمی» هست
-
-
-+این روز رو به کسی که براش اهمیت میدی بفرست ❤️‍🔥
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10729
-
-<div align="center"><video src="files/post_10729_tasiyanc_10729.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10729_tasiyanc_10729.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 تمجید جذاب پهبادی در آسمان از لیونل مسی !
-
-مراسم زیبای و ویژه برای وداع با مسی
-
-📣 208 مسابقه
-🎯 126 گل
-🎯 67 پاس گل
-🥇طلای المپیک 2008
-🏆 جام جهانی 2022
-🏆 کوپا آمریکا 2021
-🏆 کوپا آمریکا 2024
-🏆 فینالیسیما 2022
-🔴136 پیروزی - 29 شکست و 43 تساوی
-﻿
 
 ⚡ @Tasiyanc
 </div>

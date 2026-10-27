@@ -1,8 +1,84 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/05 10:30
+📅 آخرین بروزرسانی: 1405/08/05 16:37
 
 ---
+
+## tasiyanc — post 10819
+
+<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
+
+از اخر اول شدیم 🗿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10818
+
+<div align="center"><video src="files/post_10818_tasiyanc_10818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10818_tasiyanc_10818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از تبلیغ جدید بانو سیدنی سویینی
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g20 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10816
+
+<div align="center"><video src="files/post_10816_tasiyanc_10816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10816_tasiyanc_10816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐
+
+همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
+
+دقیقاً با توعم!🫥
+
+📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+🅰g20
+https://t.me/+A6R70wBCKApkYTRk
+https://t.me/+A6R70wBCKApkYTRk
+
+🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10815
+
+<div align="center"><video src="files/post_10815_tasiyanc_10815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10815_tasiyanc_10815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تو تجمعات شبانه دیشبِ تبریز؛
+یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10814
+
+<div align="center"><video src="files/post_10814_tasiyanc_10814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10814_tasiyanc_10814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10813
 
@@ -196,78 +272,5 @@ https://t.me/+A6R70wBCKApkYTRk
 بن افلک هم بعد اینکه دید داره کمر نابود میشه فرار رو بر قرار ترجیح داد....
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10797
-
-<div align="center"><video src="files/post_10797_tasiyanc_10797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10797_tasiyanc_10797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال شده از یک مدرسه پسرونه که معلم داره درس میده و دانش آموزان دور هم جمع شدن کله‌پاچه میزنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😀میکس مطمئن امشب           🏴󠁧󠁢󠁥󠁮󠁧󠁿منچستر سیتی🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿 ليورپول          🏴󠁧󠁢󠁥󠁮󠁧󠁿کریستال پالاس🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿ناتینگهام                باضریب⬅️ 2.78 📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1393 دلار🔥                                  ⬇️👇⬇️            …
-</div>
-
-## tasiyanc — post 10795
-
-<div align="center"><img src="files/post_10795_tasiyanc_10795.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😀میکس مطمئن امشب 
-         🏴󠁧󠁢󠁥󠁮󠁧󠁿منچستر سیتی🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿 ليورپول
-         🏴󠁧󠁢󠁥󠁮󠁧󠁿کریستال پالاس🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿ناتینگهام
-        
-     
-باضریب⬅️ 2.78 📊 گذاشتماینجا حتما استفاده کنید💎
-
-💵خودم 500دلار زدم که میشه 1393 دلار🔥
-                                 ⬇️👇⬇️
-            🚫فرم VIP رایگان شرطبندی↙️
-
-رفقا اینجا عضو بشین و سود کردن یاد بگیرین👇🅰r19
-https://t.me/+6L9plEThEMk5YTJk
-https://t.me/+6L9plEThEMk5YTJk
-            💎
-💯   100درصد وینه
-💯💎
-</div>
-
-## tasiyanc — post 10794
-
-<div align="center"><video src="files/post_10794_tasiyanc_10794.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10794_tasiyanc_10794.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز October 11، روز جهانی دختره 🔵
-
-این روزو به دختر خوش قلب و ماهی که برات مهمه تبریک بگو .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از حدیث ستاری، دندانپزشک و مدل ایرانی در مسابقات میس گلوبال، در بخش لباس‌ملی با طرحی به نام «پرشیا» روی صحنه درخشید؛ لباسی الهام‌گرفته از شکوه ایران باستان که جلوه‌ای از تاریخ و هویت ایران را به نمایش گذاشت.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10791
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

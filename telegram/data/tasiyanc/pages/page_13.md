@@ -1,8 +1,95 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/05 10:30
+📅 آخرین بروزرسانی: 1405/08/05 16:37
 
 ---
+
+## tasiyanc — post 10775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10773
+
+<div align="center"><video src="files/post_10773_tasiyanc_10773.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10773_tasiyanc_10773.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂
+
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵
+
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی
+✅
+
+🅰17
+
+💎ادرس عضویت کانال vip:
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10772
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10771
+
+<div align="center"><img src="files/post_10771_tasiyanc_10771.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰17
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10770
+
+<div align="center"><video src="files/post_10770_tasiyanc_10770.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10770_tasiyanc_10770.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 پروتز ممه رنگی هم اومد و به ایران هم رسیده گویا
+
+فک کن شب داری تو پیاده‌رو میری همه جا تاریکه یکی بهت نوربالا میده که سبقت بگیره میبینی که ممه رنگیه بعد که سبقت گرفت از پشتش راهنما چپ و راست میده میبینی عع باسن رنگیه 😂
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10769
+
+<div align="center"><video src="files/post_10769_tasiyanc_10769.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10769_tasiyanc_10769.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 دانش آموزای آذربایجانی بر علیه تصمیم دولت آذربایجان مبنی بر اخراج معلما و دانش آموزای باحجاب اعتراضات برگزار کردن درصورتی که ۹۹ درصد معترضان خودشون بی حجابن :
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10768
 
@@ -210,74 +297,5 @@ https://t.me/+ramzL0orpc5hMTBk
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10754
-
-<div align="center"><img src="files/post_10754_tasiyanc_10754.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، توییت جدید ترامپ : ما در حال گفتگوی سازنده‌ای با جمهوری اسلامی ایران هستیم و به هیچ عنوان قبل از انتخابات میان دوره ای به ایران حمله نخواهیم کرد.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10753
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ با اعلام رسمی سخنگوی قوه قضائیه، بی‌حجابی رسما جرم اعلام شد و از این به بعد در سراسر کشور، برای دخترای بی حجاب پرونده ی قضایی تشکیل میشه و محاکمه میشن‌.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10752
-
-<div align="center"><video src="files/post_10752_tasiyanc_10752.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10752_tasiyanc_10752.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 اینجایی که مشاهده میکنید تگزاس نیست، کوهدشت لرستانه که یه چند نفر با همدیگه به مشکل خورده بودن و تصمیم گرفتن با کلاشینکف حلش کنن.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10751
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+wLFODtl1yCEwYzFk https://t.me/+wLFODtl1yCEwYzFk 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10750
-
-<div align="center"><img src="files/post_10750_tasiyanc_10750.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+wLFODtl1yCEwYzFk
-https://t.me/+wLFODtl1yCEwYzFk
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g16
-</div>
-
-## tasiyanc — post 10749
-
-<div align="center"><img src="files/post_10749_tasiyanc_10749.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پشماتون فرفری شه
-
-🔴 تو خوزستان یه زن، وقتی شوهرش سرکار بوده برای اینکه بره پیش دوست پسرش به بچه‌ی ۳ سالش قرص خواب میده و میزارش تو صندوق عقب ماشین دوست پسرش و در حالی که کنار جاده تو ماشین با دوست پسرش سکس میکرده یه اتوبوس میاد میزنه به ماشین؛
-این وسط بچه سه ساله بیچاره تو صندوق عقب جونشو از دست داده و زنه و دوست پسرش سالم موندن:/
-
-⚡ @Tasiyanc
 </div>
 
