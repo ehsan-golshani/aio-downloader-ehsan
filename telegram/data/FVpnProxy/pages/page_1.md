@@ -1,8 +1,28 @@
 # آرشیو کانال FVpnProxy - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/03/18 02:48
+📅 آخرین بروزرسانی: 1405/08/06 02:28
 
 ---
+
+## FVpnProxy — post 581
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ممنونم از اونایی که این مدت هر از گاهی یهویی می اومدن حالم میپرسیدن، بدون اینکه همدیگرو بشناسیم، نگرانم بودن
+
+بوس به همه اونایی که مرام و معرفت داشتن و نداشتن ❤️😘
+
+امیدوارم حال دل همتون خوب باشه
+
+تو روز های آینده هوای دل همدیگرو داشته باشید ، اجازه ندید حال دل کسی خراب بشه خواسته یا ناخواسته، شما خوب بمونید تو این دنیای نامردی و بی معرفتی، شاید فردایی نبود
+
+مواظب خودتون باشید 🫡🌹
+</div>
+
+## FVpnProxy — post 580
+
+<div align="center"><video src="files/post_580_FVpnProxy_580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_580_FVpnProxy_580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 ## FVpnProxy — post 579
 
@@ -137,19 +157,5 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 موقت:
 اینو میذارم اینجا اونی که باید دلیل گذاشتن این عکس متوجه میشه. ابتدا یا انتها؟!
-</div>
-
-## FVpnProxy — post 555
-
-## FVpnProxy — post 553
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینم از پروکسی اختصاصی تازه نفس امشب، برای اتصال روی نوشته زیر بزنید.
-
-سرور اختصاصی 1
-
-سرور اختصاصی 2
-
-😘🤭
 </div>
 

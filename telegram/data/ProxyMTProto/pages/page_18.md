@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/05 22:37
+📅 آخرین بروزرسانی: 1405/08/06 02:27
 
 ---
+
+## ProxyMTProto — post 52208
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rade94.tidelark.cc
+Port: 443
+Secret: ee214011ba04108a7b1836df3a5e918b3b7261646539342e746964656c61726b2e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52207
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: vile82.tidelark.cc
+Port: 443
+Secret: ee8e5533d984ca2ffa568ec9e78963210476696c6538322e746964656c61726b2e6363
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52205
 
@@ -154,33 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: Unknown
 Port: 21443
 Secret: ee70d02df07ecb5669b6eb010aba55eab07777772e636c6f7564666c6172652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52188
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52186
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 194.120.230.120
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/05 22:37
+📅 آخرین بروزرسانی: 1405/08/06 02:27
 
 ---
+
+## ProxyMTProto — post 52368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdnwave.org
+Port: 443
+Secret: dd65373b054948c84eb4a74630d4a79b22
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52365
 
@@ -154,33 +181,6 @@ Secret: ee14697011e0c73f03e95d7b6919a2252b73756b61726933302e746964656c61726b2e63
 Server: ghoghnoos.ir.awedsj.info.
 Port: 7443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52348
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: male21.mosswren.vip
-Port: 443
-Secret: eeb8e5365580b9ad3c2ee355dfcbc245e56d616c6532312e6d6f73737772656e2e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52346
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tg.surfvpn.info
-Port: 443
-Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/08/05 22:39
+📅 آخرین بروزرسانی: 1405/08/06 02:29
 
 ---
+
+## tasiyanc — post 10317
+
+<div align="center"><video src="files/post_10317_tasiyanc_10317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10317_tasiyanc_10317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو کمتر دیده شده از سفر ملکه الیزابت به ایران در دوران شاهنشاه آریامهر سال ۱۳۳۹
+
+سفری که عظمت و شکوه ایران ملکه و انگلیس را از چیزی ترساند !
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10316
+
+<div align="center"><img src="files/post_10316_tasiyanc_10316.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این جزیره کوچولو یکی از زندانای نروژ 🇳🇴 هست
+
+که زندانیا هرکاری می‌خوان میتونن بکن جز اینکه تو کون هم انگشت نکنن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10314
+
+<div align="center"><video src="files/post_10314_tasiyanc_10314.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10314_tasiyanc_10314.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کنسرت خیابونی گروه «لیان» در کیش حسابی تندروهارو فشاری کرده و معتقدن اینا همش تقصیر مسعوده😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10308
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 OpenVPN - کانفیگ نامحدود
+
+🇦🇪
+🇩🇪
+🇳🇱
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10306
+
+<div align="center"><video src="files/post_10306_tasiyanc_10306.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10306_tasiyanc_10306.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کشور لتونی🇱🇻 برای چهارمین سال متوالی با کمبود شدید مرد مواجه شده. بطوری که پدر و مادر دخترا حاضرن فقط برای اینکه یه پسر با دخترشون باشه (حتی ازدواج هم نکنه مهم نیست) بهش پول یا طلا بدن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10305
 
@@ -272,78 +334,6 @@ IMAGE FORMAT: 3:
 آموزش استفاده 
 ➡️
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10285
-
-<div align="center"><video src="files/post_10285_tasiyanc_10285.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10285_tasiyanc_10285.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 قوه قضاییه برای رستوران بی‌بی که وایرال شده بود پرونده قضایی تشکیل داد ، پیج اینستاگرام رستوران بسته شد و رستوران پلمپ شد
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10284
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Barcelona 🇪🇸.ovpn
-</div>
-
-## tasiyanc — post 10283
-
-<div align="center"><video src="files/post_10283_tasiyanc_10283.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10283_tasiyanc_10283.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی نامحدود OpenVpn 
-📶
-
-آموزش اتصال 
-
-دانلود برای اندروید
-
-دانلود برای آیفون
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-Location 
-🇪🇸 
-🇪🇸 Catalunya
-
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 10280
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
-</div>
-
-## tasiyanc — post 10272
-
-<div align="center"><video src="files/post_10272_tasiyanc_10272.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10272_tasiyanc_10272.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوری میشه انقد حرومزاده باشی؟
-
-🚨 این پسر تیک تاکر حرومزاده به اسم آران‌ به یه دختر بچه ۶ ساله تجاوز کرده طبق چت‌هاش
-
-ماجرا از این قراره که یه دختر بچه ۶ ساله که فامیلشون بود اومد خونشون. بعد این بی همه چیز به دوستاش تو گروه میگه:
-این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
 
 💋 @Tasiyanc
 </div>

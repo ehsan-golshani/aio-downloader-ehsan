@@ -1,8 +1,91 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/05 22:39
+📅 آخرین بروزرسانی: 1405/08/06 02:29
 
 ---
+
+## tasiyanc — post 10889
+
+<div align="center"><img src="files/post_10889_tasiyanc_10889.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ ملوان - تراکتور
+🌎 ساعت ۱۷:۰۰
+⚽️ سپاهان - شمس آذر قزوین
+🌎 ساعت ۱۷:۳۰
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r26
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی صرافی ایرانی
+
+🔵 این روزها که بحث تحریم صرافی‌ها و محدودیت دسترسی به دارایی‌های دیجیتال داغ شده، انتخاب محل مناسب برای تبدیل ارز اهمیت بیشتری پیدا کرده.
+پیشنهاد شخصی من برای تبدیل و معامله‌ی دارایی‌های دیجیتال، صرافی تبدیل هست. البته پیشنهاد می‌کنم مثل هر پلتفرم دیگه‌ای، قبل از استفاده شرایط و ریسک‌هاش رو بررسی کنید.
+
+🔗 https://tabdeal.org/
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10887
+
+<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
+</div>
+
+## tasiyanc — post 10885
+
+<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢
+🦁به جمع کاربران لوکس ما بپیوندید🦁
+❤️‍🔥بری‌بت❤️‍🔥
+
+😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
+🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
+💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
+🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
+
+💻 ورود به سایت 👇
+⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+🦁 کانال تلگرام: 🅰25
+⚫️https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10884
 
@@ -249,87 +332,5 @@ G25🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G24🅰 🛒 ورود به سایت 👇 ✅ https://leworkcihsa.shop/fa/affiliates/…
-</div>
-
-## tasiyanc — post 10868
-
-<div align="center"><img src="files/post_10868_tasiyanc_10868.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G24🅰
-🛒 ورود به سایت 👇
-✅ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10867
-
-<div align="center"><video src="files/post_10867_tasiyanc_10867.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10867_tasiyanc_10867.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این چوپان اهل خراسان شمالی یه کوزه سکه طلا پیدا کرده، تحویل داده و با افتخار هم تعریف می‌کنه!
-
-+بعضیا انقدر خنگن که اگه حماقت طلا بود، خودشون یه گنج ملی بودن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10866
-
-<div align="center"><video src="files/post_10866_tasiyanc_10866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10866_tasiyanc_10866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون فر بخوره / زن متاهل ایرانی که بازیگر فیلم‌های پورن بود با تتو های بدنش لو رفت !
-زن متأهلی که مخفیانه از طریق فیلم‌های پورن درآمدزایی می‌کرد، وقتی همسرش قضیه رو میفهمه با ویدیویی از خودش روبه‌رو میشه، همه‌چیز را انکار میکنه؛ تا اینکه تتوهای بدنش هویتش را لو میدن!
-یه بچه هم داشتن که با آزمایش DNA مشخص میشه باباش مرده نیست ، در نهایت فرار زن به دبی و ماندن مرد با شکایت و حقیقتی که زندگی‌اش را زیرورو کرد…
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10865
-
-<div align="center"><img src="files/post_10865_tasiyanc_10865.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جنایتی تازه که مشهد رو در شوک فرو برد!
-
-یه دختر ۱۶ ساله به اسم یگانه حسین‌زایی توی مشهد، به فجیع‌ترین شکل ممکن توسط شوهرش به قتل رسید!
-تمام انگشتای یگانه و استخوان‌های دستش خرد شده بود! همچنان شوهرش با کابل جوری کتکش زده بود که کل بدنش کبود بود و چهره‌اش قابل تشخیص نبود!
-یگانه رو از ۱۰ سالگی به عقد پسرعمه‌اش درآورده بودن. یگانه از سه سالگی پدرشو از دست داد و مادرشم یگانه رو به مادر و پدربزرگش سپرد و خودش ازدواج کرد!
-پدربزرگِ یگانه وقتی فوت شد، اموالش به یگانه رسید، برای همین پسر عمه‌اش، باهاش ازدواج کرد تا اموالش رو بالا بکشه!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10864
-
-<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
-💵
-🛍
-👆
 </div>
 
