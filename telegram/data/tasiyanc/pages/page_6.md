@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10945
+
+<div align="center"><img src="files/post_10945_tasiyanc_10945.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مهدی خراتیان کارشناس صداوسیما:
+
+«سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
+
+یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10943
 
@@ -282,20 +296,5 @@ G29🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10923
-
-<div align="center"><video src="files/post_10923_tasiyanc_10923.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10923_tasiyanc_10923.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این یارو دیگه چه حرومزاده‌ایه؟!
-
-همکلاسی دبستانی دخترش می‌اومده خونه‌شون درس بخونه و بازی کنه، اینم بهش علاقه‌مند می‌شه؛ سال‌ها بعد زنشو طلاق می‌ده و با همون دختر ازدواج می‌کنه!
-
-خب کسکش مگه قحطی آدم اومده بود؟! 🤦🏻‍♂️ هم‌سن‌وسال خودت کم بود، رسیدی به همکلاسی بچه‌ت؟! این حجم از بی‌شرمی و عادی سازی اینجور کثافت کاریا دیگه واقن پشم ریزونه
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10799
+
+<div align="center"><video src="files/post_10799_tasiyanc_10799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10799_tasiyanc_10799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐
+
+همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
+
+دقیقاً با توعم!🫥
+
+📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+🅰g19
+https://t.me/+A6R70wBCKApkYTRk
+https://t.me/+A6R70wBCKApkYTRk
+
+🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
 
 ## tasiyanc — post 10798
 
@@ -324,15 +345,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 
 🆔@Aron_tip 🆔 @Aron_tip
 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖رونمایی از تندیس زیبای شمس تبریزی در خوی
-
-پ ن : برا اولین بار مجسمه به این زیبایی دیدیم
-
-⚡ @Tasiyanc
 </div>
 

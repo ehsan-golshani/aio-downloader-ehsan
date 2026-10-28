@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 186
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 5799
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+@Tasiyanc 💝.npvt
+</div>
 
 ## tasiyanc — post 5798
 
@@ -172,11 +178,5 @@ kiwi Speed 🥝.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نگران نباشید منو دارین منم شمارو ❤️
-</div>
-
-## tasiyanc — post 5778
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اینترنت سرش یکم گرد شد
 </div>
 

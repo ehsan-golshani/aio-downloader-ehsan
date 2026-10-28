@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10861
+
+<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
+
+مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10860
 
@@ -238,21 +253,6 @@ https://t.me/+EADakrBU74wyOGVk
 🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
 
 تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10841
-
-<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جاده مرگ ایران بشناسید ؛
-اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
-
-جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
 
 💋 @Tasiyanc
 </div>

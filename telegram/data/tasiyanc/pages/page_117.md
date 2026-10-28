@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 117
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 8072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴گزارش‌های اولیه حاکی از آن است که نیروگاه «کیش» در استان هرمزگان ایران توسط یک موشک هدف قرار گرفت و تجهیزات آن آسیب دید. قطعی برق پیش‌بینی می‌شود. @TasiyanProxy✅
+</div>
 
 ## tasiyanc — post 8070
 
@@ -272,15 +278,6 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨ارتش اسراییل تقه محکمی به کفر تبنیت جنوب لبنان زد
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 8010
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قضیه داره پیچیده میشه
-🚨حمله موشکی حوثی ها به فرودگاه بین‌المللی «ابها» در جنوب عربستان
-
 @Tasiyanc ⭐️
 </div>
 

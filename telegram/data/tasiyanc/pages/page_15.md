@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال #بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10755
 
@@ -271,25 +282,5 @@ https://t.me/+tRN5PSCR5uQ4YmE0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+5cdraE3AwpgyOTlk https://t.me/+5cdraE3AwpgyOTlk 🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
-</div>
-
-## tasiyanc — post 10736
-
-<div align="center"><img src="files/post_10736_tasiyanc_10736.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+5cdraE3AwpgyOTlk
-https://t.me/+5cdraE3AwpgyOTlk
-
-🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
 </div>
 

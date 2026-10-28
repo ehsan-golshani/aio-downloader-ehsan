@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10715
+
+<div align="center"><img src="files/post_10715_tasiyanc_10715.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩پاییز امسال چه پارچه‌هایی ترندن؟
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10714
 
@@ -328,18 +340,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10691
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
-💖اسپانسر لالیگا و سری آ ایتالیا💖
-
-👑شارژ اول و هر شنبه دوبل شارژ می شوید
-✔️بدون نیاز به فیلترشکن
-
-ادرس عضویت کانال:👇
-▪️https://t.me/+1zHLYMANkAEwODBi
 </div>
 

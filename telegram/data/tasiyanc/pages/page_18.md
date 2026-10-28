@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10691
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▪️اپلیکیشن حرفه ای اندروید کمپانی بین المللی وان ایکس بت✔️
+💖اسپانسر لالیگا و سری آ ایتالیا💖
+
+👑شارژ اول و هر شنبه دوبل شارژ می شوید
+✔️بدون نیاز به فیلترشکن
+
+ادرس عضویت کانال:👇
+▪️https://t.me/+1zHLYMANkAEwODBi
+</div>
 
 ## tasiyanc — post 10690
 
@@ -291,18 +304,5 @@ https://t.me/+ha2KmA-UHioxNDI0
 🚨یادی کنیم از ویدیو وایرال شده کنسرت بانو سابرینا کارپنتر که وسطای اجرا چشمش به یه ایرانی میخوره و دیالوگ جالبی بینشون شکل میگیره 😂
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10671
-
-<div align="center"><video src="files/post_10671_tasiyanc_10671.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10671_tasiyanc_10671.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه اینجا مدرسه اس , پس جایی که ما درس خوندیم چیه ؟
-
-
-⚡ @Tasiyanc
 </div>
 

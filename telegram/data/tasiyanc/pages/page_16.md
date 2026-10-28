@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/06 19:42
+📅 آخرین بروزرسانی: 1405/08/07 00:14
 
 ---
+
+## tasiyanc — post 10736
+
+<div align="center"><img src="files/post_10736_tasiyanc_10736.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+5cdraE3AwpgyOTlk
+https://t.me/+5cdraE3AwpgyOTlk
+
+🎯نمونه سود 5 ملیونی ما از میکس دیشب اروپا💵🅰15g
+</div>
 
 ## tasiyanc — post 10735
 
@@ -271,17 +291,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r14
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 10715
-
-<div align="center"><img src="files/post_10715_tasiyanc_10715.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤩پاییز امسال چه پارچه‌هایی ترندن؟
-
-
-
-⚡ @Tasiyanc
 </div>
 
