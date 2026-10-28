@@ -1,8 +1,138 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/06 11:59
+📅 آخرین بروزرسانی: 1405/08/06 19:42
 
 ---
+
+## tasiyanc — post 10881
+
+<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G25🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10880
+
+<div align="center"><img src="files/post_10880_tasiyanc_10880.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرکت پشم افکن دیگر از آموزش‌پرورش
+
+🔵ظاهراً «آخوندک» هم زیادی حساسیت‌برانگیز بوده، تغییرش دادن به «راهِبَک»!
+وقتی به‌جای حل مشکلات کشور، دغدغه اینه که مبادا اسم یه حشره به کسی بربخوره!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10879
+
+<div align="center"><video src="files/post_10879_tasiyanc_10879.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10879_tasiyanc_10879.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سازمان ملل هم نمی‌تونست این‌جوری داماد رو خلع‌سلاح کنه!
+
+مهریه و شروط عقد این عروس رسماً پکیج کامل تصاحب داماده:
+یه سرویس طلای کامل
+444 سکه تمام بهار آزادی
+تمام وسایل خونه
+نصف هر ملکی و املاکی و ماشین که بعد از ازدواج بخره
+تمام حقوقی مثل حق مسکن و حق طلاق برای عروس!
+فقط قلاده و دهن‌بند آقا داماد از قلم افتاده؛ وگرنه قرارداد از این کامل‌تر نمی‌شد!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10878
+
+<div align="center"><video src="files/post_10878_tasiyanc_10878.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10878_tasiyanc_10878.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 
+🔥 مسابقات امروز 
+👍 ⚽️ اسپانیول - اتلتیکو مادریو 
+🌎 ساعت ۱۵:۳۰ ⚽️ رئال بتیس - بارسلونا 
+🌎 ساعت ۲۰:۰۰ ﻿ 
+💸 ضرایب ویژه و رقابتی 
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
+
+## tasiyanc — post 10877
+
+<div align="center"><img src="files/post_10877_tasiyanc_10877.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+
+🔥 مسابقات امروز 
+👍
+
+⚽️ اسپانیول - اتلتیکو مادریو
+
+🌎 ساعت ۱۵:۳۰
+⚽️ رئال بتیس - بارسلونا
+
+🌎 ساعت ۲۰:۰۰
+﻿
+
+💸 ضرایب ویژه و رقابتی
+
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r25
+
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10876
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشمی براتون نمی‌مونه بخونید / همسرش را به ۱۴ تکه تقسیم کرد؛ خانواده مقتول هم رضایت دادند!
+
+•مردی که همسرش را به اتهام خیانت به قتل رسانده و جسدش را تکه‌تکه کرده و داخل چمدان گذاشته بود، چند روز بعد خودش را در تهران به پلیس معرفی کرد.
+
+•اما شوکه‌کننده‌ترین بخش ماجرا، واکنش خانواده مقتول بود!
+قاتل پیش از جنایت، مدارکی از خیانت‌های همسرش جمع‌آوری کرده و به خانواده او داده بود. خانواده هم بارها به دخترشان تذکر داده بودند.
+اما وقتی پلیس خبر قتل دخترشان را به آن‌ها داد، همون لحظه اعلام رضایت کردند!
+حالا قاتل به‌دلیل جنبه عمومی جرم در زندان است و طبق روایت منتشرشده، احتمال آزادی او مطرح شده است.
+« منبع : وحید ناصری بازپرس دادسرای جنایی تهران »
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10875
 
@@ -233,89 +363,6 @@ G24🅰
 🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
 
 مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
-</div>
-
-## tasiyanc — post 10859
-
-<div align="center"><img src="files/post_10859_tasiyanc_10859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
-
-🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
-
-🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
-
-🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
-⏰ ۱ تا ۱۵ اکتبر
-🏆 جایزه برای 0️⃣5️⃣ نفر برتر
-👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
-
-🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
-
-🏢 ورود به سایت 👇
-⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-✈️ کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10858
-
-<div align="center"><video src="files/post_10858_tasiyanc_10858.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10858_tasiyanc_10858.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 دیروز یه کشتی تو تنگه هرمز که پر از کانتینر موبایل آیفون و ادکلن بود رفت روی مین سپاه و منفجر شد.
-
-حالا مردم ایران ریختن اونجا و هر چی آیفون و ادکلن هست رو دارن غنیمت برمیدارن و با خودشون میارن داخل کشور.
-طبق گفته برخی منابع، یه ایرانی با خودش 300 تا آیفون و 1000 تا ادکلن آورده!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10857
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+EhV1Lz5aPVVlNWI0 https://t.me/+EhV1Lz5aPVVlNWI0 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 10856
-
-<div align="center"><img src="files/post_10856_tasiyanc_10856.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+EhV1Lz5aPVVlNWI0
-https://t.me/+EhV1Lz5aPVVlNWI0
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰g23
-</div>
-
-## tasiyanc — post 10855
-
-<div align="center"><video src="files/post_10855_tasiyanc_10855.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10855_tasiyanc_10855.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده / دیروز توی مشهد مَردی به مناسبت روز دختر، لندکروزِ 70 میلیارد تومنی رو برده بود جلوی یه مدرسه دخترونه تا اونا هرچیزی را که دلشون می‌خواد با ماژیک روی ماشین بِکشن...
 
 
 ⚡ @Tasiyanc

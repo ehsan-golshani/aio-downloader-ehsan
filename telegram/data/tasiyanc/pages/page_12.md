@@ -1,8 +1,84 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/06 11:59
+📅 آخرین بروزرسانی: 1405/08/06 19:42
 
 ---
+
+## tasiyanc — post 10820
+
+<div align="center"><img src="files/post_10820_tasiyanc_10820.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 برداشت ریالی از صرافی های (نوبیتکس، بیت‌پین، ارزاینجا، تترلند و رمزینکس ) متوقف شده؛
+
+خبرگزاری فارس اعلام کرد از ساعت ۱۶ امروز، خدمات بانکی و واریز و برداشت وجه برای ۵ پلتفرم رمزارزی محدود شده است.
+نوبیتکس اعلام کرده این تصمیم به خاطر خودداری صرافی‌ها از ارائه اطلاعات کاربران و دفاع از حریم خصوصی آن‌ها اتخاذ شده است.
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10819
+
+<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
+
+از اخر اول شدیم 🗿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10818
+
+<div align="center"><video src="files/post_10818_tasiyanc_10818.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10818_tasiyanc_10818.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از تبلیغ جدید بانو سیدنی سویینی
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g20 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10816
+
+<div align="center"><video src="files/post_10816_tasiyanc_10816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10816_tasiyanc_10816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐
+
+همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
+
+دقیقاً با توعم!🫥
+
+📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+🅰g20
+https://t.me/+A6R70wBCKApkYTRk
+https://t.me/+A6R70wBCKApkYTRk
+
+🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10815
+
+<div align="center"><video src="files/post_10815_tasiyanc_10815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10815_tasiyanc_10815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تو تجمعات شبانه دیشبِ تبریز؛
+یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10814
 
@@ -196,84 +272,5 @@ https://t.me/+A6R70wBCKApkYTRk
 https://t.me/+A6R70wBCKApkYTRk
 
 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10798
-
-<div align="center"><img src="files/post_10798_tasiyanc_10798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مثل اینکه بانو جنیفر لوپز، ۵۷ ساله، تو ازدواجش با بن افلک یه بند تو قرار داد ازدواجش داشته اونم این بوده که «حداقل ۴ روز در هفته رابطه جنسی داشته باشن»
-
-بن افلک هم بعد اینکه دید داره کمر نابود میشه فرار رو بر قرار ترجیح داد....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10797
-
-<div align="center"><video src="files/post_10797_tasiyanc_10797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10797_tasiyanc_10797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال شده از یک مدرسه پسرونه که معلم داره درس میده و دانش آموزان دور هم جمع شدن کله‌پاچه میزنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😀میکس مطمئن امشب           🏴󠁧󠁢󠁥󠁮󠁧󠁿منچستر سیتی🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿 ليورپول          🏴󠁧󠁢󠁥󠁮󠁧󠁿کریستال پالاس🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿ناتینگهام                باضریب⬅️ 2.78 📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1393 دلار🔥                                  ⬇️👇⬇️            …
-</div>
-
-## tasiyanc — post 10795
-
-<div align="center"><img src="files/post_10795_tasiyanc_10795.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😀میکس مطمئن امشب 
-         🏴󠁧󠁢󠁥󠁮󠁧󠁿منچستر سیتی🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿 ليورپول
-         🏴󠁧󠁢󠁥󠁮󠁧󠁿کریستال پالاس🆚🏴󠁧󠁢󠁥󠁮󠁧󠁿ناتینگهام
-        
-     
-باضریب⬅️ 2.78 📊 گذاشتماینجا حتما استفاده کنید💎
-
-💵خودم 500دلار زدم که میشه 1393 دلار🔥
-                                 ⬇️👇⬇️
-            🚫فرم VIP رایگان شرطبندی↙️
-
-رفقا اینجا عضو بشین و سود کردن یاد بگیرین👇🅰r19
-https://t.me/+6L9plEThEMk5YTJk
-https://t.me/+6L9plEThEMk5YTJk
-            💎
-💯   100درصد وینه
-💯💎
-</div>
-
-## tasiyanc — post 10794
-
-<div align="center"><video src="files/post_10794_tasiyanc_10794.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10794_tasiyanc_10794.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز October 11، روز جهانی دختره 🔵
-
-این روزو به دختر خوش قلب و ماهی که برات مهمه تبریک بگو .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از حدیث ستاری، دندانپزشک و مدل ایرانی در مسابقات میس گلوبال، در بخش لباس‌ملی با طرحی به نام «پرشیا» روی صحنه درخشید؛ لباسی الهام‌گرفته از شکوه ایران باستان که جلوه‌ای از تاریخ و هویت ایران را به نمایش گذاشت.
-
-
-💋 @Tasiyanc
 </div>
 

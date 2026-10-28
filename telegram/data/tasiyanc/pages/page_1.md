@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/06 11:59
+📅 آخرین بروزرسانی: 1405/08/06 19:42
 
 ---
+
+## tasiyanc — post 11044
+
+<div align="center"><img src="files/post_11044_tasiyanc_11044.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 خوشتیپ‌ترین مردای جهان در سال ۲۰۲۶ معرفی شدن؛ ایران حتی تو لیست هم نیست!
+
+طبق این رتبه‌بندی، مردای اسپانیا 🇪🇸رتبه اول رو گرفتن؛ اما خبری از ایران توی این لیست نیست!
+
+ما رو کلاً از قلم انداختن یا سلیقه‌شون مشکل داره؟
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
+</div>
+
+## tasiyanc — post 11042
+
+<div align="center"><img src="files/post_11042_tasiyanc_11042.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6
+
+https://t.me/+VmekrTukXnphNmU0
+https://t.me/+VmekrTukXnphNmU0
+
+🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
+</div>
+
+## tasiyanc — post 11041
+
+<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11039
+
+<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11038
 
@@ -31,8 +96,6 @@
 </div>
 
 ## tasiyanc — post 11036
-
-<div align="center"><a href="files/post_11036_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن MelBet 🥇
@@ -182,75 +245,5 @@
 برنده 2.000.000 میلیون شوید 🔹
 
 ✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11024
-
-<div align="center"><img src="files/post_11024_tasiyanc_11024.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار فوق حساااااس شباب الاهلی🇰🇼 و استقلال 🔵رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g5
-</div>
-
-## tasiyanc — post 11023
-
-<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
-
-قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
-بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11022
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری آیزنکوت رقیب انتخاباتی نتانیاهو :
-
-مردم ایران باید خودشون از داخل رژیمشون تغییر ایجاد کنن؛ اینکه ما بخوایم با حمله ی نظامی رژیم ایران رو تغییر بدیم کار درستی نیست، ما نباید دخالتی کنیم این به خود مردم ایران بستگی داره که میخوان چیکار کنن.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11019
-
-<div align="center"><img src="files/post_11019_tasiyanc_11019.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛
-ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
-ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
-💋 @Tasiyanc
 </div>
 
