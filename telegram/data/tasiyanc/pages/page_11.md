@@ -1,8 +1,81 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/06 02:29
+📅 آخرین بروزرسانی: 1405/08/06 11:59
 
 ---
+
+## tasiyanc — post 10834
+
+<div align="center"><video src="files/post_10834_tasiyanc_10834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10834_tasiyanc_10834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدئوی وایرال شده از‌ مراسم جشن فارغ التحصیلی دانشگاه چمران اهواز
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10833
+
+<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10830
+
+<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
+
+https://t.me/+zhWRXOtmyEE5ZjVk
+https://t.me/+zhWRXOtmyEE5ZjVk
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10829
+
+<div align="center"><video src="files/post_10829_tasiyanc_10829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10829_tasiyanc_10829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جدیدا هرکی میخواد وایرال شه دسـت به دامان فـوتــ‌فتـیش‌ها یا کون فـتیشا میشه؛ از پا ، رون سفید ، باسن برای دیدن شدن استفاده می‌کنه ، مثل این کلوچه فروشی رشتی که تونسته ویو میلیونی بگیره :
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10828
 
@@ -195,76 +268,6 @@ https://t.me/+A6R70wBCKApkYTRk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 تو تجمعات شبانه دیشبِ تبریز؛
 یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10814
-
-<div align="center"><video src="files/post_10814_tasiyanc_10814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10814_tasiyanc_10814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا کانفیگ OPEN VPN 🌟
-
-سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
-
-دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10810
-
-<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10809
-
-<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
-
-پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
-
 
 ⚡ @Tasiyanc
 </div>

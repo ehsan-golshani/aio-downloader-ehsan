@@ -1,8 +1,102 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/06 02:29
+📅 آخرین بروزرسانی: 1405/08/06 11:59
 
 ---
+
+## tasiyanc — post 10684
+
+<div align="center"><img src="files/post_10684_tasiyanc_10684.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴امروز 4 October, روز جهانی حیواناته.
+
++این روز رو به حیوون ترین و زبون نفهم ترین آدم زندگیت تبریک بگو
+
+
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10682
+
+<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10681
+
+<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10680
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
+
+## tasiyanc — post 10679
+
+<div align="center"><img src="files/post_10679_tasiyanc_10679.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💰 یکشنبه‌ای که با یک انتخاب شروع می‌شود و با چندین شگفتی تمام! ⚽️🔥
+امروز ۱۲ مهر ۱۴۰۵، لیگ ملت‌های اروپا از ساعت ۱۶:۳۰ استارت می‌خورد و در ادامه، موج بازی‌ها در ساعت‌های ۱۹:۳۰ و ۲۲:۱۵ شب فوتبالی پرهیجانی می‌سازد.
+اما سؤال امروز اینجاست:
+
+👀 کدام تیم روی کاغذ مدعی است، اما ممکن است همه را غافلگیر کند؟
+از بین بازی‌های امروز یکی را انتخاب کن و قبل از شروع مسابقه ثبتش کن
+
+🥾 بونوس‌های فعال:
+0️⃣0️⃣3️⃣🔣 3️⃣ اولین واریز
+0️⃣0️⃣2️⃣🔣 2️⃣ دومین واریز
+0️⃣0️⃣1️⃣🔣 1️⃣ سومین واریز
+
+🛒 دانلود مستقیم اپلیکیشن اندروید
+
+🛰️ آدرس ثابت وبسایت
+
+📱 عضویت کانال تلگرام
+
+📷 مشاهده پروفایل اینستاگرام
+
+لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰11
+</div>
 
 ## tasiyanc — post 10678
 
@@ -203,80 +297,5 @@ https://AmitisBet.com/
 📷 مشاهده پروفایل اینستاگرام
 
 🔰لطفاً برای ورود، فیلترشکن را روشن کنید و سرور را روی کشورهای آسیایی یا آلمان قرار دهید.🅰10
-</div>
-
-## tasiyanc — post 10663
-
-<div align="center"><video src="files/post_10663_tasiyanc_10663.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10663_tasiyanc_10663.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون فر بخوره ویدیو وایرال شده از بانوان پولدار تهرانی که میرن توی یه سرس کلاس ها شرکت میکنن پول میدن تا برن اونجا گریه کنن و تخلیه بشن.
-
-یسری انقدر پولدارن که نمیدونن پولاشونو چیکار کنن 😒
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10662
-
-<div align="center"><video src="files/post_10662_tasiyanc_10662.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10662_tasiyanc_10662.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10661
-
-<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
-
-+اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10660
-
-<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+VGH5xHispzJlMjM8
-https://t.me/+VGH5xHispzJlMjM8
-</div>
-
-## tasiyanc — post 10658
-
-<div align="center"><img src="files/post_10658_tasiyanc_10658.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
-
-https://t.me/+VGH5xHispzJlMjM8
-https://t.me/+VGH5xHispzJlMjM8
-
-🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵🅰 g10
 </div>
 

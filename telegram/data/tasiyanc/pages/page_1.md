@@ -1,12 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/06 02:29
+📅 آخرین بروزرسانی: 1405/08/06 11:59
 
 ---
 
-## tasiyanc — post 11032
+## tasiyanc — post 11038
 
-<div align="center"><a href="files/post_11032_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نقی بیا پشمات بریزه !
+
+نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11037
+
+<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵  کانال 14 اسرائیل:
+
+نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11036
+
+<div align="center"><a href="files/post_11036_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11035
+
+<div align="center"><img src="files/post_11035_tasiyanc_11035.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوووق حسااااس لیورپول و چلسی رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو پر بازدید از یه طرفدار رئال رفته جلوی محل تمرین رئال مادرید و فیلم گرفته ببینه کدوم بازیکنا زودتر از بقیه می‌رسن؛ نفر اول هم مورینیوئه!
+
+ماشین‌هاشونم ببینید :)
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آخرین آمار نتایج انتخابات اسرائیل:
+۴۹.۷ درصد آرا شمرده شده (حدود 3 میلیون رای) که ائتلاف نتانیاهو 56 کرسی؛ ائتلاف آیزنکوت 49 کرسی و احزاب عرب 15 کرسی رو بدست آوردن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11032
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
@@ -175,97 +252,5 @@
 ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
 ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11018
-
-<div align="center"><video src="files/post_11018_tasiyanc_11018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11018_tasiyanc_11018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از ترسناک‌ترین سیارات کشف‌شده در کیهان؛ سیاراتی عجیب و باورنکردنی که هرگز تصورش را هم نمی‌کردید وجود داشته باشند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11017
-
-<div align="center"><video src="files/post_11017_tasiyanc_11017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11017_tasiyanc_11017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مومیایی روزالیا لومباردو ، دختر کوچکی که پس از بیش از ۱۰۰ سال هنوز چهره‌ای شبیه به زمان حیاتش دارد!
-
-روزالیا در سال ۱۹۲۰، در حدود دو سالگی بر اثر ذات‌الریه از دنیا رفت؛ اما پدرش که نتوانست با مرگ دختر کوچکش کنار بیاد به کمک روش خاص مومیایی‌سازی،تونسته تا به امروز چهره دخترش را حفظ کند
-مومیایی او در دخمه‌های کاپوچین شهر پالرمو در ایتالیا نگهداری می‌شه؛ جایی که بازدیدکننده‌ها با دیدن چهره‌ی این کودک، انگار با تصویری از گذشته روبه‌رو می‌شن…
-بیش از یک قرن گذشته، اما چهره‌ی کوچکش هنوز یادآور زندگی کوتاهی‌ست که خیلی زود به پایان رسید.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r5
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11014
-
-<div align="center"><video src="files/post_11014_tasiyanc_11014.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11014_tasiyanc_11014.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری 
-🚨ممنوعیت بنزین آزاد جایگاه‌داران در ۱۲ استان اجرا شد!
-
-با اجرای این طرح، سفرهای بین‌استانی می‌تونه برای راننده‌ها - مسافر ها دردسرساز بشه؛ مثلاً با ۱۱۰ لیتر بنزین شخصی خودت از تهران راهی مشهد بشی، اما برای برگشت با مشکل تأمین سوخت مواجه بشی!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
 </div>
 
