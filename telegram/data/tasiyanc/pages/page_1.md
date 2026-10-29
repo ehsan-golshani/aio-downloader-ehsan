@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/07 23:04
+📅 آخرین بروزرسانی: 1405/08/08 03:29
 
 ---
+
+## tasiyanc — post 11066
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 میکس سری‌آ وین شد ✅ آاس رم 🆚 کالیاری — برد رم ✅ ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅ 📈 ضریب میکس: 1.808 🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳 نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7 @…
+</div>
+
+## tasiyanc — post 11065
+
+<div align="center"><img src="files/post_11065_tasiyanc_11065.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 میکس سری‌آ وین شد ✅
+
+آاس رم 🆚 کالیاری — برد رم ✅
+ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅
+
+📈 ضریب میکس: 1.808
+🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳
+
+نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7
+@Tipster_Persians
+</div>
+
+## tasiyanc — post 11064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 فوری
+
+گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
+</div>
+
+## tasiyanc — post 11061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صرافی بایننس هک شد؛ ۲.۶ میلیارد دلار به سرقت رفت و بازار کریپتو ریخت!
+
+بزرگ‌ترین صرافی ارز دیجیتال دنیا هدف یه حمله سایبری سنگین قرار گرفته و طبق گزارش‌ها، ۲.۶ میلیارد دلار از دارایی‌ها به سرقت رفته!
+📉 خبر این هک بازار ارزهای دیجیتال رو به لرزه انداخته و فشار فروش بالا رفته؛ حالا همه چشم‌ها به واکنش بایننس و وضعیت بازار دوخته شده!
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 11059
 
@@ -200,99 +259,5 @@
 
 📱 اپلیکیشن را روی موبایل اندروید خود
 نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11046
-
-<div align="center"><img src="files/post_11046_tasiyanc_11046.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎰 لنز بت بیشترین تنوع در بازیهای کازینویی ، هدایای متفاوت💥
-
-🔣با هر واریز، بونوسی متفاوت و پیشنهادی ویژه در انتظار شماست🔣
-
-🎁 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-
-🏦 کد هدیه 0️⃣2️⃣🫡🔠بعد از واریز
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰6
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://l2enzbet.site/fa
-</div>
-
-## tasiyanc — post 11045
-
-<div align="center"><video src="files/post_11045_tasiyanc_11045.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11045_tasiyanc_11045.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سکانس پایانی یک دیکتاتور؛ از قدرت مطلق تا اعدام به جرم جنایت علیه بشریت!
-
-صدام حسین، مردی که بیش از دو دهه بر عراق حکومت کرد و روزگاری قدرتش منطقه رو تحت‌تأثیر قرار می‌داد، سرانجام بعد از حمله آمریکا به عراق در سال ۲۰۰۳ سقوط کرد و محاکمه شد.
-حکومتی که با جنگ ایران و عراق، حمله به کویت و سرکوب مخالفان گره خورده بود، در نهایت به دادگاه و حکم اعدام ختم شد؛ حکمی که در ۳۰ دسامبر ۲۰۰۶ اجرا شد.
-📌 تاریخ بارها نشون داده که هیچ قدرتی همیشگی نیست…
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11044
-
-<div align="center"><img src="files/post_11044_tasiyanc_11044.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 خوشتیپ‌ترین مردای جهان در سال ۲۰۲۶ معرفی شدن؛ ایران حتی تو لیست هم نیست!
-
-طبق این رتبه‌بندی، مردای اسپانیا 🇪🇸رتبه اول رو گرفتن؛ اما خبری از ایران توی این لیست نیست!
-
-ما رو کلاً از قلم انداختن یا سلیقه‌شون مشکل داره؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11042
-
-<div align="center"><img src="files/post_11042_tasiyanc_11042.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6
-
-https://t.me/+VmekrTukXnphNmU0
-https://t.me/+VmekrTukXnphNmU0
-
-🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11041
-
-<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
 </div>
 
