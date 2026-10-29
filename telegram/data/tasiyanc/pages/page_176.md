@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 176
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 6072
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+صبحتون بخیر عشقا
+</div>
 
 ## tasiyanc — post 6071
 
@@ -169,12 +175,5 @@ Hot Servers 🔥🌶️.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 @ineedknife آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
-</div>
-
-## tasiyanc — post 6042
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@ineedknife
-آیدی عددی همه چیش مشخص شماره همراه و هر مشخصات دیگه دربیارید بفرستید بهم ۱۰۰ گیگ بگیرید
 </div>
 

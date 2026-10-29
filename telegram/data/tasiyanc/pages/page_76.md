@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 76
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 9229
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 13 آگوست روز جهانی سگ های خیابونیه 😁
+
+@Tasiyanc ⭐️
+</div>
 
 ## tasiyanc — post 9225
 
@@ -219,13 +227,5 @@ https://t.me/+fxq9NcirUag3N2Zk
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امروز ۱۲ آگوست روز جهانی بچه اول خانوادس .
-
-@Tasiyanc 🔋
 </div>
 

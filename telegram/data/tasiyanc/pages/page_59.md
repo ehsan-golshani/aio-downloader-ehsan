@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 9656
+
+<div align="center"><img src="files/post_9656_tasiyanc_9656.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📡 سوغاتی شهرهای ایران در قدیم
+
++شما کدوم شهری سوغاتتون چیه؟
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9653
 
@@ -393,19 +406,5 @@ https://www.novigrad.top
 
 
 🩸 @TASIYANC
-</div>
-
-## tasiyanc — post 9627
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه اهل پیش بینی فوتبال و بت زدن هستی کانال بالارو یه نگاه بنداز
-😉
-
-با ربات هوش مصنوعی فوتبال ماهانه حداقل 50 میلیون درآمد ثابت داری
-🔥
-
-بازی های تبانی فوتبال رو این ربات پیدا می‌کنه و با خیال راحت شرط میبندین😳
-JOIN JOIN JOIN
-JOIN JOIN JOIN
 </div>
 

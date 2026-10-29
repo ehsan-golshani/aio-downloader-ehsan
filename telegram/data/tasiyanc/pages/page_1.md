@@ -1,12 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
 
-## tasiyanc — post 11047
+## tasiyanc — post 11048
 
-<div align="center"><a href="files/post_11047_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+<div align="center"><video src="files/post_11048_tasiyanc_11048.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11048_tasiyanc_11048.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑7 آبان؛ روز بزرگداشت کوروش بزرگ👑
+
+از دل تاریخ، از میان قرن‌ها، نامی برخاسته که هنوز در رگ‌های این سرزمین جاری‌ست؛ کوروش بزرگ، نماد شکوه، آزادگی و عظمت ایران.
+ایران، سرزمین شیران و وارثان تمدنی کهن؛ خاکی که هر وجبش روایتگر هزاران سال افتخار است و نامش تا همیشه در قلب فرزندانش زنده خواهد ماند.
+7 آبان، بر تمام ایرانیان راستین و پاسداران هویت و تاریخ ایران‌زمین خجسته باد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11047
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
@@ -253,11 +267,5 @@ https://t.me/+VmekrTukXnphNmU0
 جناح چپ (آیزنکوت) : 43
 
 +نتانیاهو فعلا پیشتازه
-</div>
-
-## tasiyanc — post 11028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
 </div>
 

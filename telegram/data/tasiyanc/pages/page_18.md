@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10694
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10693
 
@@ -305,23 +317,5 @@ https://AmitisBet.com/
 
 https://t.me/+ha2KmA-UHioxNDI0
 https://t.me/+ha2KmA-UHioxNDI0
-</div>
-
-## tasiyanc — post 10674
-
-<div align="center"><img src="files/post_10674_tasiyanc_10674.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-🤦‍♂️ چند بار دیگه ، باید ببازی تا مدل بت زدنتو عوض کنی؟ 😐😐
-
-دقیقاً با توعم!🫥
-
-📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-
-https://t.me/+ha2KmA-UHioxNDI0
-https://t.me/+ha2KmA-UHioxNDI0
-
-🎯نمونه سود 6 ملیونی ما از میکس رئال + میلان💵🅰g11
 </div>
 

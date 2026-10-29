@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10781
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖بانک ساب لینک های قدرتمند برای اتصال پرسرعت مناسب تمام اینترنت‌ها 🛜🛜🛜🛜🛜🛜
+
+چندین هزار کانفیگ که می‌تونه تا چند هفته کارتون راه بندازه , کانفیگ هارو اضافه کنید تست بگیرید عشق کنید
+
+https://raw.githubuser…rs/refs/heads/main/sub
+https://raw.githubuser…Parse/main/splitted/ss
+https://raw.githubuser…e/main/splitted/trojan
+https://raw.githubuser…se/main/splitted/vless
+https://raw.githubuser…/main/V2RAY_BASE64.txt
+https://raw.githubuser…or/main/mixed_iran.txt
+https://raw.githubuser…or/main/vless_iran.txt
+https://raw.githubuser…ector/main/ss_iran.txt
+https://raw.githubuser…ds/main/ss_configs.txt
+https://raw.githubuser…-Config-By-EbraSha.txt
+https://raw.githubuser…main/vmess_configs.txt
+https://raw.githubuser…main/configs/Vmess.txt
+https://raw.githubuser…/configs/Hysteria2.txt
+https://raw.githubuser…in/configs/Germany.txt
+https://raw.githubuser…s/main/trojan_iran.txt
+https://raw.githubuser…s/main/sub/Mix/mix.txt
+https://raw.githubuser…ed%20States/config.txt
+https://raw.githubuser…ee/kobabi/main/sub.txt
+https://raw.githubuser…obabi/main/sub_all.txt
+https://raw.githubuser…_configs/Hysteria2.txt
+https://raw.githubuser…Protocol/hysteria2.txt
+https://raw.githubuser…ub3/main/merged_base64
+https://raw.githubuser…lit/Normal/shadowsocks
+https://raw.githubuser…n/Split/Normal/reality
+https://raw.githubuser…d/10ium_mixed_iran.txt
+https://raw.githubuser…tput_configs/Vless.txt
+https://raw.githubuser…onfigs/ShadowSocks.txt
+https://raw.githubuser…put_configs/Trojan.txt
+https://raw.githubuser…fs/heads/main/Sub1.txt
+https://raw.githubuser…fs/heads/main/Sub2.txt
+https://raw.githubuser…fs/heads/main/Sub3.txt
+https://github.com/Epo…Configs_base64_Sub.txt
+https://raw.githubuser…y-config/main/Sub1.txt
+https://raw.githubuser…y-config/main/Sub2.txt
+https://raw.githubuser…y-config/main/Sub3.txt
+https://raw.githubuser…y-config/main/Sub4.txt
+https://raw.githubuser…nOfficial#MatnOfficial
+https://raw.githubuser…main/v2ray_configs.txt
+https://raw.githubuser…ds/main/WS%2BHysteria2
+https://raw.githubuser…ram/popular_channels_1
+https://raw.githubuser…ram/popular_channels_2
+https://raw.githubuser…ads/main/subs/hysteria
+https://raw.githubuser…fs/heads/main/subs/hy2
+https://raw.githubuser…s/heads/main/speed.txt
+https://raw.githubuser…eads/main/hys-tuic.txt
+https://raw.githubuser…efs/heads/main/Reality
+https://raw.githubuser…/refs/heads/main/Vless
+https://raw.githubuser…s/main/AzadNet_iOS.txt
+https://raw.githubuser…eads/main/Proxydaemi44
+https://raw.githubuser…-full/actives_all.json
+https://raw.githubuser…y-config/main/Sub6.txt
+https://raw.githubuser…y-config/main/Sub7.txt
+https://raw.githubuser…y-config/main/Sub8.txt
+https://raw.githubuser…-Configs/main/Sub9.txt
+https://raw.githubuser…s/main/v2ray_links.txt
+
+آموزش ویدیویی اضافه کردن ساب لینک‌ها 💖
+سیو کنید لذت ببرید تا یک‌ماه به کانفیگ نیاز ندارید
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10780
 
@@ -276,22 +345,5 @@ https://t.me/+ramzL0orpc5hMTBk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💠برد وستهام یونایتد 💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅ 🅰r17 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10759
-
-<div align="center"><img src="files/post_10759_tasiyanc_10759.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠برد وستهام یونایتد
-
-💠ضریب 1.49
-
-⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
-
-💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅
-🅰r17
-🆔@Aron_tip 🆔 @Aron_tip
-🆔@Aron_tip 🆔 @Aron_tip
 </div>
 

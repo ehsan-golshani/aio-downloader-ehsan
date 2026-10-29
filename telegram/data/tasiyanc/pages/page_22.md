@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10609
+
+<div align="center"><video src="files/post_10609_tasiyanc_10609.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10609_tasiyanc_10609.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سونامی استعفاء معلمان و فریاد از خفقان معیشتی و کمبود درامد
+
+شدیدترین موج استعفا در ایران طی ۷۲ ساعت اخیر رخ داده! طی چند روز اخیر، شدیدترین موج استعفای تاریخ ایران اتفاق افتاده و پرستاران، معلمان و کارمندان به علت حقوق بسیار پایین، از کارشون استعفا دادن! به قدری این موج استفعا شدید بوده که خیلی از بیمارستان‌ها خالی از کادر درمان شده!
+خیلی از کلاس‌های درس هم دیگه معلمی برای آموزش وجود نداره و صدها نفر استعفا دادن.
+‌
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10608
 
@@ -300,20 +315,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴تصاویری شگفت انگیز از هواپیمای AC 130 
 🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10586
-
-<div align="center"><video src="files/post_10586_tasiyanc_10586.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10586_tasiyanc_10586.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
-
-و به همین زیبایی پول مردم رو خوردن
 
 @Tasiyanc
 </div>

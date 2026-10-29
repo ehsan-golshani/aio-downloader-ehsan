@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10885
+
+<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢
+🦁به جمع کاربران لوکس ما بپیوندید🦁
+❤️‍🔥بری‌بت❤️‍🔥
+
+😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
+🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
+💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
+🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
+
+💻 ورود به سایت 👇
+⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+🦁 کانال تلگرام: 🅰25
+⚫️https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10884
 
@@ -318,18 +340,5 @@ G24🅰
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10864
-
-<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
-💵
-🛍
-👆
 </div>
 

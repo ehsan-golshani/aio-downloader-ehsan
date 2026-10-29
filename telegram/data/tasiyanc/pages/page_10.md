@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10864
+
+<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
+💵
+🛍
+👆
+</div>
 
 ## tasiyanc — post 10863
 
@@ -270,20 +283,5 @@ Odd:1.98
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10844
-
-<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
-
-https://t.me/+EADakrBU74wyOGVk
-https://t.me/+EADakrBU74wyOGVk
-
-تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
 </div>
 

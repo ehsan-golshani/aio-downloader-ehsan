@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10718
+
+<div align="center"><video src="files/post_10718_tasiyanc_10718.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10718_tasiyanc_10718.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴صحبتای «وایرال شده» این دختر خانم راجب چیزایی که این روزا خیلی از پسرا درگیرشن ؛
+
+قبول کنید حرف حق رو زد....
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10717
 
@@ -319,17 +333,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 یه دفعه وسط برنامه زنش اومد، گفت سید زودباش ...
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10694
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

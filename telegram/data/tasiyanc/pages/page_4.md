@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10988
+
+<div align="center"><img src="files/post_10988_tasiyanc_10988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده! این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده. 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10987
 
@@ -298,19 +306,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙با نصب اپلیکیشن، بدون نیاز به فیلترشکن به تمامی قسمت‌های سایت دسترسی داشته باشید🌇
-
-▪️اموزش ثبت نام و شارژ و برداشت
-
-1️⃣2️⃣3️⃣
-8️⃣ کد هدیه بونوس 100% برای اولین واریز 💰💰💰👇
-Mn85m
-1️⃣کانال فارسی 1Xbet👇
-📱 @one_Mn85m_xbet
 </div>
 

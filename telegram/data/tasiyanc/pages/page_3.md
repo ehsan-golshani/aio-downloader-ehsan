@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 11008
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+گل زدن العین ⚽️ و تراکتور ⚽️
++برد پاریس ⚽️
+
+برنده 2.300.000 میلیون شوید ☠️
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
 
 ## tasiyanc — post 11007
 
@@ -292,13 +308,5 @@
 🔵 ویدیوی چند دختر بدنساز با استقبال گسترده کاربران وایرال شد!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10988
-
-<div align="center"><img src="files/post_10988_tasiyanc_10988.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده! این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده. 💋 @Tasiyanc
 </div>
 

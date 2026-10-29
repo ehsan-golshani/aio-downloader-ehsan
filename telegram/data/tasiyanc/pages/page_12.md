@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/07 04:03
+📅 آخرین بروزرسانی: 1405/08/07 10:08
 
 ---
+
+## tasiyanc — post 10824
+
+<div align="center"><video src="files/post_10824_tasiyanc_10824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10824_tasiyanc_10824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10823
 
@@ -254,22 +266,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10802
-
-<div align="center"><video src="files/post_10802_tasiyanc_10802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10802_tasiyanc_10802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون فرررر بخوره ، یه پسر ۳۰ ساله وقتی به نامزدش که یه دختر ۲۶ ساله بوده و بعد دو سال نامزدی قرار داشتن چند ماه دیگه ازدواج کنن مشکوک میشه و تعقیبش میکنه؛
-
-میبینه دختره با یه مرد ۶۰ ساله وارد خونه ای میشن که این پسر داشته برای ازدواجشون اماده میکرده.
-وبعد گشتن وسایل دختر متوجه میشه این دختر همزمان صیغه سه تا مرد میانسال دیگه بوده.
-
-
-
-⚡ @Tasiyanc
 </div>
 
