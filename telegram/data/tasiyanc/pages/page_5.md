@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/07 17:22
+📅 آخرین بروزرسانی: 1405/08/07 23:04
 
 ---
+
+## tasiyanc — post 10979
+
+<div align="center"><img src="files/post_10979_tasiyanc_10979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این زوج تایلندی با 58 ساعت و 35 دقیقه بوسیدن ، رکورد جهانی طولانی‌ترین بوسه رو شکستند!
+
+بعد از این همه مدت، دیگه جدایی‌شون نه با قهر، بلکه با کمبود اکسیژن اعلام میکنم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10978
+
+<div align="center"><video src="files/post_10978_tasiyanc_10978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10978_tasiyanc_10978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سرقت خشونت‌آمیز طلاهای یک زن در یکی از مناطق تهران
+
+یک زن هنگام خرید در تهران هدف حمله سارق قرار گرفت و طلاهایش به‌زور سرقت شد.
+در کنار گرانی و فشارهای اقتصادی، حالا امنیت مردم هم زیر سؤال است!
+⚠️ مراقب باشید؛ طلا همراه نبرید و در خیابان گوشی دستتان نگیرید.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد چلسی ⚽️
++برد دورتموند ⚽️
+
+برنده 2.500.000 شوید 🇪🇺
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
 
 ## tasiyanc — post 10976
 
@@ -253,49 +297,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 https://t.me/+J5uvqzBai5A2MmI0
 
 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10959
-
-<div align="center"><video src="files/post_10959_tasiyanc_10959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10959_tasiyanc_10959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 هجوم طوفان شن به دشتیاری چابهار؛ آسمان دشتیاری در محاصره گردوخاک!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10958
-
-<div align="center"><video src="files/post_10958_tasiyanc_10958.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10958_tasiyanc_10958.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یکی از زیباترین جانداران و آب‌زیان اقیانوس رو میبینید !
-
-ماهی «ماندارین» با این ترکیب رنگ خیره‌کننده، انگار مستقیم از دل دنیای فانتزی بیرون اومده!
-
-طبیعت واقعاً توی خلق این موجود سنگ تموم گذاشته!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10957
-
-<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
-
-ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
-
-
-
-⚡ @Tasiyanc
 </div>
 

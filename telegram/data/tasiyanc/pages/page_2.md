@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/07 17:22
+📅 آخرین بروزرسانی: 1405/08/07 23:04
 
 ---
+
+## tasiyanc — post 11039
+
+<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11038
+
+<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نقی بیا پشمات بریزه !
+
+نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11037
+
+<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵  کانال 14 اسرائیل:
+
+نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11036
 
@@ -213,44 +251,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11019
-
-<div align="center"><img src="files/post_11019_tasiyanc_11019.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛
-ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
-ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11018
-
-<div align="center"><video src="files/post_11018_tasiyanc_11018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11018_tasiyanc_11018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از ترسناک‌ترین سیارات کشف‌شده در کیهان؛ سیاراتی عجیب و باورنکردنی که هرگز تصورش را هم نمی‌کردید وجود داشته باشند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11017
-
-<div align="center"><video src="files/post_11017_tasiyanc_11017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11017_tasiyanc_11017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مومیایی روزالیا لومباردو ، دختر کوچکی که پس از بیش از ۱۰۰ سال هنوز چهره‌ای شبیه به زمان حیاتش دارد!
-
-روزالیا در سال ۱۹۲۰، در حدود دو سالگی بر اثر ذات‌الریه از دنیا رفت؛ اما پدرش که نتوانست با مرگ دختر کوچکش کنار بیاد به کمک روش خاص مومیایی‌سازی،تونسته تا به امروز چهره دخترش را حفظ کند
-مومیایی او در دخمه‌های کاپوچین شهر پالرمو در ایتالیا نگهداری می‌شه؛ جایی که بازدیدکننده‌ها با دیدن چهره‌ی این کودک، انگار با تصویری از گذشته روبه‌رو می‌شن…
-بیش از یک قرن گذشته، اما چهره‌ی کوچکش هنوز یادآور زندگی کوتاهی‌ست که خیلی زود به پایان رسید.
-
-💋@Tasiyanc
 </div>
 
