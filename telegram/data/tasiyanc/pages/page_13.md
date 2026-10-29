@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/07 00:14
+📅 آخرین بروزرسانی: 1405/08/07 04:03
 
 ---
+
+## tasiyanc — post 10801
+
+<div align="center"><video src="files/post_10801_tasiyanc_10801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10801_tasiyanc_10801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو ‌وایرال شده از تلاش یه موش برای نجات خودش وسط سیل گرگان:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10800
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g19 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
 
 ## tasiyanc — post 10799
 
@@ -312,38 +331,5 @@ https://raw.githubuser…s/main/v2ray_links.txt
 سیو کنید لذت ببرید تا یک‌ماه به کانفیگ نیاز ندارید
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10780
-
-<div align="center"><video src="files/post_10780_tasiyanc_10780.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10780_tasiyanc_10780.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠هردو تیم گل میزنند_بله 
-💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنیم که جز بهترینا هستیم،بهتون ثابت میکنیم!! کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید
-😍✅ 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10779
-
-<div align="center"><video src="files/post_10779_tasiyanc_10779.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10779_tasiyanc_10779.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠هردو تیم گل میزنند_بله
-
-
-💠ضریب 1.49
-
-⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
-
-💪فقط ادعا نمی‌کنیم که جز بهترینا هستیم،بهتون ثابت میکنیم!! کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید
-😍✅
-
-🆔@Aron_tip 🆔 @Aron_tip
-🆔@Aron_tip 🆔 @Aron_tip
 </div>
 
