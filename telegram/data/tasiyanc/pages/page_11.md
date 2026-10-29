@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10852
+
+<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 15 October، روزِ آدمای بد اخلاقه.
+
+
++این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10851
+
+<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10850
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10849
+
+<div align="center"><img src="files/post_10849_tasiyanc_10849.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰22
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10848
+
+<div align="center"><video src="files/post_10848_tasiyanc_10848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10848_tasiyanc_10848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فیلم بسیار وایرال شده از رانندگی خفن این دختر شیرازی که اکثر پسرا تو کامنتاش پشماشون ریخته بود :
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10847
+
+<div align="center"><img src="files/post_10847_tasiyanc_10847.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فوری، خبرگزاری جماران:
+
+احتمالا از ساعت ۱۲ امشب، قیمت اینترنت ۴۰ درصد افزایش خواهد یافت!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10846
+
+<div align="center"><video src="files/post_10846_tasiyanc_10846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10846_tasiyanc_10846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اینجا میفهمید دقیقا چرا باید عکس بچه‌مونو تو فضای مجازی پست یا استوری کنیم ( حتما ببینید ویدیو رو)
+
+جدیدا یکی از فامیلای من وقتی اینستاگرام میرم ۱۰ تا استوری پشت هم توله سگشو استوری می‌کنه حس می‌کنه همه عاشقشن
+﻿
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10845
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
+</div>
 
 ## tasiyanc — post 10844
 
@@ -174,122 +271,5 @@ https://t.me/+EADakrBU74wyOGVk
 🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10832
-
-<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات های جدید از بانو مگان فاکس
-
-بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
-</div>
-
-## tasiyanc — post 10830
-
-<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
-
-https://t.me/+zhWRXOtmyEE5ZjVk
-https://t.me/+zhWRXOtmyEE5ZjVk
-
-🎯 سود 4 ملیونی از میکس لایو اروپا 💵
-</div>
-
-## tasiyanc — post 10829
-
-<div align="center"><video src="files/post_10829_tasiyanc_10829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10829_tasiyanc_10829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جدیدا هرکی میخواد وایرال شه دسـت به دامان فـوتــ‌فتـیش‌ها یا کون فـتیشا میشه؛ از پا ، رون سفید ، باسن برای دیدن شدن استفاده می‌کنه ، مثل این کلوچه فروشی رشتی که تونسته ویو میلیونی بگیره :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10828
-
-<div align="center"><video src="files/post_10828_tasiyanc_10828.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10828_tasiyanc_10828.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پارت سوم / ویدیو های وایرال شده از حـال و هـوای ویـلاهای شـمـال در پاییـز
-
-📍خزرشـهر
-
-اگر اینا زندگی میکنن قطعا زندگی مارو می‌کنه .
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10827
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10826
-
-<div align="center"><img src="files/post_10826_tasiyanc_10826.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حساااااس منچستر یونایتد و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌✅ Link 🔜 MelBet1.net
-✅‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10825
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 30 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-
-با وارد کردن این فایل داخل نپستر 30 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-
-آموزش اتصال :
-https://t.me/TasiyanVpn/24
-برنامه اندروید:
-https://play.google.com/store/apps/details?id=com.napsternetlabs.napsternetv
-برنامه آیفون :
-https://apps.apple.com/us/app/npv-tunnel/id162946547
-
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,113 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشمی دیگه نمونده بریزه / دنیا داره پیشرفت می‌کنه ماشین پرنده میسازه و کلی چیز دیگه ، صداوسیمای ملی ما « خر » آورده وسط پخش زنده دارن شیرشو میدوشن!
+
+استودیو رو با طویله اشتباه گرفتن؟! بعد انتظار دارن مردمم بشینن این محتوای سسشر نگاه کنن!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10892
+
+<div align="center"><video src="files/post_10892_tasiyanc_10892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10892_tasiyanc_10892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز October 18، روزِ عزیزترین آدم زندگیمونه.
+
++ بفرست واسه کسی که برات مهمه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10891
+
+<div align="center"><video src="files/post_10891_tasiyanc_10891.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10891_tasiyanc_10891.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵با دیدن این پشماتون دیگه ۱۰۰٪ می‌ریزه / دیشب تو تجمعات دلار فیک آتیش زدن و شعار مرگ بر دلار آمریکایی دادن مداح‌ میگه این کاغذ زندگی مردم رو نابود کرده!
+
+نابغه‌های اقتصاد! مشکل کاغذ دلاره یا سیاستی که با آمریکا شاخ‌به‌شاخ می‌شه؟ بعد هزینه‌ی عربده‌کشی‌های شمارو باید ما مردم معمولی بدیم
+با آمریکا گنده‌گویی می‌کنید، سفره‌ی مردم رو کوچک می‌کنید سر همین یه تیکه کاغذ ۵۰۰ درصد تورم کردید تو پاچه مردم بدبخت، بعد با سوزوندن دلار تقلبی ادای پیروزها رو درمیارید؟!
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10890
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ ملوان - تراکتور 🌎 ساعت ۱۷:۰۰ ⚽️ سپاهان - شمس آذر قزوین 🌎 ساعت ۱۷:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
+</div>
+
+## tasiyanc — post 10889
+
+<div align="center"><img src="files/post_10889_tasiyanc_10889.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ ملوان - تراکتور
+🌎 ساعت ۱۷:۰۰
+⚽️ سپاهان - شمس آذر قزوین
+🌎 ساعت ۱۷:۳۰
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r26
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#معرفی صرافی ایرانی
+
+🔵 این روزها که بحث تحریم صرافی‌ها و محدودیت دسترسی به دارایی‌های دیجیتال داغ شده، انتخاب محل مناسب برای تبدیل ارز اهمیت بیشتری پیدا کرده.
+پیشنهاد شخصی من برای تبدیل و معامله‌ی دارایی‌های دیجیتال، صرافی تبدیل هست. البته پیشنهاد می‌کنم مثل هر پلتفرم دیگه‌ای، قبل از استفاده شرایط و ریسک‌هاش رو بررسی کنید.
+
+🔗 https://tabdeal.org/
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10887
+
+<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10886
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
+</div>
 
 ## tasiyanc — post 10885
 
@@ -217,128 +322,5 @@ G25🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
-</div>
-
-## tasiyanc — post 10873
-
-<div align="center"><img src="files/post_10873_tasiyanc_10873.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
-
-🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
-
-🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
-
-🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
-⏰ ۱ تا ۱۵ اکتبر
-🏆 جایزه برای 0️⃣5️⃣ نفر برتر
-👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
-
-🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
-
-🏢 ورود به سایت 👇
-⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-✈️ کانال رسمی ما در تلگرام 👇🅰24
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود بر دوستان و همراهان همیشگی
-
-درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
-</div>
-
-## tasiyanc — post 10870
-
-<div align="center"><video src="files/post_10870_tasiyanc_10870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10870_tasiyanc_10870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵روایت پشم افکن/ 10 بار بارداری برای دختری متولد 1385 !
-
-طبق روایت خانم دکتر، این دختر تاکنون ۳ سقط جنین و ۴ زایمان طبیعی داشته و حالا خودش را برای سومین سزارین آماده می‌کند!
-یعنی دختری که هنوز به ۲۰ سالگی نرسیده، چنین تجربه‌ای از بارداری و زایمان داشته است!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10869
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G24🅰 🛒 ورود به سایت 👇 ✅ https://leworkcihsa.shop/fa/affiliates/…
-</div>
-
-## tasiyanc — post 10868
-
-<div align="center"><img src="files/post_10868_tasiyanc_10868.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G24🅰
-🛒 ورود به سایت 👇
-✅ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10867
-
-<div align="center"><video src="files/post_10867_tasiyanc_10867.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10867_tasiyanc_10867.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این چوپان اهل خراسان شمالی یه کوزه سکه طلا پیدا کرده، تحویل داده و با افتخار هم تعریف می‌کنه!
-
-+بعضیا انقدر خنگن که اگه حماقت طلا بود، خودشون یه گنج ملی بودن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10866
-
-<div align="center"><video src="files/post_10866_tasiyanc_10866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10866_tasiyanc_10866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون فر بخوره / زن متاهل ایرانی که بازیگر فیلم‌های پورن بود با تتو های بدنش لو رفت !
-زن متأهلی که مخفیانه از طریق فیلم‌های پورن درآمدزایی می‌کرد، وقتی همسرش قضیه رو میفهمه با ویدیویی از خودش روبه‌رو میشه، همه‌چیز را انکار میکنه؛ تا اینکه تتوهای بدنش هویتش را لو میدن!
-یه بچه هم داشتن که با آزمایش DNA مشخص میشه باباش مرده نیست ، در نهایت فرار زن به دبی و ماندن مرد با شکایت و حقیقتی که زندگی‌اش را زیرورو کرد…
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10865
-
-<div align="center"><img src="files/post_10865_tasiyanc_10865.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جنایتی تازه که مشهد رو در شوک فرو برد!
-
-یه دختر ۱۶ ساله به اسم یگانه حسین‌زایی توی مشهد، به فجیع‌ترین شکل ممکن توسط شوهرش به قتل رسید!
-تمام انگشتای یگانه و استخوان‌های دستش خرد شده بود! همچنان شوهرش با کابل جوری کتکش زده بود که کل بدنش کبود بود و چهره‌اش قابل تشخیص نبود!
-یگانه رو از ۱۰ سالگی به عقد پسرعمه‌اش درآورده بودن. یگانه از سه سالگی پدرشو از دست داد و مادرشم یگانه رو به مادر و پدربزرگش سپرد و خودش ازدواج کرد!
-پدربزرگِ یگانه وقتی فوت شد، اموالش به یگانه رسید، برای همین پسر عمه‌اش، باهاش ازدواج کرد تا اموالش رو بالا بکشه!
-
-
-💋 @Tasiyanc
 </div>
 

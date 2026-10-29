@@ -1,8 +1,133 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
+
+## tasiyanc — post 10955
+
+<div align="center"><img src="files/post_10955_tasiyanc_10955.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ چادر ملو اردکان - استقلال
+🌎 ساعت ۱۶:۰۰
+⚽️ الومینیوم اراک - ذوب اهن
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r1
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10954
+
+<div align="center"><video src="files/post_10954_tasiyanc_10954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10954_tasiyanc_10954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10953
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁 0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی 💰 کش بک روزانه و هفتگی 🌛 چرخ و فلک ویژه جام جهانی 💣 بالاترین ضرایب پیش بینی 📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱 🕸ورود به سایت: 👇 🪩 https:/…
+</div>
+
+## tasiyanc — post 10952
+
+<div align="center"><video src="files/post_10952_tasiyanc_10952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10952_tasiyanc_10952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁
+
+
+0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی
+
+💰 کش بک روزانه و هفتگی
+
+🌛 چرخ و فلک ویژه جام جهانی
+
+💣 بالاترین ضرایب پیش بینی
+
+
+📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱
+
+🕸ورود به سایت: 👇
+🪩 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+🛫 کانال رسمی ما: 👇🅰30
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10951
+
+<div align="center"><img src="files/post_10951_tasiyanc_10951.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨فوری ‼️ تصویری منتسب به کانال سید مجتبی خامنه‌ای با اشاره به گزینه‌های احتمالی در صورت حمله آمریکا و اسرائیل
+
+در این تصویر، پهپاد، موشک، تنگه هرمز و جنگ منطقه‌ای تیک خورده‌اند. در کنار این موارد، نماد یک تأسیسات هسته‌ای هم دیده می‌شه که گمانه‌زنی‌هایی درباره گزینه بمب هسته‌ای رو مطرح کرده؛ با این حال، نمی‌شه این تصویر رو به‌تنهایی نشونه تهدید به استفاده از بمب اتم دونست.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10950
+
+<div align="center"><video src="files/post_10950_tasiyanc_10950.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10950_tasiyanc_10950.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فورررررری / سیستم «دست مرده روسی» برای جمهوری اسلامی فعال میشه؟!
+
+سیستم «دست مرده» به سازوکاری گفته می‌شه که در صورت کشته شدن فرماندهان کشور مورد حمله قرار گرفته که از پیش تعیین شده به چند کشور متخاصم بمب هسته‌ای میزنه. این سیستم بیشتر با روسیه شناخته می‌شه که در صورت کشته شدن فرماندهان روسی ۴۰۰۰ بمب هسته ای به سراسر پایتخت های اروپا و آمریکا ( NATO ) شلیک می‌شود ☠؛ اما فعال شدنش در ایران هنوز تأیید نشده و با توجه به توییت یکی از خبرنگاران حکومتی مطرح شده !
+بنظرتون ایران بمب اتم داره؟
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10949
+
+<div align="center"><video src="files/post_10949_tasiyanc_10949.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10949_tasiyanc_10949.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ایلان ماسک: احتمال دارد هوش مصنوعی به یک تهدید وجودی برای بشر تبدیل شود!
+
+اما در توان من نیست که بتوانم جلوی آن را بگیرم.
+
+بنابراین، من به این نتیجه رسیدم که دو گزینه پیش رو دارم: یا در این عرصه شرکت کنم یا فقط تماشا کنم.
+
+شرکت کردن در این عرصه جذاب‌تر از تماشا کردن است
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10948
 
@@ -180,120 +305,5 @@ G30🅰
 این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10935
-
-<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
-
-دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G29🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10932
-
-<div align="center"><video src="files/post_10932_tasiyanc_10932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10932_tasiyanc_10932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 دختری که با هدف سرگرمی و کسب درآمد با مردهای مختلف از طریق برخی کانال های صیغه‌یابی اشنا میشد می‌رفت باهاشون سکس میکرد، پس از اطلاع از ابتلا به بیماری ایـــــدز ( HIV ) دچار مشکلات روانی شده و تو آسایشگاه روانی بستریه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10931
-
-<div align="center"><img src="files/post_10931_tasiyanc_10931.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ایلان ماسک با این ادعای پشم‌ریزون دنیا رو تکون داد ❗️
-
-می‌گه تا ۶ الی ۱۲ ماه دیگه، قراره اولین ایمپلنت‌های بینایی نورالینک کاشته بشن؛ فناوری‌ای که شاید حتی به نابیناهای مادرزاد هم کمک کنه برای اولین بار دنیا رو ببینن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10930
-
-<div align="center"><video src="files/post_10930_tasiyanc_10930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10930_tasiyanc_10930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه نفر به چند پیرمرد ماچا می‌ده و ازشون می‌پرسه به نظرتون این چیه؛ جواب‌هاشون حسابی سوژه شده
-
-یه نفرم جای ماچا میکروفون رو میخواست بخوره
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ کومو - منچستر یونایند 🌎 ساعت ۲۰:۱۵ ⚽️ لیل - گالاتاسرای 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
-</div>
-
-## tasiyanc — post 10928
-
-<div align="center"><img src="files/post_10928_tasiyanc_10928.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ کومو - منچستر یونایند
-🌎 ساعت ۲۰:۱۵
-⚽️ لیل - گالاتاسرای
-🌎 ساعت ۲۰:۱۵
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r29
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
 </div>
 

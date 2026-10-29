@@ -1,8 +1,131 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10873
+
+<div align="center"><img src="files/post_10873_tasiyanc_10873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
+
+🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
+
+🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
+
+🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
+⏰ ۱ تا ۱۵ اکتبر
+🏆 جایزه برای 0️⃣5️⃣ نفر برتر
+👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
+
+🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
+
+🏢 ورود به سایت 👇
+⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+✈️ کانال رسمی ما در تلگرام 👇🅰24
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود بر دوستان و همراهان همیشگی
+
+درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
+</div>
+
+## tasiyanc — post 10870
+
+<div align="center"><video src="files/post_10870_tasiyanc_10870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10870_tasiyanc_10870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت پشم افکن/ 10 بار بارداری برای دختری متولد 1385 !
+
+طبق روایت خانم دکتر، این دختر تاکنون ۳ سقط جنین و ۴ زایمان طبیعی داشته و حالا خودش را برای سومین سزارین آماده می‌کند!
+یعنی دختری که هنوز به ۲۰ سالگی نرسیده، چنین تجربه‌ای از بارداری و زایمان داشته است!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10869
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G24🅰 🛒 ورود به سایت 👇 ✅ https://leworkcihsa.shop/fa/affiliates/…
+</div>
+
+## tasiyanc — post 10868
+
+<div align="center"><img src="files/post_10868_tasiyanc_10868.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G24🅰
+🛒 ورود به سایت 👇
+✅ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10867
+
+<div align="center"><video src="files/post_10867_tasiyanc_10867.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10867_tasiyanc_10867.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این چوپان اهل خراسان شمالی یه کوزه سکه طلا پیدا کرده، تحویل داده و با افتخار هم تعریف می‌کنه!
+
++بعضیا انقدر خنگن که اگه حماقت طلا بود، خودشون یه گنج ملی بودن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10866
+
+<div align="center"><video src="files/post_10866_tasiyanc_10866.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10866_tasiyanc_10866.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون فر بخوره / زن متاهل ایرانی که بازیگر فیلم‌های پورن بود با تتو های بدنش لو رفت !
+زن متأهلی که مخفیانه از طریق فیلم‌های پورن درآمدزایی می‌کرد، وقتی همسرش قضیه رو میفهمه با ویدیویی از خودش روبه‌رو میشه، همه‌چیز را انکار میکنه؛ تا اینکه تتوهای بدنش هویتش را لو میدن!
+یه بچه هم داشتن که با آزمایش DNA مشخص میشه باباش مرده نیست ، در نهایت فرار زن به دبی و ماندن مرد با شکایت و حقیقتی که زندگی‌اش را زیرورو کرد…
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10865
+
+<div align="center"><img src="files/post_10865_tasiyanc_10865.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جنایتی تازه که مشهد رو در شوک فرو برد!
+
+یه دختر ۱۶ ساله به اسم یگانه حسین‌زایی توی مشهد، به فجیع‌ترین شکل ممکن توسط شوهرش به قتل رسید!
+تمام انگشتای یگانه و استخوان‌های دستش خرد شده بود! همچنان شوهرش با کابل جوری کتکش زده بود که کل بدنش کبود بود و چهره‌اش قابل تشخیص نبود!
+یگانه رو از ۱۰ سالگی به عقد پسرعمه‌اش درآورده بودن. یگانه از سه سالگی پدرشو از دست داد و مادرشم یگانه رو به مادر و پدربزرگش سپرد و خودش ازدواج کرد!
+پدربزرگِ یگانه وقتی فوت شد، اموالش به یگانه رسید، برای همین پسر عمه‌اش، باهاش ازدواج کرد تا اموالش رو بالا بکشه!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10864
 
@@ -186,102 +309,5 @@ https://t.me/+EhV1Lz5aPVVlNWI0
 برد دیناموزاگرب
 Odd:1.98
 @Aron_tip
-</div>
-
-## tasiyanc — post 10852
-
-<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز 15 October، روزِ آدمای بد اخلاقه.
-
-
-+این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10851
-
-<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10849
-
-<div align="center"><img src="files/post_10849_tasiyanc_10849.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰22
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10848
-
-<div align="center"><video src="files/post_10848_tasiyanc_10848.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10848_tasiyanc_10848.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 فیلم بسیار وایرال شده از رانندگی خفن این دختر شیرازی که اکثر پسرا تو کامنتاش پشماشون ریخته بود :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10847
-
-<div align="center"><img src="files/post_10847_tasiyanc_10847.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 فوری، خبرگزاری جماران:
-
-احتمالا از ساعت ۱۲ امشب، قیمت اینترنت ۴۰ درصد افزایش خواهد یافت!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10846
-
-<div align="center"><video src="files/post_10846_tasiyanc_10846.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10846_tasiyanc_10846.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اینجا میفهمید دقیقا چرا باید عکس بچه‌مونو تو فضای مجازی پست یا استوری کنیم ( حتما ببینید ویدیو رو)
-
-جدیدا یکی از فامیلای من وقتی اینستاگرام میرم ۱۰ تا استوری پشت هم توله سگشو استوری می‌کنه حس می‌کنه همه عاشقشن
-﻿
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10845
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
 </div>
 

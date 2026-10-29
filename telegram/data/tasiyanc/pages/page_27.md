@@ -1,8 +1,179 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شانس 0️⃣0️⃣1️⃣میلیون تومانی خود را در بری بت از دست ندهید🔥😎
+</div>
+
+## tasiyanc — post 10508
+
+<div align="center"><img src="files/post_10508_tasiyanc_10508.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+1🅰
+🛒 ورود به سایت 👇
+✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10507
+
+<div align="center"><img src="files/post_10507_tasiyanc_10507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 2 آپدیت خفن جدید تلگرام
+
+تو آپدیت جدید تلگرام اینجوریه که مثلا وقتی وارد پروفایل یک شخص میشید اون قسمت بالا شمارش میزنه بطور میانگین، چقدر سریع به پیام‌ها پاسخ میده مثلا ۵ دقیقه، ۲ ساعت یا ۳ روز!
+
+تو اپدیت بعدی تلگرام اگر اکانتی دیلیت بشه
+این پروفایل براش تنظیم میشه
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10503
+
+<div align="center"><img src="files/post_10503_tasiyanc_10503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شاید باورتون نشه ولی تمام این عکسا مربوط به ایرانه و بچه پولدارا از اینکه تابستون رو چطوری گذروندن، منتشر کردن!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10501
+
+<div align="center"><video src="files/post_10501_tasiyanc_10501.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10501_tasiyanc_10501.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 یک سوم سالن وقتی که پزشکیان داشت سخنرانی می‌کرد خالی بود
+
+کشور های که حین سخنرانی پرزیدنت پزشکیان سالن مجمع سازمان ملل را ترک کردند :
+
+1. ایالات متحده آمریکا
+2. بریتانیا
+3. آلمان
+4. فرانسه
+5. اسرائیل
+6. سوریه
+7. لبنان
+8. عربستان
+9. مصر
+10. امارات
+11. الجزایر
+12. لهستان
+13. سوئد
+14. دانمارک
+15. کانادا
+16. ژاپن
+17. جمهوری آذربایجان
+18. مالزی
+19. نیوزیلند
+20. استرالیا
+21. جمهوری خلق کنگو
+22. اکوادور
+23. قبرس
+24. ایسلند
+25. مکزیک
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10500
+
+<div align="center"><video src="files/post_10500_tasiyanc_10500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10500_tasiyanc_10500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 لمس کون دوس دخترتون میتونه باعث افزایش سلامت و طول عمر و شادی شما و طرف مقابل بشه!
+
+به صورت علمی ثابت شده که لمس دوس دختر به طور کلی عمر رو طولانی نمی کنه، اما اگه باسنش رو لمس کنین، کمک بزرگی به افزایش عمر و سلامتی و شادی شما و دختره می‌کنه!
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10499
+
+<div align="center"><video src="files/post_10499_tasiyanc_10499.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10499_tasiyanc_10499.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت 
+✔️دو شرط رایگان در روز
+⭐️ 
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
+⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 
+💱
+0️⃣
+1️⃣
+🔣شارژ بیشتر برای شارژ با روش رمزارز 
+⭐مجهز…
+</div>
+
+## tasiyanc — post 10498
+
+<div align="center"><video src="files/post_10498_tasiyanc_10498.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10498_tasiyanc_10498.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆بری‌بت
+
+✔️دو شرط رایگان در روز
+⭐️
+
+🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال
+⭐️
+
+🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
+🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
+
+💱
+0️⃣
+1️⃣
+🔣شارژ بیشتر برای شارژ با روش رمزارز
+
+⭐مجهز به سیستم پی اس ووچر
+👑
+
+
+😀ورود به سایت:
+😀g1🅰
+
+📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+❤️کانال تلگرام 
+😀
+
+📎 https://t.me/BerryBetOfficial
+</div>
 
 ## tasiyanc — post 10494
 
@@ -157,112 +328,5 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 دوماد رفته برا همه اعضای خانواده عروس، حتی برا خدمتکارشون هم آیفون ۱۸ خریده!!!
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10482
-
-<div align="center"><video src="files/post_10482_tasiyanc_10482.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10482_tasiyanc_10482.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨همزمان با تهدید‌های ترامپ در سازمان ملل علیه جمهوری اسلامی؛ این ویدیو از آزمایش بمب اتمی در روبیکا و شبکه های مجازی داخلی وایرال شده
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10481
-
-<div align="center"><video src="files/post_10481_tasiyanc_10481.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10481_tasiyanc_10481.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ در سازمان ملل:
-
-ـ زنمم تو سالنه، کجایی خانم؟ کجایی؟ آها،
-اون فوق العادست عالیه، به افتخار اون یه دست بزنید.
-اون باعث برگشت هزاران کودک آواره اوکراینی و روسی به آغوش خونواده هاشون شده.
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10480
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 ترامپ در سازمان ملل :
-
-من باید تصمیمی قاطع بگیرم درباره اینکه آیا می‌خواهم ایران را نابود کنم یا به آن اجازه دهم که به فعالیت خود ادامه دهد و پیشرفت کند.
-
-آیا باید جمهوری اسلامی را نابود کنم، و آن را به سرعت از بین ببرم؟ آیا باید آن‌ها را به جهنم بفرستم؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10479
-
-<div align="center"><video src="files/post_10479_tasiyanc_10479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10479_tasiyanc_10479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خیلی باید حرومزاده و بی‌بته باشی که گوشی یه پاکبان رو سرقت کنی ، شاید اون تنها داراییش بود 💔 پ‌ن لحظه سرقت موبایل یک پاکبان زحمت‌کش عزیز در مشهد 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10478
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت ✔️دو شرط رایگان در روز⭐️ 🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️ 🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید. 🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید. 💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز ⭐مجهز…
-</div>
-
-## tasiyanc — post 10477
-
-<div align="center"><video src="files/post_10477_tasiyanc_10477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10477_tasiyanc_10477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆بری‌بت
-✔️دو شرط رایگان در روز⭐️
-🇪🇺برای پیشبینی بسکتبال، تنیس و والیبال⭐️
-
-🥳بر روی بازی‌های ورزش مورد علاقه خود به صورت زنده شرط بندی کنید.
-🤩 ۳۰٪ از میانگین هر پنج شرط خود را در قالب شرط رایگان دریافت کنید.
-💱0️⃣1️⃣🔣شارژ بیشتر برای شارژ با روش رمزارز
-⭐مجهز به سیستم پی اس ووچر👑
-
-😀ورود به سایت:😀g31🅰
-📎https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
-❤️کانال تلگرام 😀
-📎 https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10476
-
-<div align="center"><video src="files/post_10476_tasiyanc_10476.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10476_tasiyanc_10476.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فیلم وایرال شده از یه گوساله، با دیدن مجسمه گاو همچین صحنه ای خلق کرد🥺
-
-گوساله‌ای کوچک، مجسمه‌ی گاو را با مادرش اشتباه گرفت و سرش را به آن تکیه داد؛ تصویری ساده اما سرشار از معصومیت و دلبستگی.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10475
-
-<div align="center"><video src="files/post_10475_tasiyanc_10475.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10475_tasiyanc_10475.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری/ دانشمندا اعلام کردن که دست زدن به ممه برای سلامتی آقایون خیلی مفیده و تاثیرات مثبت زیادی داره
-
-💋 @Tasiyanc
 </div>
 

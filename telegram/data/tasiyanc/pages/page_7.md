@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10935
+
+<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
+
+دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
+
+## tasiyanc — post 10933
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G29🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10932
+
+<div align="center"><video src="files/post_10932_tasiyanc_10932.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10932_tasiyanc_10932.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دختری که با هدف سرگرمی و کسب درآمد با مردهای مختلف از طریق برخی کانال های صیغه‌یابی اشنا میشد می‌رفت باهاشون سکس میکرد، پس از اطلاع از ابتلا به بیماری ایـــــدز ( HIV ) دچار مشکلات روانی شده و تو آسایشگاه روانی بستریه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10931
+
+<div align="center"><img src="files/post_10931_tasiyanc_10931.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ایلان ماسک با این ادعای پشم‌ریزون دنیا رو تکون داد ❗️
+
+می‌گه تا ۶ الی ۱۲ ماه دیگه، قراره اولین ایمپلنت‌های بینایی نورالینک کاشته بشن؛ فناوری‌ای که شاید حتی به نابیناهای مادرزاد هم کمک کنه برای اولین بار دنیا رو ببینن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10930
+
+<div align="center"><video src="files/post_10930_tasiyanc_10930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10930_tasiyanc_10930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه نفر به چند پیرمرد ماچا می‌ده و ازشون می‌پرسه به نظرتون این چیه؛ جواب‌هاشون حسابی سوژه شده
+
+یه نفرم جای ماچا میکروفون رو میخواست بخوره
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10929
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ کومو - منچستر یونایند 🌎 ساعت ۲۰:۱۵ ⚽️ لیل - گالاتاسرای 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
+</div>
+
+## tasiyanc — post 10928
+
+<div align="center"><img src="files/post_10928_tasiyanc_10928.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ کومو - منچستر یونایند
+🌎 ساعت ۲۰:۱۵
+⚽️ لیل - گالاتاسرای
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r29
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
 
 ## tasiyanc — post 10926
 
@@ -184,154 +299,5 @@
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 27🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10913
-
-<div align="center"><img src="files/post_10913_tasiyanc_10913.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-27🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10912
-
-<div align="center"><img src="files/post_10912_tasiyanc_10912.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پورن استار پاکستانی میگه مسلمونم، حجاب دارم، نماز می‌خونم، روزه هم می‌گیرم؛ عزیز من، پس این حجم از تناقض رو کجای مغزمون جا بدیم؟
-
-فقط مونده معمای بابای بچه رو حل کنیم، انگار با یه پرونده جنایی طرفیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10911
-
-<div align="center"><video src="files/post_10911_tasiyanc_10911.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10911_tasiyanc_10911.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بازنشر سخنان محمدرضا شاه درباره تروریسم و هشدار به کشورهای اروپایی
-
-ویدیویی از محمدرضا شاه پهلوی، مربوط به حدود ۵۰ سال پیش، در فضای مجازی بازنشر شده که در آن درباره ضرورت مقابله با تروریسم و پیامدهای بی‌توجهی به آن صحبت می‌کند.
-او در این سخنان، از کشورهای اروپایی می‌خواهد تهدیدهای تروریستی را جدی بگیرند و نسبت به پیامدهای احتمالی عدم مقابله با آن هشدار می‌دهد.
-
-
-⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10910
-
-<div align="center"><video src="files/post_10910_tasiyanc_10910.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10910_tasiyanc_10910.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان 
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10909
-
-<div align="center"><video src="files/post_10909_tasiyanc_10909.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10909_tasiyanc_10909.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-
-🛒 ورود به سایت 
-👇🅰g27
-
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-
-🌐 کانال رسمی ما در تلگرام 
-👇
-
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10908
-
-<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
-👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
-</div>
-
-## tasiyanc — post 10907
-
-<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️
-⭕️
-⭕️
-⭕️
-اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
-👤
-
-از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
-
-https://t.me/+HsrP_lU8O081ZWFk
-https://t.me/+HsrP_lU8O081ZWFk
-
-
-💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
-لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
-چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
-💰 🅰g27
 </div>
 

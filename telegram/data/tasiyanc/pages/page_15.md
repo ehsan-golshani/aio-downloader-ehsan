@@ -1,8 +1,115 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10767
+
+<div align="center"><img src="files/post_10767_tasiyanc_10767.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 حداقل حقوق کارگرها تو خاورمیانه:
+
+🇮🇷 ایران : 63 دلار !
+🇦🇲 ارمنستان : 200 دلار
+🇰🇼 کویت : 245 دلار
+🇶🇦 قطر : 275 دلار
+🇦🇿 آذربایجان : 320 دلار
+🇮🇶 عراق : 350 دلار
+🇹🇷 ترکیه : 525 دلار
+🇴🇲 عمان : 800 دلار
+🇸🇦 عربستان : 1000 دلار
+🇦🇪 امارات : 1600 دلار
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10766
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖 امروز یکسری تراکت تبلیغاتی توی سطح شهر تهران پخش کردن که روش نوشته:
+خرید کالای دیجیتال از تکنولایف، برای دریافت کد تخفیف، کیوآر کد رو اسکن کنید.
+حالا وقتی شما اون کیوآر کد رو اسکن میکنی، عکس مجتبی خامنه‌ای رو همراه با متن زیر میاره بالا:
+پایان شبه سیه،سفید است.
+ملت ایران می‌دانند پایان رژیم جمهوری اسلامی نزدیک است و در نهایت موجب سقوط خواهد شد.
+- فعلا معلوم نیست این کار چه گروهیه ...
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10765
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 https://t.me/+ramzL0orpc5hMTBk https://t.me/+ramzL0orpc5hMTBk 🅰g17 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10764
+
+<div align="center"><video src="files/post_10764_tasiyanc_10764.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10764_tasiyanc_10764.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ واسه توعم آشناست؟ 🧐
+
+همون کاری که سایتای شرط‌بندی هر شب با جیبت می‌کنن: 😐
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
+
+https://t.me/+ramzL0orpc5hMTBk
+https://t.me/+ramzL0orpc5hMTBk
+🅰g17
+🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
+</div>
+
+## tasiyanc — post 10763
+
+<div align="center"><video src="files/post_10763_tasiyanc_10763.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10763_tasiyanc_10763.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ایران عالیه
+💖در پی درگیری لفظی میان راننده یک نیسان و یک موتورسوار، موتورسیکلت واژگون شد و نیسان نیز در آستانه واژگونی قرار گرفت
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10762
+
+<div align="center"><img src="files/post_10762_tasiyanc_10762.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖پشماتون فر بخوره / دختر خانم ۱۶ ساله که طی دوسال رابطه جنسی به HPV « زیگیل‌تناسلی » مبتلا شده
+
+۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10761
+
+<div align="center"><video src="files/post_10761_tasiyanc_10761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10761_tasiyanc_10761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فوری: خاکِ ایران به افغانستان واگذار شد!
+
+محسن زنگنه: قرار شده ۱۱۰ هکتار از چابهار رو بدیم به مردم افغانستان تا بتونن یه سرزمین متعلق به خودشون داشته باشن.
+البته قرار بود سهم بیشتری بهشون بدیم اما یه سری محدودیت هست و اینکار مشکله، ولی حتما پیگیری میکنیم که حلش کنیم!
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10760
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠برد وستهام یونایتد 💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅ 🅰r17 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
+</div>
 
 ## tasiyanc — post 10759
 
@@ -159,133 +266,6 @@ https://t.me/+wLFODtl1yCEwYzFk
 
 توی باشگاه فوتبال «ستارگان دیواندره» دو مربی به اسم میثم و ادیب در مدت زمان پنج سال حضور در این باشگاه، به بیش از پنجاه کودک تعرض جنسی کردن!
 اونا به کودکان وعده میدادن در ازای برقراری رابطه جنسی با بچه‌ها، اونارو توی ترکیب اصلی میذارن و به تیم‌های بهتری میفرستن.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10747
-
-<div align="center"><video src="files/post_10747_tasiyanc_10747.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10747_tasiyanc_10747.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 امروز 16 مهر، روزِ بزرگداشت داریوش بزرگه 👑
-
-وقتی داریوش بزرگ تو سال 522 پیش از میلاد به تخت رسید، شاهنشاهی هخامنشی با موجی از شورش‌ها روبه‌رو شد از ماد و بابل تا پارس، ایلام، ارمنستان و...
-طبق کتیبه بیستون : داریوش طی 19 نبرد مدعیان مختلف سلطنت رو شکست داد و دوباره کنترل شاهنشاهی رو به دست گرفت و بعد از پایان شورش‌ها هم قلمرو هخامنشی گسترش پیدا کرد؛ از سمت شرق تا حوالی دره سند و از غرب تا تراکیه و بخش‌هایی از بالکان. داریوش بزرگ شرح این نبردها و شورشیان شکست‌خورده رو روی کتیبه معروف بیستون برای آیندگان ثبت کرد.
-👑 داریوش بزرگ :
-ایران را فقط مرگ می تواند از تاریخ پاک کند و حتی مرگ هم از ما میترسد.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10746
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠برد مساوی استقلال 💠ضریب 1.43 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10745
-
-<div align="center"><img src="files/post_10745_tasiyanc_10745.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠برد مساوی استقلال
-
-💠ضریب 1.43
-
-⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
-
-💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅🅰r16
-
-🆔@Aron_tip 🆔 @Aron_tip
-🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10744
-
-<div align="center"><video src="files/post_10744_tasiyanc_10744.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10744_tasiyanc_10744.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 یه خانم طرفدار حکومت:
-
-من برای مطالبه ملی این مدت جلوی مجلس تو تجمعات شرکت میکردم حالا اطلاعات سپاه دوبار باهام تماس گرفته و احضارم کرده.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10743
-
-<div align="center"><video src="files/post_10743_tasiyanc_10743.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10743_tasiyanc_10743.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴ویدیو های وایرال شده نجمه جودکی، مجری سابق صداوسیما که راهشو از این سازمان جدا کرده و بلاگر شده عقد آریایی برخی زوج‌هارو میخونه
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10742
-
-<div align="center"><video src="files/post_10742_tasiyanc_10742.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10742_tasiyanc_10742.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍 
-💵تبدیل 2میلیون به 10میلیون
-💵 
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅ 
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های…
-</div>
-
-## tasiyanc — post 10741
-
-<div align="center"><video src="files/post_10741_tasiyanc_10741.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10741_tasiyanc_10741.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بچه ها اسم این بازی عبور مرغ از خیابون  هست ویدئو نگاه کنید خیلی راحت 8 میلیون ازش سود گرفتیم😍
-
-💵تبدیل 2میلیون به 10میلیون
-💵
-
-
-😤اگ توم دوس داری خیلی راحت از بازی های کازینویی پول در بیاری حتما عضو کازینو شبانه شو
-✅
-
-
-👑توی کازینو شبانه بهت اموزش میدیم از بازی های انلاین پول دربیاری راحت👌
-
-کازینو شبانه راهی برای چند برابر کردن سرمایت 
-📊
-
-
-🔔کسب درامد انلاین با یه ادم حرفه ای یاد بگیر و‌ پول دربیار 
-💵🅰15
-
-🎯همین حالا عضو شو و شروع کن
-👇
-https://t.me/+tRN5PSCR5uQ4YmE0
-https://t.me/+tRN5PSCR5uQ4YmE0
-</div>
-
-## tasiyanc — post 10740
-
-<div align="center"><video src="files/post_10740_tasiyanc_10740.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10740_tasiyanc_10740.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨 فوری،بی‌بی نتانیاهو توی مصاحبه جدیدش: حتی میتونم تاریخ دقیق سقوط جمهوری اسلامی رو بگم، ولی یه سری چیزا باید محرمانه باقی بمونه!
-
-وقتش که برسه، مردم ایران قیام میکنن و این خودِ مردم هستن که باعث سقوط جمهوری اسلامی میشن.
 ⚡ @Tasiyanc
 </div>
 

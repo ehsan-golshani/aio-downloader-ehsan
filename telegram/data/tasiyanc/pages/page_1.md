@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 11056
+
+<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11055
+
+<div align="center"><a href="files/post_11055_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11054
+
+<div align="center"><img src="files/post_11054_tasiyanc_11054.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💥 با لنزبت، هیجان بازیها رو چندین برابر کن 🎯
+
+⛏️ بونوس 🛍0️⃣0️⃣2️⃣ خوش آمد گویی
+💯 بونوس 🔣0️⃣0️⃣1️⃣برای هر واریز
+🔝 بونوس🔤0️⃣0️⃣1️⃣ کازینو
+💰 کد هدیه0️⃣2️⃣🔤🔤 بعد از اولین واریز
+📇 امتیاز وفاداری با انواع بونوسهای روزانه مخصوص کاربران فعال لنزبت🍀
+🔤0️⃣3️⃣کش بگ هفتگی
+💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت
+🅰g7
+🔤🔤🔤🔤🔤🔤🔤
+
+📱 @lenzbet_official
+
+📱 https://www.lenzbet1.xyz
+</div>
+
+## tasiyanc — post 11053
+
+<div align="center"><img src="files/post_11053_tasiyanc_11053.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ترویج بی‌بندوباری و لاشی‌گری توسط یه عده بلاگرنمای چِل پدر در اینستاگرام !
+
+یه عده تو اینستاگرام انگار نه تعهد حالیشونه، نه وفاداری؛ زن متأهل دوست‌پسر می‌گیره، بعد به خاطر همون یارو شوهرشو ول می‌کنه و طلاق می‌گیره!
+بعدم این چیزا رو می‌کشن وسط فضای مجازی، انگار نه انگار پای زندگی و احساسات آدمای دیگه وسطه!
+هر گوهی می‌خواین تو زندگی شخصیتون بخورین، ولی خیانت رو به اسم سبک زندگی مدرن به خورد بقیه ندین!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11052
+
+<div align="center"><img src="files/post_11052_tasiyanc_11052.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آدم‌خوار اوگاندایی که متهمه ۳۸ نفر رو کشته و خورده!
+
+مردی به نام «فرد موجولیزی» در اوگاندا به قتل و آدم‌خواری متهم شده؛ گفته می‌شه این جنایات طی ۱۵ سال، از ۲۰۱۰ تا ۲۰۲۵، اتفاق افتاده!
+
+طبق گزارش‌ها، اون با کمک همدستش وارد خونه قربانی‌ها می‌شده و بعد از قتل، اجسادشون رو می‌خورده.
+حالا این پرونده جنجالی در جهان خبرساز و وایرال شده و جزئیاتش همچنان در حال بررسیه!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11051
+
+<div align="center"><img src="files/post_11051_tasiyanc_11051.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کراش جدید آوردم براتون بانو « ریـحانه فـلاح » هستن مجری اینترنشنال
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11050
+
+<div align="center"><a href="files/post_11050_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r7
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+
+🆕 معرفی سایت و اپلیکیشن مل‌بت
+✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
 
 ## tasiyanc — post 11048
 
@@ -161,111 +292,5 @@ https://t.me/+VmekrTukXnphNmU0
 نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11035
-
-<div align="center"><img src="files/post_11035_tasiyanc_11035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوووق حسااااس لیورپول و چلسی رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از یه طرفدار رئال رفته جلوی محل تمرین رئال مادرید و فیلم گرفته ببینه کدوم بازیکنا زودتر از بقیه می‌رسن؛ نفر اول هم مورینیوئه!
-
-ماشین‌هاشونم ببینید :)
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آخرین آمار نتایج انتخابات اسرائیل:
-۴۹.۷ درصد آرا شمرده شده (حدود 3 میلیون رای) که ائتلاف نتانیاهو 56 کرسی؛ ائتلاف آیزنکوت 49 کرسی و احزاب عرب 15 کرسی رو بدست آوردن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11032
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11031
-
-<div align="center"><img src="files/post_11031_tasiyanc_11031.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔣از اولین شارژ تا هر واریز بعدی،
-انواع بونوس‌ها و هدایای ورود🔣
-
-🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
-
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰5
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 11030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق برخی گزارشات رسانه های اسراییل بی‌بی نتانیاهو از آیزنکوت پیشی گرفته
-</div>
-
-## tasiyanc — post 11029
-
-<div align="center"><img src="files/post_11029_tasiyanc_11029.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تصویر منتشر شده از شبکه ۱۴ اسراییل هم‌اکنون از شمارش آرا :
-
-جناح راست که لیکود (نتانياهو) : 60
-
-جناح چپ (آیزنکوت) : 43
-
-+نتانیاهو فعلا پیشتازه
 </div>
 

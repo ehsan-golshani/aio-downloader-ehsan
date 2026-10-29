@@ -1,8 +1,148 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/07 10:08
+📅 آخرین بروزرسانی: 1405/08/07 17:22
 
 ---
+
+## tasiyanc — post 10996
+
+<div align="center"><img src="files/post_10996_tasiyanc_10996.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ترافیک اینترنت ایران در رادار کلودفلر به کمترین مقدار بعد از وصل شدن اینترنت رسیده ، قطعی نت؟
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10995
+
+<div align="center"><img src="files/post_10995_tasiyanc_10995.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 هشدار درباره لینک‌های مخرب تلگرام؛ مراقب باشید اکانتتون دیلیت نخوره!
+
+گزارش‌هایی تایید نشده درباره لینک‌های مشکوک تلگرام منتشر شده که ادعا می‌شود با کلیک روی آن‌ها، حساب کاربری حذف می‌شود. همچنین ممکن است لینک مخرب پشت لینک های شیشه ای یا لینک ظاهراً سالم پنهان شده باشد.
+
+⚠️ روی لینک‌های ناشناس که بارها گفتیم از حساب‌های شخصی و کانال‌های نامعتبر کلیک نکنید و قبل از باز کردن هر لینک، آدرس واقعی آن را بررسی کنید.
+اطلاع رسانی کنید
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10994
+
+<div align="center"><video src="files/post_10994_tasiyanc_10994.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10994_tasiyanc_10994.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فقط چند ساعت پس از افتتاح؛ مجموعه تفریحی کاشان پلمب شد!
+هنوز چند ساعت از افتتاح این مجموعه نگذشته بود که به‌دلیل مسائل مرتبط با حجاب و رقص زنان، دستور پلمب آن از سوی دادستانی کاشان صادر شد!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10993
+
+<div align="center"><img src="files/post_10993_tasiyanc_10993.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه ادعاهای تازه درباره مشاهده موجودات گرگ‌مانند در گزارش‌های مرتبط با یوفوها و اسناد پنتاگون!
+
+طبق گزارش دیلی‌میل، صحبت از موجوداتی شبیه «اسکین‌واکر» با قد حدود ۱۸۰ سانتی‌متر، موهای سیاه و خاکستری و ظاهری شبیه گرگ یا سگ به میونه که گفته می‌شه بعضی شاهدان اونا رو دیده‌ان!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10992
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 
+🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد چلسی 
+⚽️
++برد دورتموند 
+⚽️
+
+برنده 2.500.000 شوید 
+🇪🇺
+
+
+✍️ ورود به کانال اطلاع رسانی وی پاری 
+✈️
+</div>
+
+## tasiyanc — post 10991
+
+<div align="center"><video src="files/post_10991_tasiyanc_10991.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10991_tasiyanc_10991.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نبرد بزرگ بارسلونا
+🏴 و رئال مادرید
+🏴 رو با آپشن های تخصصی در wepari پیشبینی کنید! 
+🔥
+
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید
+🎁
+
+
+🔥شنبه بونوس 100%
+
+🔥 دوشنبه بونوس 50%
+
+
+🤖دانلود اپلیکیشن بدون فیلتر 
+🚀
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
+💸🅰g3
+</div>
+
+## tasiyanc — post 10990
+
+<div align="center"><video src="files/post_10990_tasiyanc_10990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10990_tasiyanc_10990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دکتر فاطمه آژیر درباره ترکیبات مایع منی و بلعیدن آن که می‌تونه بد باشه یا خوب توضیح داد ؛
+
+به گفته‌ی او، مایع منی سمی یا کثیف نیست و بخش عمده‌ش از آب تشکیل شده؛ در کنار پروتئین‌ها، آنزیم‌ها و ترکیبات دیگه‌ای مثل PH قلیایی‌ه‍ که باعث بوی خاصش می‌شه.
+به گفته‌ی دکتر آژیر، بلعیدن مایع منی در صورت مشخص بودن وضعیت عفونت‌های مقاربتی شریک جنسی، لزوماً خطرناک نیست؛ بااین‌حال، احتمال انتقال عفونت از طریق رابطه دهانی همچنان وجود داره.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10989
+
+<div align="center"><video src="files/post_10989_tasiyanc_10989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10989_tasiyanc_10989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیوی چند دختر بدنساز با استقبال گسترده کاربران وایرال شد!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10988
 
@@ -173,138 +313,5 @@
 برنده 2.500.000 شوید 🇪🇺
 
 ✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 10976
-
-<div align="center"><img src="files/post_10976_tasiyanc_10976.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نبرد بزرگ چلسی⚽️ و تاتنهام⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g2
-</div>
-
-## tasiyanc — post 10975
-
-<div align="center"><video src="files/post_10975_tasiyanc_10975.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10975_tasiyanc_10975.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده رقص دخترها و پسرها تو نمایشگاه بین المللی فیتنس تهران
-
-ویدئویی از رقص دخترها و پسرها کنار هم در نمایشگاه بین‌المللی فیتنس تهران منتشر شده که حسابی حاشیه‌ساز شده و اعتراض شدید حامیان حکومت رو به دنبال داشته!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10974
-
-<div align="center"><video src="files/post_10974_tasiyanc_10974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10974_tasiyanc_10974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از سورپرایز جذاب برای بازیگر سریال «بازی تاج‌وتخت , GOT » توی استانبول🇹🇷
-
-+ «اوون تیل» وسط بازدید از آب‌انبار شرفیه استانبول، با اجرای موسیقی معروف سریال «بازی تاج‌وتخت» با سازهای سنتی غافلگیر شد؛ یه اجرای خفن توی فضایی تاریخی که حسابی حال‌وهوای وستروس رو زنده کرد!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10973
-
-<div align="center"><img src="files/post_10973_tasiyanc_10973.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پیت‌بول (رپر معروف آمریکایی) اعتراف کرده که هنگام اجرای مشترکش با جنیفر لوپز در مراسم جوایز موسیقی آمریکا در سال ۲۰۱۱، واقعاً دچار نعوظ شده بوده! :))))
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10972
-
-<div align="center"><video src="files/post_10972_tasiyanc_10972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10972_tasiyanc_10972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨مراقب لینک‌های ناشناس و فایل‌های به‌ظاهر « عکس یادگاری» باشید !
-
-این روزا کلاهبرداری اینترنتی زیاد شده؛ روی لینک‌های ناشناس نزنید و فایل‌هایی با عنوان‌هایی مثل «عکس یادگاری» رو بدون اطمینان باز نکنید.
-⚠️ اگه حسابتون هک شد یا پولی از حسابتون برداشت شد، وقت رو تلف نکنید! سریع با بانک تماس بگیرید و در اولین فرصت به‌صورت حضوری به نزدیک‌ترین پایگاه پلیس فتا در شهرستان محل سکونتتون مراجعه کنید تا موضوع پیگیری و اقدامات لازم برای مسدودسازی حساب مقصد انجام بشه.
-📢 این هشدار رو برای بقیه هم بفرستید تا قربانی کلاهبرداری نشن.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r2🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10970
-
-<div align="center"><img src="files/post_10970_tasiyanc_10970.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوووق جذااااب آرسنال و اورتون رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌💯 Link 🔜 MelBet1.net
-🆕‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10969
-
-<div align="center"><video src="files/post_10969_tasiyanc_10969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10969_tasiyanc_10969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 خبر امیدوارکننده از یوزپلنگ‌های ایرانی! 🐆
-
-یه خانواده جدید از یوزپلنگ‌های ایرانی در پارک ملی توران مشاهده شدن؛ خبری امیدبخش برای یکی از در معرض انقراض‌ترین گونه‌های حیات‌وحش ایران.
-
-گزارش‌ها می‌گن برای اولین‌بار، طی یک سال چهار مورد زادآوری موفق یوز ایرانی ثبت شده؛ اتفاقی مهم برای امید به بقای این گونه ارزشمند. 🌱
-
-
-
-💋 @Tasiyanc
 </div>
 
