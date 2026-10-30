@@ -1,8 +1,72 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/08 13:41
+📅 آخرین بروزرسانی: 1405/08/08 20:27
 
 ---
+
+## tasiyanc — post 10705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 دقیقاً با توعم!🫥 📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13 https://t.me/+CHT8I544iFRiNzU0 https://t.me/+CHT8I544iFRiNzU0 
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
+
+## tasiyanc — post 10704
+
+<div align="center"><img src="files/post_10704_tasiyanc_10704.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+دقیقاً با توعم!🫥
+
+📊حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین 
+⭐
+👇🅰g13
+
+https://t.me/+CHT8I544iFRiNzU0
+https://t.me/+CHT8I544iFRiNzU0
+
+
+🎯نمونه سود 7 ملیونی ما از میکس دیشب اروپا
+💵
+</div>
+
+## tasiyanc — post 10703
+
+<div align="center"><video src="files/post_10703_tasiyanc_10703.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10703_tasiyanc_10703.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨سنگین ترین پرونده مهریه ایران اعلام شد:
+
+اقای جراح ۶۳۶۰ سکه مهریه برای خانم با وفاش زده بوده و الانم تو زندانه😐😂
+
+الان تا چند نسل قبل و بعدش هم جمع بشن نمیتونن اینو پرداخت کنن.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10702
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 10701
 
@@ -274,58 +338,5 @@ https://t.me/+E--pAy0bkURiOWM0
 
 
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 10683
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 10682
-
-<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 10681
-
-<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10680
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اپلیکیشن اختصاصی آمیتیس‌بت📱
-سریع، آسان و آنی👑
-https://AmitisBet.com/
 </div>
 

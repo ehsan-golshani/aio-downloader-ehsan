@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/08 13:41
+📅 آخرین بروزرسانی: 1405/08/08 20:27
 
 ---
+
+## tasiyanc — post 10874
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
+
+## tasiyanc — post 10873
+
+<div align="center"><img src="files/post_10873_tasiyanc_10873.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
+
+🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
+
+🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
+
+🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
+⏰ ۱ تا ۱۵ اکتبر
+🏆 جایزه برای 0️⃣5️⃣ نفر برتر
+👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
+
+🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
+
+🏢 ورود به سایت 👇
+⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+✈️ کانال رسمی ما در تلگرام 👇🅰24
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10871
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+درود بر دوستان و همراهان همیشگی
+
+درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
+</div>
+
+## tasiyanc — post 10870
+
+<div align="center"><video src="files/post_10870_tasiyanc_10870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10870_tasiyanc_10870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت پشم افکن/ 10 بار بارداری برای دختری متولد 1385 !
+
+طبق روایت خانم دکتر، این دختر تاکنون ۳ سقط جنین و ۴ زایمان طبیعی داشته و حالا خودش را برای سومین سزارین آماده می‌کند!
+یعنی دختری که هنوز به ۲۰ سالگی نرسیده، چنین تجربه‌ای از بارداری و زایمان داشته است!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10869
 
@@ -251,50 +305,5 @@ https://t.me/+EhV1Lz5aPVVlNWI0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 برد دیناموزاگرب Odd:1.98 @Aron_tip
-</div>
-
-## tasiyanc — post 10853
-
-<div align="center"><img src="files/post_10853_tasiyanc_10853.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-برد دیناموزاگرب
-Odd:1.98
-@Aron_tip
-</div>
-
-## tasiyanc — post 10852
-
-<div align="center"><video src="files/post_10852_tasiyanc_10852.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10852_tasiyanc_10852.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز 15 October، روزِ آدمای بد اخلاقه.
-
-
-+این روز رو به آدمای بداخلاق و با معرفت و دوست‌داشتنیِ زندگیت تبریک بگو
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10851
-
-<div align="center"><video src="files/post_10851_tasiyanc_10851.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10851_tasiyanc_10851.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیویی وایرال شده از خیابون فرشته تهران:
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10850
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
 </div>
 

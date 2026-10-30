@@ -1,8 +1,70 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/08 13:41
+📅 آخرین بروزرسانی: 1405/08/08 20:27
 
 ---
+
+## tasiyanc — post 10957
+
+<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
+
+ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
+
+## tasiyanc — post 10955
+
+<div align="center"><img src="files/post_10955_tasiyanc_10955.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ چادر ملو اردکان - استقلال
+🌎 ساعت ۱۶:۰۰
+⚽️ الومینیوم اراک - ذوب اهن
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r1
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10954
+
+<div align="center"><video src="files/post_10954_tasiyanc_10954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10954_tasiyanc_10954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10953
 
@@ -245,61 +307,5 @@ G30🅰
 
 🌐 کانال رسمی ما در تلگرام 👇
 ⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10936
-
-<div align="center"><video src="files/post_10936_tasiyanc_10936.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10936_tasiyanc_10936.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو از پاستیل خوردن نهال خانم خوشگل وایرال شده :
-
-این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10935
-
-<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
-
-دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10934
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G29🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10933
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G29🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 
