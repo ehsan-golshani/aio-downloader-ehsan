@@ -1,8 +1,145 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/08 03:29
+📅 آخرین بروزرسانی: 1405/08/08 13:41
 
 ---
+
+## tasiyanc — post 10911
+
+<div align="center"><video src="files/post_10911_tasiyanc_10911.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10911_tasiyanc_10911.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بازنشر سخنان محمدرضا شاه درباره تروریسم و هشدار به کشورهای اروپایی
+
+ویدیویی از محمدرضا شاه پهلوی، مربوط به حدود ۵۰ سال پیش، در فضای مجازی بازنشر شده که در آن درباره ضرورت مقابله با تروریسم و پیامدهای بی‌توجهی به آن صحبت می‌کند.
+او در این سخنان، از کشورهای اروپایی می‌خواهد تهدیدهای تروریستی را جدی بگیرند و نسبت به پیامدهای احتمالی عدم مقابله با آن هشدار می‌دهد.
+
+
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10910
+
+<div align="center"><video src="files/post_10910_tasiyanc_10910.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10910_tasiyanc_10910.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 
+🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 
+💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان 
+✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 
+🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
+</div>
+
+## tasiyanc — post 10909
+
+<div align="center"><video src="files/post_10909_tasiyanc_10909.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10909_tasiyanc_10909.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
+
+
+🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
+
+
+💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
+
+✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
+
+🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
+
+📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
+
+
+💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
+
+
+🛒 ورود به سایت 
+👇🅰g27
+
+⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+
+🌐 کانال رسمی ما در تلگرام 
+👇
+
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10908
+
+<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
+</div>
+
+## tasiyanc — post 10907
+
+<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤
+
+از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
+
+https://t.me/+HsrP_lU8O081ZWFk
+https://t.me/+HsrP_lU8O081ZWFk
+
+
+💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
+لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
+چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
+💰 🅰g27
+</div>
+
+## tasiyanc — post 10906
+
+<div align="center"><video src="files/post_10906_tasiyanc_10906.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10906_tasiyanc_10906.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اتفاقی عجیب و تلخ در کلیسایی در اکوادور 
+🇪🇨
+
+یک کشیش در حال اجرای مراسم مذهبی بود که ناگهان صلیبی از دیوار جدا شد و روی سرش افتاد؛ حادثه‌ای که طبق گزارش‌ها، به مرگ او در همان لحظه منجر شد.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10905
+
+<div align="center"><video src="files/post_10905_tasiyanc_10905.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10905_tasiyanc_10905.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرانسه 
+🇫🇷 | تیراندازی پلیس به معترضی که قصد شکستن شیشه یک فروشگاه رو داشت پلیس دید طرف نمرده اومد یه تیر خلاصم بهش زد!!!!!!!!
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10904
 
@@ -187,110 +324,5 @@
 نابغه‌های اقتصاد! مشکل کاغذ دلاره یا سیاستی که با آمریکا شاخ‌به‌شاخ می‌شه؟ بعد هزینه‌ی عربده‌کشی‌های شمارو باید ما مردم معمولی بدیم
 با آمریکا گنده‌گویی می‌کنید، سفره‌ی مردم رو کوچک می‌کنید سر همین یه تیکه کاغذ ۵۰۰ درصد تورم کردید تو پاچه مردم بدبخت، بعد با سوزوندن دلار تقلبی ادای پیروزها رو درمیارید؟!
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10890
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ ملوان - تراکتور 🌎 ساعت ۱۷:۰۰ ⚽️ سپاهان - شمس آذر قزوین 🌎 ساعت ۱۷:۳۰ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! …
-</div>
-
-## tasiyanc — post 10889
-
-<div align="center"><img src="files/post_10889_tasiyanc_10889.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet
-
-🔥 مسابقات امروز 👍
-
-⚽️ ملوان - تراکتور
-🌎 ساعت ۱۷:۰۰
-⚽️ سپاهان - شمس آذر قزوین
-🌎 ساعت ۱۷:۳۰
-﻿
-💸 ضرایب ویژه و رقابتی
-⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
-
-🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
-
-✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
-🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
-
-کانال سایت:
-✅ https://t.me/BerryBetOfficial
-آدرس سایت:🅰r26
-🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-#معرفی صرافی ایرانی
-
-🔵 این روزها که بحث تحریم صرافی‌ها و محدودیت دسترسی به دارایی‌های دیجیتال داغ شده، انتخاب محل مناسب برای تبدیل ارز اهمیت بیشتری پیدا کرده.
-پیشنهاد شخصی من برای تبدیل و معامله‌ی دارایی‌های دیجیتال، صرافی تبدیل هست. البته پیشنهاد می‌کنم مثل هر پلتفرم دیگه‌ای، قبل از استفاده شرایط و ریسک‌هاش رو بررسی کنید.
-
-🔗 https://tabdeal.org/
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10887
-
-<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
-</div>
-
-## tasiyanc — post 10885
-
-<div align="center"><video src="files/post_10885_tasiyanc_10885.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10885_tasiyanc_10885.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢
-🦁به جمع کاربران لوکس ما بپیوندید🦁
-❤️‍🔥بری‌بت❤️‍🔥
-
-😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌
-🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟
-💡به بونوس‌های فوری دسترسی پیدا کنید.🚩
-🔔درصد بیشتری بازگشت نقدی بگیرید.🍸
-
-💻 ورود به سایت 👇
-⚫️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-🦁 کانال تلگرام: 🅰25
-⚫️https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10884
-
-<div align="center"><video src="files/post_10884_tasiyanc_10884.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10884_tasiyanc_10884.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه / ماجرای عجیب خیانت زن به شوهر پزشک ـ جراحش و گرفتن ۲۰ میلیارد تومان مهریه!
-
-• وکیل فریبا: فریبا و علی ۶ ماه بصورت پنهانی در پشت بام خونه رابطه جنسی برقرار میکردن که آخرش فریبا پیشنهاد میده از همسرم و همسرت طلاق بگیر باهم باشیم
-•در نهایت فریبا 20 میلیارد تومان مهریه گرفت و به علی میده؛ غافل از اینکه این سناریو اخاذی از قبل توسط همسر علی برنامه ریزی شده بود ،
-•علی و همسرش بعد دریافت پول سریع از ایران فرار میکنن و از ترکیه با فریبا تماس میگیرن میگن خسته نباشی کسخلت کردیم
-
-💋 @Tasiyanc
 </div>
 

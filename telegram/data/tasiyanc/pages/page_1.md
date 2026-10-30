@@ -1,8 +1,114 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/08 03:29
+📅 آخرین بروزرسانی: 1405/08/08 13:41
 
 ---
+
+## tasiyanc — post 11073
+
+<div align="center"><video src="files/post_11073_tasiyanc_11073.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11073_tasiyanc_11073.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجری احمق مکزیکی وسط پخش زنده جوگیر شد پهپاد رو لگد زد، مستقیم خورد تو صورت مدل برنامه!
+
+ارنستو چاوانا، مجری مکزیکی، وسط برنامه زنده خواست پهپاد رو با لگد بزنه، اما پهپاد منحرف شد و خورد تو صورت ایزابلا روخاس، مدل حاضر تو برنامه!
+ایزابلا با صورت زخمی صحنه رو ترک کرد و رسانه‌ها از بریدگی لبش خبر دادن ایزابلا بعد از دریافت درمان دوباره برگشت استودیو.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11072
+
+<div align="center"><img src="files/post_11072_tasiyanc_11072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جف بزوس مالک آمازون تکلیف میلیاردها دلار ثروتش رو مشخص کرد!
+
+بنیان‌گذار آمازون در یک برنامه درباره سرنوشت ثروتش گفت حدود ۳۰ درصد دارایی‌اش رو صرف امور خیریه می‌کنه و باقی ثروتش به همسرش، لورن سانچز، می‌رسه تا هر طور که می‌خواد ازش استفاده کنه.
+اما نکته جالب ماجرا اینجاست؛ بچه‌هاش قرار نیست ثروت هنگفتی به ارث ببرن! به گفته بزوس، ترجیح می‌ده بهشون یاد بده چطور کار کنن و خودشون پول دربیارن، نه اینکه صرفاً وارث ثروت پدرشون باشن!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11071
+
+<div align="center"><video src="files/post_11071_tasiyanc_11071.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11071_tasiyanc_11071.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آخوند شجاعی:
+
+بعد از فوت پیامبر، حضرت زهرا ۳ ماه تمام گریه میکرد!
+تا اینکه خدا به جبرئیل دستور داد که به حضرت زهرا خبر انقلاب اسلامی ایران رو بده و ایشون آروم شدن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11070
+
+<div align="center"><video src="files/post_11070_tasiyanc_11070.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11070_tasiyanc_11070.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو وایرال شده ۲۴ ساعت اخیر با ۱۱ میلیون ویو از دانشگاه آزاد مشهد
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11069
+
+<div align="center"><a href="files/post_11069_app.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 app.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11068
+
+<div align="center"><img src="files/post_11068_tasiyanc_11068.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎰 تورنومنت های هفتگی در لنز بت
+💥 متنوع ترین آپشنهای پیشبینی
+
+🔣0️⃣0️⃣2️⃣ بونوس خوش آمدگویی
+🔣0️⃣0️⃣1️⃣بونوس برای هر واریز
+🔤0️⃣0️⃣1️⃣ بونوس کازینو
+
+💳شارژ کارت به کارت آنلاین و درگاه 🔠🔠🔠
+🔣0️⃣3️⃣ کش بک هفتگی
+🧑‍💻با انواع دیلرهای فارسی زبان
+
+🪙واریز و برداشت انواع رمز ارزها 💵
+
+💻همین الان وارد لنزبت شو و از جوایز ویژه ما لذت ببر🅰r8
+🔠🔠🔠🔠🔠🔠🔠
+
+📱 @Lenzbet_official
+
+📱 https://www.lenz7bet.online
+</div>
+
+## tasiyanc — post 11067
+
+<div align="center"><video src="files/post_11067_tasiyanc_11067.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11067_tasiyanc_11067.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اگه آمریکا به «کوه کلنگ» حمله کنه، چطور از تشعشعات هسته‌ای جون سالم به در ببریم؟!
+
+این ویدئو رو ببینید تا بدونید تو چنین شرایطی چطور از خودتون محافظت کنید. ذخیره‌ش کنید و بفرستید واسه اشناهاتون .
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11066
 
@@ -152,112 +258,5 @@
 📱 @lenzbet_official
 
 📱 https://www.lenzbet1.xyz
-</div>
-
-## tasiyanc — post 11053
-
-<div align="center"><img src="files/post_11053_tasiyanc_11053.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ترویج بی‌بندوباری و لاشی‌گری توسط یه عده بلاگرنمای چِل پدر در اینستاگرام !
-
-یه عده تو اینستاگرام انگار نه تعهد حالیشونه، نه وفاداری؛ زن متأهل دوست‌پسر می‌گیره، بعد به خاطر همون یارو شوهرشو ول می‌کنه و طلاق می‌گیره!
-بعدم این چیزا رو می‌کشن وسط فضای مجازی، انگار نه انگار پای زندگی و احساسات آدمای دیگه وسطه!
-هر گوهی می‌خواین تو زندگی شخصیتون بخورین، ولی خیانت رو به اسم سبک زندگی مدرن به خورد بقیه ندین!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11052
-
-<div align="center"><img src="files/post_11052_tasiyanc_11052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آدم‌خوار اوگاندایی که متهمه ۳۸ نفر رو کشته و خورده!
-
-مردی به نام «فرد موجولیزی» در اوگاندا به قتل و آدم‌خواری متهم شده؛ گفته می‌شه این جنایات طی ۱۵ سال، از ۲۰۱۰ تا ۲۰۲۵، اتفاق افتاده!
-
-طبق گزارش‌ها، اون با کمک همدستش وارد خونه قربانی‌ها می‌شده و بعد از قتل، اجسادشون رو می‌خورده.
-حالا این پرونده جنجالی در جهان خبرساز و وایرال شده و جزئیاتش همچنان در حال بررسیه!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11051
-
-<div align="center"><img src="files/post_11051_tasiyanc_11051.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کراش جدید آوردم براتون بانو « ریـحانه فـلاح » هستن مجری اینترنشنال
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r7
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11049
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 بانس‌های فوق خفن مل‌بت 🔺
-
-🫴 100 درصد پاداش اولین واریز
-😀 100 درصد بانس یکشنبه ها
-🎁 100 درصد بانس چهارشنبه ها
-🔹 هر روز 1 چرخش گردونه 1 یورویی
-😀 3 درصد باز پرداخت نقدی
-😀 بانس شرط رایگان 30 دلاری
-🎩 10 درصد باز پرداخت نقدی کازینو
-🎆 بانس هدیه روز تولد
-💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
-
-💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
-
-🆕 معرفی سایت و اپلیکیشن مل‌بت
-✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11048
-
-<div align="center"><video src="files/post_11048_tasiyanc_11048.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11048_tasiyanc_11048.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑7 آبان؛ روز بزرگداشت کوروش بزرگ👑
-
-از دل تاریخ، از میان قرن‌ها، نامی برخاسته که هنوز در رگ‌های این سرزمین جاری‌ست؛ کوروش بزرگ، نماد شکوه، آزادگی و عظمت ایران.
-ایران، سرزمین شیران و وارثان تمدنی کهن؛ خاکی که هر وجبش روایتگر هزاران سال افتخار است و نامش تا همیشه در قلب فرزندانش زنده خواهد ماند.
-7 آبان، بر تمام ایرانیان راستین و پاسداران هویت و تاریخ ایران‌زمین خجسته باد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11047
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
 </div>
 

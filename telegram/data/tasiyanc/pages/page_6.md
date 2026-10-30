@@ -1,8 +1,129 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/08 03:29
+📅 آخرین بروزرسانی: 1405/08/08 13:41
 
 ---
+
+## tasiyanc — post 10973
+
+<div align="center"><img src="files/post_10973_tasiyanc_10973.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پیت‌بول (رپر معروف آمریکایی) اعتراف کرده که هنگام اجرای مشترکش با جنیفر لوپز در مراسم جوایز موسیقی آمریکا در سال ۲۰۱۱، واقعاً دچار نعوظ شده بوده! :))))
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10972
+
+<div align="center"><video src="files/post_10972_tasiyanc_10972.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10972_tasiyanc_10972.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨مراقب لینک‌های ناشناس و فایل‌های به‌ظاهر « عکس یادگاری» باشید !
+
+این روزا کلاهبرداری اینترنتی زیاد شده؛ روی لینک‌های ناشناس نزنید و فایل‌هایی با عنوان‌هایی مثل «عکس یادگاری» رو بدون اطمینان باز نکنید.
+⚠️ اگه حسابتون هک شد یا پولی از حسابتون برداشت شد، وقت رو تلف نکنید! سریع با بانک تماس بگیرید و در اولین فرصت به‌صورت حضوری به نزدیک‌ترین پایگاه پلیس فتا در شهرستان محل سکونتتون مراجعه کنید تا موضوع پیگیری و اقدامات لازم برای مسدودسازی حساب مقصد انجام بشه.
+📢 این هشدار رو برای بقیه هم بفرستید تا قربانی کلاهبرداری نشن.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r2🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10970
+
+<div align="center"><img src="files/post_10970_tasiyanc_10970.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوووق جذااااب آرسنال و اورتون رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌💯 Link 🔜 MelBet1.net
+🆕‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10969
+
+<div align="center"><video src="files/post_10969_tasiyanc_10969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10969_tasiyanc_10969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 خبر امیدوارکننده از یوزپلنگ‌های ایرانی! 🐆
+
+یه خانواده جدید از یوزپلنگ‌های ایرانی در پارک ملی توران مشاهده شدن؛ خبری امیدبخش برای یکی از در معرض انقراض‌ترین گونه‌های حیات‌وحش ایران.
+
+گزارش‌ها می‌گن برای اولین‌بار، طی یک سال چهار مورد زادآوری موفق یوز ایرانی ثبت شده؛ اتفاقی مهم برای امید به بقای این گونه ارزشمند. 🌱
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10968
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💙با نصب اپلیکیشن، بدون نیاز به فیلترشکن به تمامی قسمت‌های سایت دسترسی داشته باشید🌇
+
+▪️اموزش ثبت نام و شارژ و برداشت
+
+1️⃣2️⃣3️⃣
+8️⃣ کد هدیه بونوس 100% برای اولین واریز 💰💰💰👇
+Mn85m
+1️⃣کانال فارسی 1Xbet👇
+📱 @one_Mn85m_xbet
+</div>
+
+## tasiyanc — post 10967
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😖 و باز هم در مورد هری کین
+
+⚽️ این بازیکن انگلیسی در ۱۰ بازی متوالی لیگ قهرمانان اروپا گل زده است
+
+💛 رکورد رونالدو ۱۱ بازی متوالی است
+
+📆 ۳ نوامبر بایرن مونیخ به مصاف اتلتیکو می‌رود و کین فرصت دارد تا رکورد کریستیانو را تکرار کند
+
+💬 آیا کین رکورد رونالدو را تکرار می‌کند؟
+
+کانال رسمی وانیکس
+
+لینک دانلود اپلیکیشن بدون فیلتر
+
+کد هدیه بونوس 100% : Mn85m👍
+
+LINK:1XBET.COM
+
+برای دریافت سرور های تست اسیایی  میتونید از ربات زیر : 🅰1
+سرور کشور ترکیه یا ارمنستان بگیرید👇
+VPN FREE
+</div>
 
 ## tasiyanc — post 10966
 
@@ -170,114 +291,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 🔵تو تهران ی دختر ۲۰ ساله بخاطر عشق فراوان با یه پیرمرد ۶۳ ساله ازدواج کرده
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10953
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁 0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی 💰 کش بک روزانه و هفتگی 🌛 چرخ و فلک ویژه جام جهانی 💣 بالاترین ضرایب پیش بینی 📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱 🕸ورود به سایت: 👇 🪩 https:/…
-</div>
-
-## tasiyanc — post 10952
-
-<div align="center"><video src="files/post_10952_tasiyanc_10952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10952_tasiyanc_10952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑 بری بت، دنیای امکانات و آفرهای شگفت‌انگیز 🎁
-
-
-0️⃣0️⃣1️⃣🔣بونوس خوش آمدگویی ورزشی
-
-💰 کش بک روزانه و هفتگی
-
-🌛 چرخ و فلک ویژه جام جهانی
-
-💣 بالاترین ضرایب پیش بینی
-
-
-📱 همین حالا در بری بت ثبت نام کنید تا بهترین‌ها را تجربه کنید 📱
-
-🕸ورود به سایت: 👇
-🪩 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🛫 کانال رسمی ما: 👇🅰30
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10951
-
-<div align="center"><img src="files/post_10951_tasiyanc_10951.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨فوری ‼️ تصویری منتسب به کانال سید مجتبی خامنه‌ای با اشاره به گزینه‌های احتمالی در صورت حمله آمریکا و اسرائیل
-
-در این تصویر، پهپاد، موشک، تنگه هرمز و جنگ منطقه‌ای تیک خورده‌اند. در کنار این موارد، نماد یک تأسیسات هسته‌ای هم دیده می‌شه که گمانه‌زنی‌هایی درباره گزینه بمب هسته‌ای رو مطرح کرده؛ با این حال، نمی‌شه این تصویر رو به‌تنهایی نشونه تهدید به استفاده از بمب اتم دونست.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10950
-
-<div align="center"><video src="files/post_10950_tasiyanc_10950.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10950_tasiyanc_10950.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فورررررری / سیستم «دست مرده روسی» برای جمهوری اسلامی فعال میشه؟!
-
-سیستم «دست مرده» به سازوکاری گفته می‌شه که در صورت کشته شدن فرماندهان کشور مورد حمله قرار گرفته که از پیش تعیین شده به چند کشور متخاصم بمب هسته‌ای میزنه. این سیستم بیشتر با روسیه شناخته می‌شه که در صورت کشته شدن فرماندهان روسی ۴۰۰۰ بمب هسته ای به سراسر پایتخت های اروپا و آمریکا ( NATO ) شلیک می‌شود ☠؛ اما فعال شدنش در ایران هنوز تأیید نشده و با توجه به توییت یکی از خبرنگاران حکومتی مطرح شده !
-بنظرتون ایران بمب اتم داره؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10949
-
-<div align="center"><video src="files/post_10949_tasiyanc_10949.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10949_tasiyanc_10949.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ایلان ماسک: احتمال دارد هوش مصنوعی به یک تهدید وجودی برای بشر تبدیل شود!
-
-اما در توان من نیست که بتوانم جلوی آن را بگیرم.
-
-بنابراین، من به این نتیجه رسیدم که دو گزینه پیش رو دارم: یا در این عرصه شرکت کنم یا فقط تماشا کنم.
-
-شرکت کردن در این عرصه جذاب‌تر از تماشا کردن است
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10948
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G30🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
-</div>
-
-## tasiyanc — post 10947
-
-<div align="center"><img src="files/post_10947_tasiyanc_10947.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-G30🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 
