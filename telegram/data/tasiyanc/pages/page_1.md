@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/09 21:44
+📅 آخرین بروزرسانی: 1405/08/10 01:03
 
 ---
+
+## tasiyanc — post 11095
+
+<div align="center"><video src="files/post_11095_tasiyanc_11095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11095_tasiyanc_11095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بیلی آیلیش با انتشار تصویری از خودش و دوس‌پسر جدیدش در حال بوسیدن همدیگه، رابطه‌شون رو علنی کرد.
+
+اما حاشیه اصلی به ماجرای عمل کوچک کردن سینه‌هاش برمی‌گرده؛ گفته می‌شه دلیل این تصمیم، خواسته پارتنرش بوده که نمی‌خواسته سینه‌های بیلی در معرض دید مردم و طرفدارها باشه!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11093
+
+<div align="center"><img src="files/post_11093_tasiyanc_11093.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آریا استارک بازیگر گیم آف ترونز طی یک حرکت کاملا پشم‌افکن اومد توی اینستا عکس و فیلم لختی خودشو و دوستاش رو پست کرد.
+ولی متاسفانه کمی بعد حذف شد،معلوم نیست خودش حذف کرد یا اینستا حذف کرد
+اما خوشبختانه ما ذخیره کردیم نشونتون بدیم 🤣
+مشاهده بدون سانسور ❤️‍🔥 👉
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11092
 
@@ -36,8 +62,6 @@
 </div>
 
 ## tasiyanc — post 11090
-
-<div align="center"><a href="files/post_11090_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن اندروید Wepari 
@@ -311,31 +335,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
 ⚽️
 💵🅰g8
-</div>
-
-## tasiyanc — post 11073
-
-<div align="center"><video src="files/post_11073_tasiyanc_11073.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11073_tasiyanc_11073.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجری احمق مکزیکی وسط پخش زنده جوگیر شد پهپاد رو لگد زد، مستقیم خورد تو صورت مدل برنامه!
-
-ارنستو چاوانا، مجری مکزیکی، وسط برنامه زنده خواست پهپاد رو با لگد بزنه، اما پهپاد منحرف شد و خورد تو صورت ایزابلا روخاس، مدل حاضر تو برنامه!
-ایزابلا با صورت زخمی صحنه رو ترک کرد و رسانه‌ها از بریدگی لبش خبر دادن ایزابلا بعد از دریافت درمان دوباره برگشت استودیو.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11072
-
-<div align="center"><img src="files/post_11072_tasiyanc_11072.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جف بزوس مالک آمازون تکلیف میلیاردها دلار ثروتش رو مشخص کرد!
-
-بنیان‌گذار آمازون در یک برنامه درباره سرنوشت ثروتش گفت حدود ۳۰ درصد دارایی‌اش رو صرف امور خیریه می‌کنه و باقی ثروتش به همسرش، لورن سانچز، می‌رسه تا هر طور که می‌خواد ازش استفاده کنه.
-اما نکته جالب ماجرا اینجاست؛ بچه‌هاش قرار نیست ثروت هنگفتی به ارث ببرن! به گفته بزوس، ترجیح می‌ده بهشون یاد بده چطور کار کنن و خودشون پول دربیارن، نه اینکه صرفاً وارث ثروت پدرشون باشن!
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 105
 
-📅 آخرین بروزرسانی: 1405/08/09 21:44
+📅 آخرین بروزرسانی: 1405/08/10 01:03
 
 ---
+
+## tasiyanc — post 8473
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ گزارش انفجار در زنجان ، تابیده؟
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨⭕️ صدای انفجار در خرم آباد
+
+@TASIYANC 
+✅
+</div>
 
 ## tasiyanc — post 8471
 
@@ -154,17 +171,5 @@
 
 
 @TASIYANC ⭐️
-</div>
-
-## tasiyanc — post 8453
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اسپانییییییییییییا قهرمان جام جهانی شد
-</div>
-
-## tasiyanc — post 8452
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تماااااامممممممم
 </div>
 
