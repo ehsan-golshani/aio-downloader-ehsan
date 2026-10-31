@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10941
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ تراکتور - صنعت نفت آبادان 🌎 ساعت ۱۷:۰۰ ⚽️ یوونتوس - رن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
+</div>
 
 ## tasiyanc — post 10940
 
@@ -292,19 +298,5 @@ G29🅰
 
 🌐 کانال رسمی ما در تلگرام 👇
 ⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10920
-
-<div align="center"><video src="files/post_10920_tasiyanc_10920.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10920_tasiyanc_10920.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو که طرف داره کمر یه دختر رو تتو می‌زنه، چند میلیون بازدید خورده!
-
-حالا اینکه دقیقاً چه گهی تو این ویدیو هست که ملت این‌جوری ریختن سرش، خودش جای بحث داره!
-
-⚡ @Tasiyanc
 </div>
 

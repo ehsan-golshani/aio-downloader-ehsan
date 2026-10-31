@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10399
+
+<div align="center"><img src="files/post_10399_tasiyanc_10399.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز ـ رژه بانوان جانفدا در تهران
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10397
 
@@ -230,16 +240,6 @@ https://t.me/+72lhaZgfJ2oxMjdk
 مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
 
 جهت دریافت کلیک کنید ☝
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10374
-
-<div align="center"><img src="files/post_10374_tasiyanc_10374.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 بهداد اقبالی ( ایرانی الاصل ) که مالک شرکت Clearlake Capital است با خرید سهام تادبولی رسما 100 درصد مالکیت باشگاه چلسی رو در اختیار گرفت
 
 💋 @Tasiyanc
 </div>

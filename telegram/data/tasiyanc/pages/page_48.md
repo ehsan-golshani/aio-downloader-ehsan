@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 48
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 9985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9984
 
@@ -301,18 +310,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9961
-
-<div align="center"><img src="files/post_9961_tasiyanc_9961.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت برگ ریزان گوشی ۱۴ شهریور
-
-یه موبایل میان رده هم شد آرزو!
 
 💋 @Tasiyanc
 </div>

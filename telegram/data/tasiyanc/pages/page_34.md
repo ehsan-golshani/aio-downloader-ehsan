@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10374
+
+<div align="center"><img src="files/post_10374_tasiyanc_10374.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 بهداد اقبالی ( ایرانی الاصل ) که مالک شرکت Clearlake Capital است با خرید سهام تادبولی رسما 100 درصد مالکیت باشگاه چلسی رو در اختیار گرفت
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10372
 
@@ -313,22 +323,5 @@ https://t.me/+72lhaZgfJ2oxMjdk
 💎کانال اطلاع رسانی ایران:g25🅰
 
 ✉️https://t.me/+VKiCVNmMnFM2ZTU0
-</div>
-
-## tasiyanc — post 10351
-
-<div align="center"><video src="files/post_10351_tasiyanc_10351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10351_tasiyanc_10351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 صحبت های یه آخوند:
-
-ـ تجاوز رو آزاد کنین!!! چرا به کسی که میخواد مزاحم دخترا بشه و بهشون تجاوز بکنه آزادی نمیدید؟!
-دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
-
-
-
-💋 @Tasiyanc
 </div>
 

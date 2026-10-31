@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10329
+
+<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10328
 
@@ -292,14 +303,5 @@ https://t.me/+VKiCVNmMnFM2ZTU0
 📎 https://reffpa.com/L?tag=d_1200657m_2765c_&site=1200657&ad=2765&r=registration/
 
 ‼️جهت استفاد از وبسایت از آی پی کشورهای آسیایی یا کانادا ، استفاده کنید🇨🇦  🇮🇳 🇹🇷
-</div>
-
-## tasiyanc — post 10299
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 چند وقت پیش یه حرومزاده توی پارک یه پسر بچه 13 ساله رو به بهونه اینکه میخواد Ps5 اش رو بهش بده، می‌کشه خونشون.
-اما متاسفانه به پسره تعرض می‌کنه و اونم از خجالت به خونوادش چیزی نمی‌گفته.
-خلاصه باباش متوجه تغییر رفتار پسرش میشه و آمارشو در میاره که کار کی بوده، در نهایت فرد متجاوز رو گیر میاره و آلت تناسلیش رو میبره.
-💋 @Tasiyanc
 </div>
 

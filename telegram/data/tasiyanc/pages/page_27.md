@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10537
+
+<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
+
+پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10536
 
@@ -265,19 +279,5 @@ G2🅰
 •اتصال امن برای همه 🇮🇷
 
  @TASIYANC
-</div>
-
-## tasiyanc — post 10516
-
-<div align="center"><img src="files/post_10516_tasiyanc_10516.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨زامیاد Z25 به عنوان جایگزین نیسان آبی رونمایی شد
-‌
-امروز با حضور وزیر صمت زامیاد Z25 در شرکت سایپا رونمایی شد.
-
-
-
-💋 @Tasiyanc
 </div>
 

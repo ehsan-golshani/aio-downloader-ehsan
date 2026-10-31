@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 11062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 فوری
+
+گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
+</div>
 
 ## tasiyanc — post 11061
 
@@ -277,21 +285,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11042
-
-<div align="center"><img src="files/post_11042_tasiyanc_11042.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6
-
-https://t.me/+VmekrTukXnphNmU0
-https://t.me/+VmekrTukXnphNmU0
-
-🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
 </div>
 

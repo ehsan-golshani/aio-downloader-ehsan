@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 42
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10144
+
+<div align="center"><img src="files/post_10144_tasiyanc_10144.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠جدیدا خیلی از کافه‌ها شبا در کافه رو به روی مشتریای عادی میبندن و کافه ها تبدیل به کلاب میشن و پارتی برگزار میشه. فقط هم با بلیط میشه وارد شد. بلیط ورود برای پسرا ۱ میلیون و ۲۰۰ هزار تومنه؛ درحالی که برای دخترا فقط ۳۰۰هزار تومنه.
+
+پروکسی | پروکسی  | پروکسی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10143
 
@@ -325,17 +337,6 @@ Create an ultra-realistic vintage portrait of the same young Iranian woman from 
 ریدین تو مملکت و آینده ما مبارکتون باشه
 
 پروکسی | پروکسی  | پروکسی
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10112
-
-<div align="center"><img src="files/post_10112_tasiyanc_10112.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴امروز 10 September، روز جهانی آرایش کردنه💄
 
 
 💋 @Tasiyanc

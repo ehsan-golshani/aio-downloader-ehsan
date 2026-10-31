@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 145
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 7041
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇳🇱⚡⚡GGG.npvt
+</div>
 
 ## tasiyanc — post 7040
 
@@ -219,11 +225,5 @@ matador ⚡ Fast.npvt
 آموزش اتصال 🔹
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6991
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥⚡Tasiyanc.dark
 </div>
 

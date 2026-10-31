@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10920
+
+<div align="center"><video src="files/post_10920_tasiyanc_10920.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10920_tasiyanc_10920.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو که طرف داره کمر یه دختر رو تتو می‌زنه، چند میلیون بازدید خورده!
+
+حالا اینکه دقیقاً چه گهی تو این ویدیو هست که ملت این‌جوری ریختن سرش، خودش جای بحث داره!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10919
 
@@ -312,20 +326,6 @@ https://t.me/+HsrP_lU8O081ZWFk
 <div align="center"><video src="files/post_10901_tasiyanc_10901.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
 
 <div align="center"><a href="files/post_10901_tasiyanc_10901.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!
-
-از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10900
-
-<div align="center"><video src="files/post_10900_tasiyanc_10900.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10900_tasiyanc_10900.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!

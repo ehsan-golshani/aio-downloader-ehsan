@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10558
+
+<div align="center"><img src="files/post_10558_tasiyanc_10558.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨 فوری: رسما مذاکرات با ایران تموم و پرونده‌اش بسته شد!
+
+دقایقی پیش ترامپ اعلام کرد دیگه هیچوقت به مذاکره با ایران برنمی‌گرده و آخرین پیشنهاد جمهوری اسلامی هم رد کرده و جنگ قطعیه!
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10557
 
@@ -280,19 +292,5 @@ https://t.me/+aeze7JXKVfU2NmNk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10537
-
-<div align="center"><video src="files/post_10537_tasiyanc_10537.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10537_tasiyanc_10537.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴برای اولین بار در ۴۷ سال اخیر، یک ژیمناستیک‌کار زن ایرانی در مسابقات آسیایی شرکت کرد. هنگامه هادیانی که گویا مسئولین فدراسیون حتی مربیشم نبردن به مسابقات و تک تنهایی رفته مسابقه بده
-
-پ‌ن : ژیمناستیک ورزش انعطاف بدنیه و با این پوشش خیلی سخته بنظرم اولین حریفی که باید شکست بده این لباس‌هاشه .
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 11082
+
+<div align="center"><video src="files/post_11082_tasiyanc_11082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11082_tasiyanc_11082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اگه تلگرامتون رو آپدیت نکردین، حواستون باشه! یه حفره امنیتی خطرناک توی نسخه اندروید تلگرام کشف شده!
+
+طبق گزارش یه شرکت امنیت سایبری، این آسیب‌پذیری به هکرها اجازه می‌داده با یه اکانت معمولی تلگرام با قربانی تماس بگیرن و بعد از پاسخ دادن به تماس، کد مخرب رو داخل محیط برنامه اجرا کنن!
+البته تلگرام حدود یک ماه پیش این مشکل امنیتی رو برطرف کرده و نسخه‌های جدید دیگه در برابر این آسیب‌پذیری مشکلی ندارن.
+﻿
+🔴 اگه هنوز تلگرامتون رو آپدیت نکردین، همین الان برید سراغ آخرین نسخه؛ امنیت اکانتتون رو شوخی نگیرید!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11081
 
@@ -260,13 +277,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بوی جنگ میاد
-</div>
-
-## tasiyanc — post 11062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 فوری
-
-گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
 </div>
 

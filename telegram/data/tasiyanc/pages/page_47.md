@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 47
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10005
+
+<div align="center"><video src="files/post_10005_tasiyanc_10005.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10005_tasiyanc_10005.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ سرعتی وایرگارد 
+🔓
+
+حجم و کاربر نامحدود 
+⚡️
+
+
+دانلود 
+📱Android
+🕹  iOS
+
+
+آموزش اتصال با WgTunnel 
+🔗
+
+آموزش اتصال با windscribe
+🔗
+
+
+
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 10004
 
@@ -299,15 +329,6 @@ sg15
 🚨پارت سوم از خوشگذرانی سربازان امریکایی ناو ابراهام لینکلن در تایلند
 
 سربازان آمریکایی که ماه‌ها در‌ ناو لینکلن در وضعیت نامناسب و جنگ به‌سر میبردند حالا در خیابان‌های پاتایا عشق حال میکنند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 پشماتون بریزه ، جنگ زمینی شروع بشه ، پشتیبانی‌زمینی از نیروها با هواپیمای A-10 این شکلیه
 
 
 💋 @Tasiyanc

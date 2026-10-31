@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 38
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10264
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فک کنم اگه هرشب با ۲۰۰ هزار تومن میومدین چنل بت ما ، شبی بالای ۲ میلیون سود کرده بودین مثل دیشب:)😊😂
+
+میگی ن ؟ بیا تو چنلمون و ببین🔥
+Join Join Join
+Join Join Join
+</div>
 
 ## tasiyanc — post 10263
 
@@ -345,17 +355,5 @@
 📌 همین حالا به خانواده ما اضافه شو:
 📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
 💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
-</div>
-
-## tasiyanc — post 10233
-
-<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق تحقیقات جدید، از نظر ثبات مالی و ...
-65 سالگی بهترین سن برای ازدواج آقایونه.
-
-
-💋 @Tasiyanc
 </div>
 

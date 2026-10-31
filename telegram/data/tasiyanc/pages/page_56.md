@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 56
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 9791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 9790
 
@@ -289,18 +299,5 @@ https://Winamit.com/fa
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🤖🤖 Gemini - ChatGpt
-</div>
-
-## tasiyanc — post 9757
-
-<div align="center"><video src="files/post_9757_tasiyanc_9757.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9757_tasiyanc_9757.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴در یک لحظهٔ عادی اما م،رگبار، دانیل ریدِ ۳۲ ساله زنی به نام جسیکا را دید که غرق در گوشی موبایلش، قدم به خیابان می‌گذارد؛ بی‌آنکه متوجه ماشینِ درحال نزدیک شدن باشد. تنها چند ثانیه تا فاجعه وقت باقی بود. دانیل بدون فکر زن را از مرگ نجان داد
-+ چند روز بعد جسیکا از دانیل شکایت کرد که او به حریم خصوصی وی تجاوز کرده و نباید نجاتش میداد 😭
-
-🩸 @Tasiyanc
 </div>
 

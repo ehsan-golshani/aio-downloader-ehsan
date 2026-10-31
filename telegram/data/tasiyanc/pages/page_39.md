@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10233
+
+<div align="center"><img src="files/post_10233_tasiyanc_10233.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق تحقیقات جدید، از نظر ثبات مالی و ...
+65 سالگی بهترین سن برای ازدواج آقایونه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10232
 
@@ -220,18 +232,6 @@ Extremely photorealistic, authentic 1980s family photo, analog film photography,
 🚨 درگیری در سراوان
 
 منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان این درگیری‌ها دست‌کم سه دستگاه خودروی نظامی و زرهی نیروهای امنیتی هدف قرار گرفته‌اند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10204
-
-<div align="center"><img src="files/post_10204_tasiyanc_10204.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴دیشب تو تهران ی عروس و داماد بعد از مراسم داشتن از تالار میرفتن سمت خونشون تا زندگیشونو شروع کنن که تو اتوبان آزادگان ماشینشون چپ میشه، عروس درجا جونشو از دست میده و داماد هم به شدت زخمی شده و الان بستریه.
-
-
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10204
+
+<div align="center"><img src="files/post_10204_tasiyanc_10204.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دیشب تو تهران ی عروس و داماد بعد از مراسم داشتن از تالار میرفتن سمت خونشون تا زندگیشونو شروع کنن که تو اتوبان آزادگان ماشینشون چپ میشه، عروس درجا جونشو از دست میده و داماد هم به شدت زخمی شده و الان بستریه.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10202
 
@@ -336,26 +348,5 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 یه ماه از این ازدواج نگذشته بود که دختره کل مهریه رو از پسر جوگیر گرفت و طلاق گرفتن
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10170
-
-<div align="center"><img src="files/post_10170_tasiyanc_10170.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت پرتره ادیتوریال سینمایی و سیاه-سفید
-
-Prompt 🤖🤖
-
-« Man 😊 »
-
-A cinematic black-and-white editorial portrait of a young man sitting indoors against a textured wall, wearing an oversized dark wool coat and dark tailored trousers. He has short dark hair styled with natural texture and soft strands framing his face. He is sitting in a relaxed, confident pose with one knee raised, his right hand gently resting near his lips and chin, showing subtle hands structure. Calm, resolute, slightly melancholic facial expression, strong jawline, defined eyebrows, sharp facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and his face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
-
-« Woman 😊 »
-
-A cinematic black-and-white editorial portrait of a young woman sitting indoors against a textured wall, wearing an oversized dark wool coat and dark pants. She has long dark hair styled in a loose, slightly messy low bun with soft strands framing her face. She is sitting in a relaxed, elegant pose with one knee raised, her right hand gently resting near her lips and chin. Calm, confident, slightly melancholic facial expression, defined eyebrows, soft full lips, subtle natural makeup, delicate facial features. Strong directional sunlight coming through a window creates dramatic geometric shadows across the wall and her face. High-contrast monochrome photography, deep blacks, soft gray highlights, dramatic chiaroscuro lighting, minimalist composition, luxury fashion editorial aesthetic, film grain, realistic skin texture, shallow depth of field, 85mm lens, soft focus background, highly detailed, sophisticated and moody atmosphere, analog film photography, vertical portrait, 4:5 aspect ratio.
-
-آموزش استفاده از پرامپت و ساخت تصویر➡️
-⚡ @Tasiyanc
 </div>
 

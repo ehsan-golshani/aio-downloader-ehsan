@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10351
+
+<div align="center"><video src="files/post_10351_tasiyanc_10351.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10351_tasiyanc_10351.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صحبت های یه آخوند:
+
+ـ تجاوز رو آزاد کنین!!! چرا به کسی که میخواد مزاحم دخترا بشه و بهشون تجاوز بکنه آزادی نمیدید؟!
+دخترا با هر پوششی میتونن بیان بیرون، پس باید برای آقایون هم آزادی باشه و اگه دلشون خواست به دخترا تعرض کنن!
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10350
 
@@ -324,17 +341,6 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴عجیب ترین اسم و فامیل‌های ثبت شده ثبت احوال 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10329
-
-<div align="center"><img src="files/post_10329_tasiyanc_10329.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼 شات‌های جدید بانو آنا د آرماس عزیز 👼
 
 
 💋 @Tasiyanc

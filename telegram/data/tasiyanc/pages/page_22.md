@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/09 04:35
+📅 آخرین بروزرسانی: 1405/08/09 10:40
 
 ---
+
+## tasiyanc — post 10646
+
+<div align="center"><video src="files/post_10646_tasiyanc_10646.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10646_tasiyanc_10646.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ویدیو وایرال شده این خانوم روس داره از خوبی های مرد ایرانی میگه که ازدواج کرده . این در حالیه که زن ایرانی به علت ندید بدید بودنش ‌وقتی مرد خارجی میبینه دست و پاش رو گم میکنه. قدر زر زرگر شناسد.
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10645
 
@@ -292,21 +305,5 @@ https://AmitisBet.com/
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
-</div>
-
-## tasiyanc — post 10624
-
-<div align="center"><img src="files/post_10624_tasiyanc_10624.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8
-
-https://t.me/+E4HUFuYfyUw1MjRk
-https://t.me/+E4HUFuYfyUw1MjRk
-
-🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
 </div>
 
