@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/09 10:40
+📅 آخرین بروزرسانی: 1405/08/09 17:19
 
 ---
+
+## tasiyanc — post 11088
+
+<div align="center"><img src="files/post_11088_tasiyanc_11088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بیانیه جدید و مهم سیدمجتبی خامنه‌ای🇮🇷:
+
+هر لحظه آمادگی کامل رو برای جنگ داریم، به محض شروع جنگ، پاسخ کوبنده‌ای خواهیم داد.
+این سری بدون هیچ محدودیت جغرافیایی پاسخ خواهیم داد! (اشاره به موشکای قاره پیما!)
+ایندفعه اگه آمریکا و اسرائیل دست به ترور بزنه، دیگه پایان جنگ دست خودشون نیست و ولشون نمی‌کنیم.
+در جنگ بعدی دارایی‌های مادی و غیرمادی آمریکا رو مورد حمله قرار میدیم!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11087
+
+<div align="center"><video src="files/post_11087_tasiyanc_11087.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11087_tasiyanc_11087.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵کانال 14 اسرائیل🇮🇱: همه تو بالاترین سطح آماده‌باش هستن و خودشون رو برای 4 نوامبر (۱۳ آبان)، یعنی روز بعد از انتخابات میان‌دوره‌ای آمریکا، آماده می‌کنن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11085
+
+<div align="center"><video src="files/post_11085_tasiyanc_11085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11085_tasiyanc_11085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز 31 October، روز هالووینه! 🎃
+
+هالووین یکی از جشن‌های قدیمی و محبوب جهانه که هر سال در شب ۳۱ اکتبر برگزار می‌شه. مردم با لباس‌های ترسناک و عجیب، ماسک‌های خاص و تزئین کدوحلوایی، این شب رو جشن می‌گیرن.
+از رسم‌های معروفش هم خونه‌های ترسناک، قصه‌های وحشتناک و جمله معروف «شیرینی یا شیطنت؟» (Trick or Treat) هست!
+پی‌نوشت: چند تا ویدیو وایرال شده از هالووین تهران در ۲۴ ساعت گذشته 🎃
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11084
+
+<div align="center"><a href="files/post_11084_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11083
+
+<div align="center"><img src="files/post_11083_tasiyanc_11083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حسااااس بایرن مونیخ و دورتموند رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
 
 ## tasiyanc — post 11082
 
@@ -228,54 +307,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 📱 @Lenzbet_official
 
 📱 https://www.lenz7bet.online
-</div>
-
-## tasiyanc — post 11067
-
-<div align="center"><video src="files/post_11067_tasiyanc_11067.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11067_tasiyanc_11067.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه آمریکا به «کوه کلنگ» حمله کنه، چطور از تشعشعات هسته‌ای جون سالم به در ببریم؟!
-
-این ویدئو رو ببینید تا بدونید تو چنین شرایطی چطور از خودتون محافظت کنید. ذخیره‌ش کنید و بفرستید واسه اشناهاتون .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 میکس سری‌آ وین شد ✅ آاس رم 🆚 کالیاری — برد رم ✅ ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅ 📈 ضریب میکس: 1.808 🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳 نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7 @…
-</div>
-
-## tasiyanc — post 11065
-
-<div align="center"><img src="files/post_11065_tasiyanc_11065.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 میکس سری‌آ وین شد ✅
-
-آاس رم 🆚 کالیاری — برد رم ✅
-ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅
-
-📈 ضریب میکس: 1.808
-🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳
-
-نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7
-@Tipster_Persians
-</div>
-
-## tasiyanc — post 11064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
-</div>
-
-## tasiyanc — post 11063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
 </div>
 

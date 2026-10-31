@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 24
 
-📅 آخرین بروزرسانی: 1405/08/09 10:40
+📅 آخرین بروزرسانی: 1405/08/09 17:19
 
 ---
+
+## tasiyanc — post 10608
+
+<div align="center"><img src="files/post_10608_tasiyanc_10608.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽ اسپانیا 🇪🇸 - 🇭🇷 کرواسی
+🏆 لیگ ملت‌های اروپا‌ 🏆
+🕔 سه‌شنبه ساعت ۲۲:۱۵
+📍 ورزشگاه رامون سانچز پیس‌خوان
+🎲 با بیش از ۶۵۰ نوع آپشن پیش‌بینی
+👆 ضرایب شگفت‌انگیز
+
+📊 نگاهی به آمار دو تیم:
+✅ اسپانیا: ۸ برد و ۲ تساوی در ۱۰ بازی اخیر.
+✅ کرواسی: ۶ برد و ۴ شکست در ۱۰ بازی اخیر.
+📈 میانگین گل در ۱۰ بازی اخیر اسپانیا: ۲.۳ گل در هر بازی.
+📈 میانگین گل در ۱۰ بازی اخیر کرواسی: ۳.۳ گل در هر بازی.
+
+🧠 بازی با برنامه، لذت را ماندگار می‌کند.
+
+
+👍 ورود به سایت با فیلترشکن
+
+کلیک کنید BetForward.com
+کلیک کنید BetForward.com
+
+🟢 دریافت سرورفیلترشکن رایگان
+🅰r7
+💻 @BetForward
+</div>
+
+## tasiyanc — post 10607
+
+<div align="center"><img src="files/post_10607_tasiyanc_10607.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨وحشتناک‌ترین خبر چند روز اخیر آمریکا مربوط به خوابگاه دانشگاه کرنله.
+
+
+چند پسر یک دختر دانشجو رو با کتامین مسموم می‌کنن و وقتی نیمه‌هوشیار بوده، بهش تجا*وز گروهی می‌کنن.
+
+بعدش توی گروه خوابگاه درباره این اتفاق پست می‌ذارن و به بقیه پسرها می‌گن توی فلان اتاق ک* رایگان هست و هرکی می‌خواد بیاد.
+مدیرای دانشگاه به جز دو نفری که اخراج میکنن به بقیه‌اشون می‌گن برای تنبیه مقاله بنویسن که چقدر کارشون زشت بوده!! و همین باعث اعتراض آمریکاییا شده.
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10606
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨ برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥 هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀 یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز…
+</div>
+
+## tasiyanc — post 10605
+
+<div align="center"><img src="files/post_10605_tasiyanc_10605.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎁 بلیت رایگان برای همه بازی‌های وینگو! 🎟✨
+
+برای شروع لازم نیست هزینه‌ای پرداخت کنی؛ وارد Wingo Bingo شو، تیکت رایگانت رو بگیر، شماره‌هات رو انتخاب کن و شانست رو در بازی امتحان کن.🔥
+
+هر تیکت شامل ۶ شماره + ۱ شماره شانس 🍀
+یک انتخاب ساده می‌تونه شروع یک برد هیجان‌انگیز باشه! 🏆
+
+🎟 بلیت رایگان برای همه بازی‌ها
+🎯 انتخاب شماره و شرکت در بازی
+💰 جوایز ویژه و‌ میلیونی
+
+همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
+
+🌐 wingobingo.tv
+</div>
+
+## tasiyanc — post 10604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned a file
+</div>
 
 ## tasiyanc — post 10603
 
@@ -233,67 +314,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 🚨 میلی‌گلد که چندین هزار کیلو طلا به مردم فروخته و خالی فروشی کرده، اومد گفت دلیل اینکه پول مردم رو نمی‌دیم اینه که ۹۶۵ کیلو از بانک کارگشایی طلب داریم اونا هم نمیدن؛ بانک هم اومد کلا زد زیر داستان گفت طلا دست ما ندارید.
 
 و به همین زیبایی پول مردم رو خوردن
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10585
-
-<div align="center"><video src="files/post_10585_tasiyanc_10585.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10585_tasiyanc_10585.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ویدیو وایرال شده ؛ یه زوج ایرانی از عروسی‌شون ویدیو منتشر کردن و جای اینکه فامیلای دور و کسایی که حتی سالی یه بارم نمی بینن دعوت کنن،
-
-فقط رفیقای صمیمی‌شون رو دعوت و حسابی باهم عشق و حال کردن.
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+kt_bsasgniphZmZk https://t.me/+kt_bsasgniphZmZk 🅰g5 🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
-</div>
-
-## tasiyanc — post 10583
-
-<div align="center"><img src="files/post_10583_tasiyanc_10583.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+kt_bsasgniphZmZk
-https://t.me/+kt_bsasgniphZmZk
-🅰g5
-🎯 سود 5 ملیونی ما از بازی ایران - ازبکستان 💵
-</div>
-
-## tasiyanc — post 10582
-
-<div align="center"><video src="files/post_10582_tasiyanc_10582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10582_tasiyanc_10582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴لیان یون‌ژی، دختر شش‌ساله چینی، رکورد جهانی در حل مکعب روبیک (در بخش زنان) به نام خود ثبت کرد.
-
-این کودک چینی در عرض سه روز،ابتدا میانگین زمانی ۴٫۵۲ ثانیه و سپس به ۴٫۲۷ ثانیه بهبود بخشید؛او به تنها دختر مکعب‌باز در جهان است که میانگین زمان حل آن کمتر از ۴٫۵ ثانیه است
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10581
-
-<div align="center"><video src="files/post_10581_tasiyanc_10581.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10581_tasiyanc_10581.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴بیش از 500 بیلبورد و ده‌ها کامیون و اتوبوس یک کارزار گسترده‌ی دیجیتال تو قلب نیویورک دارن خطر ایران هسته ای رو نشون میدن ، این میتونه آماده سازی افکار عمومی رو برای شروع یه جنگ بزرگ باشه
 
 @Tasiyanc
 </div>

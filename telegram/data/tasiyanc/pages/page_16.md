@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/09 10:40
+📅 آخرین بروزرسانی: 1405/08/09 17:19
 
 ---
+
+## tasiyanc — post 10780
+
+<div align="center"><video src="files/post_10780_tasiyanc_10780.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10780_tasiyanc_10780.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠هردو تیم گل میزنند_بله 
+💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنیم که جز بهترینا هستیم،بهتون ثابت میکنیم!! کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید
+😍✅ 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
+</div>
+
+## tasiyanc — post 10779
+
+<div align="center"><video src="files/post_10779_tasiyanc_10779.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10779_tasiyanc_10779.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💠هردو تیم گل میزنند_بله
+
+
+💠ضریب 1.49
+
+⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال
+
+💪فقط ادعا نمی‌کنیم که جز بهترینا هستیم،بهتون ثابت میکنیم!! کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید
+😍✅
+
+🆔@Aron_tip 🆔 @Aron_tip
+🆔@Aron_tip 🆔 @Aron_tip
+</div>
+
+## tasiyanc — post 10778
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖رونمایی از تندیس زیبای شمس تبریزی در خوی
+
+پ ن : برا اولین بار مجسمه به این زیبایی دیدیم
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10776
+
+<div align="center"><video src="files/post_10776_tasiyanc_10776.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10776_tasiyanc_10776.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قسمتی از فیلم سک*ی کراشتون بانو فلورنس پیو تو سریال جدید east of eden که حسابی سروصدا کرده 
+🔞
+
+جهت مشاهده فیلم کلیک کنید
+</div>
+
+## tasiyanc — post 10775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10773
 
@@ -226,75 +293,5 @@ https://t.me/+ramzL0orpc5hMTBk
 🅰r17
 🆔@Aron_tip 🆔 @Aron_tip
 🆔@Aron_tip 🆔 @Aron_tip
-</div>
-
-## tasiyanc — post 10758
-
-<div align="center"><video src="files/post_10758_tasiyanc_10758.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10758_tasiyanc_10758.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖ویدئوی وایرال شده از وضعیت کاملا طبیعی یه دبیرستان دخترونه تو تهران؛
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10757
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖یه املاكی که تو رامسر ویلا اجاره میده تصمیم گرفته تولید محتوا کنه تا مشتری جذب کنه که سریعا وایرال شده :
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10756
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال #بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂 
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵 
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10755
-
-<div align="center"><video src="files/post_10755_tasiyanc_10755.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10755_tasiyanc_10755.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال #بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂
-
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵
-
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی
-✅
-
-
-
-💎ادرس عضویت کانال vip:
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10754
-
-<div align="center"><img src="files/post_10754_tasiyanc_10754.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، توییت جدید ترامپ : ما در حال گفتگوی سازنده‌ای با جمهوری اسلامی ایران هستیم و به هیچ عنوان قبل از انتخابات میان دوره ای به ایران حمله نخواهیم کرد.
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/09 10:40
+📅 آخرین بروزرسانی: 1405/08/09 17:19
 
 ---
+
+## tasiyanc — post 11047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11046
+
+<div align="center"><img src="files/post_11046_tasiyanc_11046.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎰 لنز بت بیشترین تنوع در بازیهای کازینویی ، هدایای متفاوت💥
+
+🔣با هر واریز، بونوسی متفاوت و پیشنهادی ویژه در انتظار شماست🔣
+
+🎁 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+
+🏦 کد هدیه 0️⃣2️⃣🫡🔠بعد از واریز
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰6
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://l2enzbet.site/fa
+</div>
+
+## tasiyanc — post 11045
+
+<div align="center"><video src="files/post_11045_tasiyanc_11045.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11045_tasiyanc_11045.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سکانس پایانی یک دیکتاتور؛ از قدرت مطلق تا اعدام به جرم جنایت علیه بشریت!
+
+صدام حسین، مردی که بیش از دو دهه بر عراق حکومت کرد و روزگاری قدرتش منطقه رو تحت‌تأثیر قرار می‌داد، سرانجام بعد از حمله آمریکا به عراق در سال ۲۰۰۳ سقوط کرد و محاکمه شد.
+حکومتی که با جنگ ایران و عراق، حمله به کویت و سرکوب مخالفان گره خورده بود، در نهایت به دادگاه و حکم اعدام ختم شد؛ حکمی که در ۳۰ دسامبر ۲۰۰۶ اجرا شد.
+📌 تاریخ بارها نشون داده که هیچ قدرتی همیشگی نیست…
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11044
+
+<div align="center"><img src="files/post_11044_tasiyanc_11044.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 خوشتیپ‌ترین مردای جهان در سال ۲۰۲۶ معرفی شدن؛ ایران حتی تو لیست هم نیست!
+
+طبق این رتبه‌بندی، مردای اسپانیا 🇪🇸رتبه اول رو گرفتن؛ اما خبری از ایران توی این لیست نیست!
+
+ما رو کلاً از قلم انداختن یا سلیقه‌شون مشکل داره؟
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
+</div>
 
 ## tasiyanc — post 11042
 
@@ -185,82 +257,5 @@ https://t.me/+VmekrTukXnphNmU0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
-</div>
-
-## tasiyanc — post 11027
-
-<div align="center"><video src="files/post_11027_tasiyanc_11027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11027_tasiyanc_11027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بی‌بی نتانیاهو پاشده رفته تو یه کاباره میکروفون گرفته دستش میگه الان وقت کصکلک بازی نیست پاشید برید رای بدید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11026
-
-<div align="center"><video src="files/post_11026_tasiyanc_11026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11026_tasiyanc_11026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جدیدا چون برای ماساژ دادن جنس مخالف مجوز صادر نمی‌کنن، بعضی‌ها خدمات ماساژ رو به‌صورت خصوصی و در منزل مشتری انجام می‌دن؛ یعنی ماساژور خانم برای آقا یا ماساژور آقا برای خانم به محل موردنظر می‌ره.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-
-برد مساوی استقلال 🔵
-
-برنده 2.000.000 میلیون شوید 🔹
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11024
-
-<div align="center"><img src="files/post_11024_tasiyanc_11024.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار فوق حساااااس شباب الاهلی🇰🇼 و استقلال 🔵رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g5
-</div>
-
-## tasiyanc — post 11023
-
-<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
-
-قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
-بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
-💋 @Tasiyanc
 </div>
 
