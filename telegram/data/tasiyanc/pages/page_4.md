@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/09 17:19
+📅 آخرین بروزرسانی: 1405/08/09 21:44
 
 ---
+
+## tasiyanc — post 11031
+
+<div align="center"><img src="files/post_11031_tasiyanc_11031.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔣از اولین شارژ تا هر واریز بعدی،
+انواع بونوس‌ها و هدایای ورود🔣
+
+🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
+
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰5
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://www.lenz89bet.online
+</div>
+
+## tasiyanc — post 11030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق برخی گزارشات رسانه های اسراییل بی‌بی نتانیاهو از آیزنکوت پیشی گرفته
+</div>
+
+## tasiyanc — post 11029
+
+<div align="center"><img src="files/post_11029_tasiyanc_11029.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تصویر منتشر شده از شبکه ۱۴ اسراییل هم‌اکنون از شمارش آرا :
+
+جناح راست که لیکود (نتانياهو) : 60
+
+جناح چپ (آیزنکوت) : 43
+
++نتانیاهو فعلا پیشتازه
+</div>
+
+## tasiyanc — post 11028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
+</div>
 
 ## tasiyanc — post 11027
 
@@ -230,62 +280,5 @@
 📱 @lenzbet_official
 
 📱 https://www.lenz7bet.online
-</div>
-
-## tasiyanc — post 11011
-
-<div align="center"><img src="files/post_11011_tasiyanc_11011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پدری که یک‌تنه یک شبکه قاچاق انسان رو متلاشی کرد تا دختر ۱۴ سالشو نجات بده!
-
-یک ماه کابوس، یک دختر ربوده‌شده و پدری که حاضر نبود تسلیم بشه… «فرانک جروسی» اهل نیویورک برای پیدا کردن دخترش به دل خطر زد و به یک کشتی یورش برد؛ اقدامی که به متلاشی شدن یک شبکه قاچاق انسان هم کمک کرد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11010
-
-<div align="center"><video src="files/post_11010_tasiyanc_11010.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11010_tasiyanc_11010.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵«ویدیو وایرال شده پشم ریزون» از دعوا و درگیری یکی از زنان حامی حکومت با ترامپ پلاستیکی در تجریش که پشت میله ها وایستاده ، ترامپ پلاستیکی پشماش ریخته :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11009
-
-<div align="center"><img src="files/post_11009_tasiyanc_11009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵داستان واقعی ویتک خرس ایرانی که در جنگ جهانی سرجوخه شد!
-
-سال ۱۹۴۲، سربازای لهستانی توی ایران یه توله‌خرس یتیم پیدا کردن و اسمش رو گذاشتن ویتک
-ویتک با سربازا بزرگ شد، باهاشون کشتی می‌گرفت و طبق روایت‌ها، عاشق آبجو و خوردن سیگار بود!
-سال ۱۹۴۴، توی نبرد مونته کاسینو ایتالیا، به حمل جعبه‌های مهمات کمک کرد و بعدها به درجه سرجوخه رسید.
-حتی تصویرش در حال حمل مهمات، روی نشان یگانشون قرار گرفت!
-بعد از جنگ به اسکاتلند منتقل شد و سال ۱۹۶۳ در باغ‌وحش ادینبرو از دنیا رفت.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-گل زدن العین ⚽️ و تراکتور ⚽️
-+برد پاریس ⚽️
-
-برنده 2.300.000 میلیون شوید ☠️
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
 </div>
 

@@ -1,8 +1,104 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/09 17:19
+📅 آخرین بروزرسانی: 1405/08/09 21:44
 
 ---
+
+## tasiyanc — post 11092
+
+<div align="center"><video src="files/post_11092_tasiyanc_11092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11092_tasiyanc_11092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 حقیقت تکان‌دهنده درباره قرص برنج؛ از مرگبارترین قرص‌های دنیا!
+
+با خوردن این قرص مرگ شما حتمی و یکی از دردناکترین مرگ‌ها در جهان خواهد بود !
+با آزاد کردن گاز فسفین، در فاصله زمانی مشخص وقتی که کاملا به هوش هستید و درد رو حس میکنید تک به تک اعضای بدن‌تون مثل معده ، روده ، قلب ، کلیه ، کبد تجزیه میشه و باعث درد و رنج شدیدتون میشه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11091
+
+<div align="center"><video src="files/post_11091_tasiyanc_11091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11091_tasiyanc_11091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وقتی مسافرای اسنپ، راننده رو هم به مقصد می‌رسونن!
+این دو رفیق از ساری به مقصد رشت اسنپ می‌گیرن، اما وسط راه راننده خوابش می‌گیره و ماجرا یه‌جور دیگه پیش می‌ره!
+در نهایت این دوتا مسافر مجبور می‌شن خودشون پشت فرمون بشینن و راننده رو از ساری تا رشت برسونن!
+ایرانی جماعت واقعاً از هر موقعیتی یه خاطره می‌سازه!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11090
+
+<div align="center"><a href="files/post_11090_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد بایرن مونیخ 
+⚽️
++ گلزنی میلان
+⚽️و اینتر 
+⚽️
+
+برنده 2.000.000 میلیون شوید 
+🔹
+
+
+✍️ ورود به کانال اطلاع رسانی وی پاری 
+✈️
+</div>
+
+## tasiyanc — post 11089
+
+<div align="center"><video src="files/post_11089_tasiyanc_11089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11089_tasiyanc_11089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دربی فوق حساااااس میلان
+⚽️و اینتر 
+⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 
+🔥
+
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید
+🎁
+
+
+🔥شنبه بونوس 100%
+
+🔥 دوشنبه بونوس 50%
+
+
+🤖دانلود اپلیکیشن بدون فیلتر 
+🚀
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
+💸🅰g9
+</div>
 
 ## tasiyanc — post 11088
 
@@ -47,8 +143,6 @@
 </div>
 
 ## tasiyanc — post 11084
-
-<div align="center"><a href="files/post_11084_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 اپلیکیشن MelBet 🔄
@@ -243,69 +337,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 بنیان‌گذار آمازون در یک برنامه درباره سرنوشت ثروتش گفت حدود ۳۰ درصد دارایی‌اش رو صرف امور خیریه می‌کنه و باقی ثروتش به همسرش، لورن سانچز، می‌رسه تا هر طور که می‌خواد ازش استفاده کنه.
 اما نکته جالب ماجرا اینجاست؛ بچه‌هاش قرار نیست ثروت هنگفتی به ارث ببرن! به گفته بزوس، ترجیح می‌ده بهشون یاد بده چطور کار کنن و خودشون پول دربیارن، نه اینکه صرفاً وارث ثروت پدرشون باشن!
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11071
-
-<div align="center"><video src="files/post_11071_tasiyanc_11071.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11071_tasiyanc_11071.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آخوند شجاعی:
-
-بعد از فوت پیامبر، حضرت زهرا ۳ ماه تمام گریه میکرد!
-تا اینکه خدا به جبرئیل دستور داد که به حضرت زهرا خبر انقلاب اسلامی ایران رو بده و ایشون آروم شدن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11070
-
-<div align="center"><video src="files/post_11070_tasiyanc_11070.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11070_tasiyanc_11070.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو وایرال شده ۲۴ ساعت اخیر با ۱۱ میلیون ویو از دانشگاه آزاد مشهد
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11068
-
-<div align="center"><img src="files/post_11068_tasiyanc_11068.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎰 تورنومنت های هفتگی در لنز بت
-💥 متنوع ترین آپشنهای پیشبینی
-
-🔣0️⃣0️⃣2️⃣ بونوس خوش آمدگویی
-🔣0️⃣0️⃣1️⃣بونوس برای هر واریز
-🔤0️⃣0️⃣1️⃣ بونوس کازینو
-
-💳شارژ کارت به کارت آنلاین و درگاه 🔠🔠🔠
-🔣0️⃣3️⃣ کش بک هفتگی
-🧑‍💻با انواع دیلرهای فارسی زبان
-
-🪙واریز و برداشت انواع رمز ارزها 💵
-
-💻همین الان وارد لنزبت شو و از جوایز ویژه ما لذت ببر🅰r8
-🔠🔠🔠🔠🔠🔠🔠
-
-📱 @Lenzbet_official
-
-📱 https://www.lenz7bet.online
 </div>
 
