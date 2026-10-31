@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/08 20:27
+📅 آخرین بروزرسانی: 1405/08/09 04:35
 
 ---
+
+## tasiyanc — post 11041
+
+<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11039
+
+<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11038
+
+<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نقی بیا پشمات بریزه !
+
+نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11037
 
@@ -209,44 +252,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11021
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری آیزنکوت رقیب انتخاباتی نتانیاهو :
-
-مردم ایران باید خودشون از داخل رژیمشون تغییر ایجاد کنن؛ اینکه ما بخوایم با حمله ی نظامی رژیم ایران رو تغییر بدیم کار درستی نیست، ما نباید دخالتی کنیم این به خود مردم ایران بستگی داره که میخوان چیکار کنن.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11019
-
-<div align="center"><img src="files/post_11019_tasiyanc_11019.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛
-ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
-ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11018
-
-<div align="center"><video src="files/post_11018_tasiyanc_11018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11018_tasiyanc_11018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از ترسناک‌ترین سیارات کشف‌شده در کیهان؛ سیاراتی عجیب و باورنکردنی که هرگز تصورش را هم نمی‌کردید وجود داشته باشند !
-
-💋 @Tasiyanc
 </div>
 

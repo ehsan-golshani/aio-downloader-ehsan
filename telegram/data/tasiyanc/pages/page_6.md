@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/08 20:27
+📅 آخرین بروزرسانی: 1405/08/09 04:35
 
 ---
+
+## tasiyanc — post 10981
+
+<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
+
+وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10980
+
+<div align="center"><video src="files/post_10980_tasiyanc_10980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10980_tasiyanc_10980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم وایرال شده یه نوزاد که با سیبیل به دنیا اومده !
+
+
+هنوز معلوم نیست داستان این سبیل از کجا آب می‌خوره، ولی قیافه‌ش جوریه انگار به‌جای شیرمادر، باید چایی و قلیون بدیم بهش 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10979
+
+<div align="center"><img src="files/post_10979_tasiyanc_10979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این زوج تایلندی با 58 ساعت و 35 دقیقه بوسیدن ، رکورد جهانی طولانی‌ترین بوسه رو شکستند!
+
+بعد از این همه مدت، دیگه جدایی‌شون نه با قهر، بلکه با کمبود اکسیژن اعلام میکنم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10978
+
+<div align="center"><video src="files/post_10978_tasiyanc_10978.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10978_tasiyanc_10978.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سرقت خشونت‌آمیز طلاهای یک زن در یکی از مناطق تهران
+
+یک زن هنگام خرید در تهران هدف حمله سارق قرار گرفت و طلاهایش به‌زور سرقت شد.
+در کنار گرانی و فشارهای اقتصادی، حالا امنیت مردم هم زیر سؤال است!
+⚠️ مراقب باشید؛ طلا همراه نبرید و در خیابان گوشی دستتان نگیرید.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10977
 
@@ -245,56 +303,6 @@ VPN FREE
 🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده!
 
 این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10961
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+J5uvqzBai5A2MmI0 https://t.me/+J5uvqzBai5A2MmI0 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10960
-
-<div align="center"><img src="files/post_10960_tasiyanc_10960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+J5uvqzBai5A2MmI0
-https://t.me/+J5uvqzBai5A2MmI0
-
-🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10959
-
-<div align="center"><video src="files/post_10959_tasiyanc_10959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10959_tasiyanc_10959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 هجوم طوفان شن به دشتیاری چابهار؛ آسمان دشتیاری در محاصره گردوخاک!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10958
-
-<div align="center"><video src="files/post_10958_tasiyanc_10958.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10958_tasiyanc_10958.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یکی از زیباترین جانداران و آب‌زیان اقیانوس رو میبینید !
-
-ماهی «ماندارین» با این ترکیب رنگ خیره‌کننده، انگار مستقیم از دل دنیای فانتزی بیرون اومده!
-
-طبیعت واقعاً توی خلق این موجود سنگ تموم گذاشته!
 
 💋 @Tasiyanc
 </div>

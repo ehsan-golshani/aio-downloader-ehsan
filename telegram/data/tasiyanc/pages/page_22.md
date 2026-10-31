@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/08 20:27
+📅 آخرین بروزرسانی: 1405/08/09 04:35
 
 ---
+
+## tasiyanc — post 10645
+
+<div align="center"><video src="files/post_10645_tasiyanc_10645.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10645_tasiyanc_10645.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 این پست مخصوص بچه پاستوریزه ها و درس‌خوناست؛
+
+جدیدا یه تمایل جنسی به نام ساپیوسکشوال (Sapiosexual) مُد شده، اینطوری که کسایی‌ که این تمایل جنسی رو دارن مهم‌ترین چیز براشون اینه که طرف مقابلشون باهوش و زرنگ باشه.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10644
+
+<div align="center"><video src="files/post_10644_tasiyanc_10644.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10644_tasiyanc_10644.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+موقعیت : توی هند 🇮🇳 یه میمون وارد مشروب فروشی شده و انقد مشروب خورده به این روز افتاده😂
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10643
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴همیشه «یک» با «یک» برابر نیست
+بعضی وقتا مسیری که برای یک نفر ساده و همواره، برای یکی دیگه پر از مانع و سختیه !
+
+اونجا که حضار سالن به احترام این پسر نوجوان پاشد تشویقش کرد کیف کردم ....
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10642
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اپلیکیشن اختصاصی آمیتیس‌بت📱
+سریع، آسان و آنی👑
+https://AmitisBet.com/
+</div>
 
 ## tasiyanc — post 10641
 
@@ -262,77 +308,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 https://t.me/+E4HUFuYfyUw1MjRk
 
 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
-</div>
-
-## tasiyanc — post 10623
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تعداد 139 سرور پر سرعت V2Ray 🔐🔐🔐
-
-⚡️ پروتکل : 𝐕𝐥𝐞𝐬𝐬 | 𝐕𝐦𝐞𝐬𝐬 | 𝐒𝐒 | 𝐓𝐫𝐨𝐣𝐚𝐧
-
-متصل با تمام اپراتورها 🛜🛜🛜🛜🛜🛜
-
-اختصاصی، کل سرور ها تست شده
-
-فایل را‌‌ باز‌ کنید و همه سرور ها را‌ با گزینه select all کپی‌ کنید و وارد برنامه مربوطه کنید.
-
-دانلود V2Box نسخه اندروید🔐
-دانلود V2Box نسخه iOS 🔐
-
-دانلود Npv Tunnel نسخه اندروید🔐
-دانلود Npv Tunnel نسخه iOS🔐
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10622
-
-<div align="center"><video src="files/post_10622_tasiyanc_10622.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10622_tasiyanc_10622.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پشماتون فر بخوره ببینید اینو
-
-یه دختر ۲۲ ساله تو تعویض روغنی با دوست پسرش در حال سکس بوده ژل روان کننده نداشتن بجاش از روغن ترمز استفاده کردن، روغن ترمز باعث خوردگی شدید پوست گوشت آلت تناسلی دوست پسرش شده و‌ بر اثر سوختگی درجه ۳ پسره فوت کرده، دختره ام بعد ۲۰ روز تو ICU بودن اومده پیش دکتر
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10621
-
-<div align="center"><video src="files/post_10621_tasiyanc_10621.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10621_tasiyanc_10621.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨سنجاقک‌ها زیباترین مدل رابطه جنسی رو دارن.
-
-اونا بهم متصل میشن و شکل قلب تشکیل میدن و تو همین حالت پرواز میکنن و... تا کارشون تموم بشه.
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10620
-
-<div align="center"><img src="files/post_10620_tasiyanc_10620.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎁 تا ۵۰۰ درصد بونوس محافظ پیش‌بینی 🎲
-⏩ روزانه با ثبت حداقل ۱۰ میلیون ریال پیش‌بینی میکس با حداقل ۴ انتخاب بر روی رویدادهای ورزشی مورد علاقه خود، در صورتی که حداکثر یک انتخاب برگه پیش‌بینی شما ناموفق شود، بت‌فوروارد با توجه به تعداد سایر انتخاب‌های موفق برگه پیش‌بینی شما تا ۵۰۰ درصد مبلغ پیش‌بینی را تا سقف ۱۰۰ میلیون ریال به عنوان اعتبار پیش‌بینی رایگان ورزشی به شما هدیه خواهد داد.
-
-
-اطلاعات بیش‌تر و قوانین بونوس:
-🔗 bwrd.link/BTSHLD
-
-👍 ورود به سایت با فیلترشکن
-
-کلیک کنید BetForward.com
-کلیک کنید BetForward.com
-
-🟢 دریافت سرورفیلترشکن رایگان
-🅰r8
-💻 @BetForward
 </div>
 
