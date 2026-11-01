@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/10 17:33
+📅 آخرین بروزرسانی: 1405/08/10 22:33
 
 ---
+
+## tasiyanc — post 11065
+
+<div align="center"><img src="files/post_11065_tasiyanc_11065.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 میکس سری‌آ وین شد ✅
+
+آاس رم 🆚 کالیاری — برد رم ✅
+ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅
+
+📈 ضریب میکس: 1.808
+🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳
+
+نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7
+@Tipster_Persians
+</div>
+
+## tasiyanc — post 11064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
 
 ## tasiyanc — post 11062
 
@@ -249,41 +278,5 @@
 📱@lenzbet_official
 
 📱 https://l2enzbet.site/fa
-</div>
-
-## tasiyanc — post 11045
-
-<div align="center"><video src="files/post_11045_tasiyanc_11045.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11045_tasiyanc_11045.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سکانس پایانی یک دیکتاتور؛ از قدرت مطلق تا اعدام به جرم جنایت علیه بشریت!
-
-صدام حسین، مردی که بیش از دو دهه بر عراق حکومت کرد و روزگاری قدرتش منطقه رو تحت‌تأثیر قرار می‌داد، سرانجام بعد از حمله آمریکا به عراق در سال ۲۰۰۳ سقوط کرد و محاکمه شد.
-حکومتی که با جنگ ایران و عراق، حمله به کویت و سرکوب مخالفان گره خورده بود، در نهایت به دادگاه و حکم اعدام ختم شد؛ حکمی که در ۳۰ دسامبر ۲۰۰۶ اجرا شد.
-📌 تاریخ بارها نشون داده که هیچ قدرتی همیشگی نیست…
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11044
-
-<div align="center"><img src="files/post_11044_tasiyanc_11044.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 خوشتیپ‌ترین مردای جهان در سال ۲۰۲۶ معرفی شدن؛ ایران حتی تو لیست هم نیست!
-
-طبق این رتبه‌بندی، مردای اسپانیا 🇪🇸رتبه اول رو گرفتن؛ اما خبری از ایران توی این لیست نیست!
-
-ما رو کلاً از قلم انداختن یا سلیقه‌شون مشکل داره؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
 </div>
 

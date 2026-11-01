@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/10 17:33
+📅 آخرین بروزرسانی: 1405/08/10 22:33
 
 ---
+
+## tasiyanc — post 11107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨قیمت‌های پشم ریزون جدید موتورسیکلت شرکت کویر که برای خرید ارزون‌ترین مدلش باید ۳۰ ماه کار کنه یه ایرانی
+
+ارزون‌ترین مدل همون هندای خودمون 428 میلیون تومان !!!!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11106
+
+<div align="center"><a href="files/post_11106_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد رئال مادرید ⚽️
++ گل زدن لیورپول⚽️+ آرسنال ⚽️
+
+برنده 2.000.000 میلیون شوید ✔
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11105
+
+<div align="center"><img src="files/post_11105_tasiyanc_11105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدار فوق حساااااس لیورپول⚽️و آرسنال ⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g9
+</div>
 
 ## tasiyanc — post 11104
 
@@ -42,8 +93,6 @@
 </div>
 
 ## tasiyanc — post 11101
-
-<div align="center"><a href="files/post_11101_MelBet2.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MelBet2.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🆕 اپلیکیشن MelBet 🔄
@@ -286,56 +335,5 @@
 🔵کانال 14 اسرائیل🇮🇱: همه تو بالاترین سطح آماده‌باش هستن و خودشون رو برای 4 نوامبر (۱۳ آبان)، یعنی روز بعد از انتخابات میان‌دوره‌ای آمریکا، آماده می‌کنن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11085
-
-<div align="center"><video src="files/post_11085_tasiyanc_11085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11085_tasiyanc_11085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز 31 October، روز هالووینه! 🎃
-
-هالووین یکی از جشن‌های قدیمی و محبوب جهانه که هر سال در شب ۳۱ اکتبر برگزار می‌شه. مردم با لباس‌های ترسناک و عجیب، ماسک‌های خاص و تزئین کدوحلوایی، این شب رو جشن می‌گیرن.
-از رسم‌های معروفش هم خونه‌های ترسناک، قصه‌های وحشتناک و جمله معروف «شیرینی یا شیطنت؟» (Trick or Treat) هست!
-پی‌نوشت: چند تا ویدیو وایرال شده از هالووین تهران در ۲۴ ساعت گذشته 🎃
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11083
-
-<div align="center"><img src="files/post_11083_tasiyanc_11083.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حسااااس بایرن مونیخ و دورتموند رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
 </div>
 

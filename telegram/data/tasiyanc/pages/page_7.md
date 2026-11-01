@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/10 17:33
+📅 آخرین بروزرسانی: 1405/08/10 22:33
 
 ---
+
+## tasiyanc — post 10985
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن! آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر…
+</div>
+
+## tasiyanc — post 10984
+
+<div align="center"><img src="files/post_10984_tasiyanc_10984.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵درخشش دختر ۱۰ ساله خوزستانی در مسابقات بین‌المللی نقاشی ژاپن!
+
+آیلین جوانبخت ، دختر ۱۰ ساله اهل آغاجاری، موفق شد جایزه ویژه یونیسف رو در مسابقات بین‌المللی نقاشی ژاپن کسب کنه
+
+این رقابت با موضوع «بیایید به صدای زمین گوش کنیم» برگزار شد و ۹ هزار و ۹۰۷ اثر از ۷۲ کشور جهان در اون شرکت داشتن.
+«چندین نماینده دیگه از ایران هم موفق به کسب جایزه و دیپلم افتخار شدن»
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
 
 ## tasiyanc — post 10982
 
@@ -282,40 +315,6 @@ VPN FREE
 
 تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10965
-
-<div align="center"><img src="files/post_10965_tasiyanc_10965.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تفاوت پشم ریزون گرافیک GTA 5 و GTA 6 رو ببینید
-
-از گرافیک و جزئیات پوست و لباس گرفته تا نورپردازی و محیط بازی، راکستار حسابی سطح رو برده بالا!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10964
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10963
-
-<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
-
-مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
 💋 @Tasiyanc
 </div>
 
