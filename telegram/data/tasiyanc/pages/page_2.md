@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/10 01:03
+📅 آخرین بروزرسانی: 1405/08/10 10:23
 
 ---
+
+## tasiyanc — post 11076
+
+<div align="center"><img src="files/post_11076_tasiyanc_11076.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مخدری که بدن انسان رو از درون نابود می‌کنه؛ اسمش کروکودیله! 🐊
+
+«کروکودیل» یکی از مخدرهای بسیار خطرناکه که مصرفش می‌تونه باعث تخریب شدید بافت‌های بدن، عفونت و حتی از بین رفتن بخش‌هایی از پوست و گوشت بشه!
+آسیب‌های این ماده به‌قدری وحشتناکه که در موارد شدید، ظاهر بدن مصرف‌کننده تغییر می‌کنه و زخم‌های عمیقی روی پوستش به وجود میاد.
+این مخدر به‌خاطر عوارض مخربش به اسم کروکودیل معروف شده؛ هشداری جدی درباره اینکه بعضی مواد چطور می‌تونن زندگی انسان رو به نابودی بکشن.
+⚠️ کروکودیل؛ فقط یک اسم ترسناک نیست، یک خطر جدی برای جان انسانه.
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11075
+
+<div align="center"><video src="files/post_11075_tasiyanc_11075.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11075_tasiyanc_11075.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇 https://t.me/+RwajvZ55XSo5OWM0 https://t.me/+RwajvZ55XSo5OWM0 🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
+
+## tasiyanc — post 11074
+
+<div align="center"><video src="files/post_11074_tasiyanc_11074.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11074_tasiyanc_11074.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇
+
+https://t.me/+RwajvZ55XSo5OWM0
+https://t.me/+RwajvZ55XSo5OWM0
+
+🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
 
 ## tasiyanc — post 11073
 
@@ -209,52 +264,5 @@
 این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11056
-
-<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11054
-
-<div align="center"><img src="files/post_11054_tasiyanc_11054.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💥 با لنزبت، هیجان بازیها رو چندین برابر کن 🎯
-
-⛏️ بونوس 🛍0️⃣0️⃣2️⃣ خوش آمد گویی
-💯 بونوس 🔣0️⃣0️⃣1️⃣برای هر واریز
-🔝 بونوس🔤0️⃣0️⃣1️⃣ کازینو
-💰 کد هدیه0️⃣2️⃣🔤🔤 بعد از اولین واریز
-📇 امتیاز وفاداری با انواع بونوسهای روزانه مخصوص کاربران فعال لنزبت🍀
-🔤0️⃣3️⃣کش بگ هفتگی
-💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت
-🅰g7
-🔤🔤🔤🔤🔤🔤🔤
-
-📱 @lenzbet_official
-
-📱 https://www.lenzbet1.xyz
 </div>
 

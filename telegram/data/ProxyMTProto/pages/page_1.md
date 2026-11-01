@@ -1,8 +1,53 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/10 01:01
+📅 آخرین بروزرسانی: 1405/08/10 10:21
 
 ---
+
+## ProxyMTProto — post 52679
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: polo57.quietfjord.click
+Port: 443
+Secret: ee14697011e0c73f03e95d7b6919a2252b706f6c6f35372e7175696574666a6f72642e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52678
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ving.mozitop.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52677
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gavi72.larchmere.xyz
+Port: 443
+Secret: eeb8e5365580b9ad3c2ee355dfcbc245e56761766937322e6c617263686d6572652e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52676
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Sorena.ir.igakwvwa.info
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mami99.birchquay.xyz
+Port: 443
+Secret: ee920a4026fcc79354d87c30db9280e5786d616d6939392e6269726368717561792e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52674
 
@@ -136,51 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: vile61.foxglade.xyz
 Port: 443
 Secret: ee920a4026fcc79354d87c30db9280e57876696c6536312e666f78676c6164652e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52659
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52658
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee3f72634c46d320aaa30d8bb2682e9b497975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52657
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52656
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mirizo22.copperwren.click
-Port: 443
-Secret: ee920a4026fcc79354d87c30db9280e5786d6972697a6f32322e636f707065727772656e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52655
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 
