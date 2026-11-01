@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/10 22:33
+📅 آخرین بروزرسانی: 1405/08/11 02:22
 
 ---
+
+## tasiyanc — post 11088
+
+<div align="center"><img src="files/post_11088_tasiyanc_11088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بیانیه جدید و مهم سیدمجتبی خامنه‌ای🇮🇷:
+
+هر لحظه آمادگی کامل رو برای جنگ داریم، به محض شروع جنگ، پاسخ کوبنده‌ای خواهیم داد.
+این سری بدون هیچ محدودیت جغرافیایی پاسخ خواهیم داد! (اشاره به موشکای قاره پیما!)
+ایندفعه اگه آمریکا و اسرائیل دست به ترور بزنه، دیگه پایان جنگ دست خودشون نیست و ولشون نمی‌کنیم.
+در جنگ بعدی دارایی‌های مادی و غیرمادی آمریکا رو مورد حمله قرار میدیم!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11087
+
+<div align="center"><video src="files/post_11087_tasiyanc_11087.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11087_tasiyanc_11087.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵کانال 14 اسرائیل🇮🇱: همه تو بالاترین سطح آماده‌باش هستن و خودشون رو برای 4 نوامبر (۱۳ آبان)، یعنی روز بعد از انتخابات میان‌دوره‌ای آمریکا، آماده می‌کنن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11085
 
@@ -279,25 +305,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 📱 @Lenzbet_official
 
 📱 https://www.lenz7bet.online
-</div>
-
-## tasiyanc — post 11067
-
-<div align="center"><video src="files/post_11067_tasiyanc_11067.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11067_tasiyanc_11067.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه آمریکا به «کوه کلنگ» حمله کنه، چطور از تشعشعات هسته‌ای جون سالم به در ببریم؟!
-
-این ویدئو رو ببینید تا بدونید تو چنین شرایطی چطور از خودتون محافظت کنید. ذخیره‌ش کنید و بفرستید واسه اشناهاتون .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11066
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 میکس سری‌آ وین شد ✅ آاس رم 🆚 کالیاری — برد رم ✅ ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅ 📈 ضریب میکس: 1.808 🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳 نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7 @…
 </div>
 

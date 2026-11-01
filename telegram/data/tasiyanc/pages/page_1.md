@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/10 22:33
+📅 آخرین بروزرسانی: 1405/08/11 02:22
 
 ---
+
+## tasiyanc — post 11109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💬 ترکیب‌ها، آمار و فرم‌های پیشنهادی رو قبل بازی با هم بررسی می‌کنیم. برای همفکری و تبادل نظر، وارد گروه شو:
+
+🔗 [ورود به گروه]
+https://t.me/+M_YAiGu22l05YzM0
+
+برای دریافت فرم‌های روزانه، وارد کانال VIP شو.
+</div>
+
+## tasiyanc — post 11108
+
+<div align="center"><video src="files/post_11108_tasiyanc_11108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11108_tasiyanc_11108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 چرا «تیپستر پرشین»؟
+آنالیز دقیق و منطقی: بررسی آماری، فرم اخیر تیم‌ها، وضعیت مصدومیت‌ها و اخبار پشت پرده مسابقات (از دیدارهای ملی و جام جهانی تا جذاب‌ترین لیگ‌ها و دوستانه باشگاهی).
+فرم‌های پیشنهادی با ارزش بالا (Value Bets): معرفی گزینه‌های هوشمندانه با بالاترین ضریب اطمینان.
+بدون هیجان کاذب: پیشنهادهای کاملاً اکشن‌پذیر، اصولی و مدیریت‌شده برای سرمایه‌گذاری امن.
+💬 فقط یک کانال نیستیم؛ یک خانواده‌ایم!
+با عضویت در گروه همفکری اختصاصی تیپستر پرشین، در کنار سایر تحلیل‌گران و علاقه‌مندان به پیش‌بینی، نظرات‌تان را به اشتراک بگذارید، از تبادل نظرها استفاده کنید و بهترین فرم‌های روز را با هم بچینید.
+🚀 همین امروز به جمع حرفه‌ای‌ها بپیوندید و بازی را به نفع خودتان تمام کنید!🅰10
+👉 [لینک ورود به کانال تلگرام / لینک گروه همفکری]
+</div>
 
 ## tasiyanc — post 11107
 
@@ -15,8 +43,6 @@
 </div>
 
 ## tasiyanc — post 11106
-
-<div align="center"><a href="files/post_11106_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ✈️ اپلیکیشن اندروید Wepari 🥇
@@ -309,31 +335,5 @@
 
 بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
 💸🅰g9
-</div>
-
-## tasiyanc — post 11088
-
-<div align="center"><img src="files/post_11088_tasiyanc_11088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بیانیه جدید و مهم سیدمجتبی خامنه‌ای🇮🇷:
-
-هر لحظه آمادگی کامل رو برای جنگ داریم، به محض شروع جنگ، پاسخ کوبنده‌ای خواهیم داد.
-این سری بدون هیچ محدودیت جغرافیایی پاسخ خواهیم داد! (اشاره به موشکای قاره پیما!)
-ایندفعه اگه آمریکا و اسرائیل دست به ترور بزنه، دیگه پایان جنگ دست خودشون نیست و ولشون نمی‌کنیم.
-در جنگ بعدی دارایی‌های مادی و غیرمادی آمریکا رو مورد حمله قرار میدیم!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11087
-
-<div align="center"><video src="files/post_11087_tasiyanc_11087.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11087_tasiyanc_11087.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کانال 14 اسرائیل🇮🇱: همه تو بالاترین سطح آماده‌باش هستن و خودشون رو برای 4 نوامبر (۱۳ آبان)، یعنی روز بعد از انتخابات میان‌دوره‌ای آمریکا، آماده می‌کنن.
-
-💋 @Tasiyanc
 </div>
 
