@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/08/11 23:23
+📅 آخرین بروزرسانی: 1405/08/12 05:30
 
 ---
+
+## ProxyMTProto — post 52015
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ad.vexora.press
+Port: 443
+Secret: dd1bf01e794b7751a4aa7d6b140a5356fb
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52014
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir.rebol.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52013
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: web.detourcloak.site
 Port: 443
 Secret: dd77fa53c2b5473d4715b2493f8db21eb3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51995
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 5.75.206.230
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51994
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnbarrel.org
-Port: 443
-Secret: ddd53127c4392815612a47803b9620ee40
 @ProxyMTProto
 </div>
 
