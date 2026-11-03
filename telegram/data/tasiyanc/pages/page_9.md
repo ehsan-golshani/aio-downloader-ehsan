@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/12 21:12
+📅 آخرین بروزرسانی: 1405/08/13 02:42
 
 ---
+
+## tasiyanc — post 10981
+
+<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
+
+وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10980
+
+<div align="center"><video src="files/post_10980_tasiyanc_10980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10980_tasiyanc_10980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم وایرال شده یه نوزاد که با سیبیل به دنیا اومده !
+
+
+هنوز معلوم نیست داستان این سبیل از کجا آب می‌خوره، ولی قیافه‌ش جوریه انگار به‌جای شیرمادر، باید چایی و قلیون بدیم بهش 😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10979
 
@@ -275,27 +305,5 @@ VPN FREE
 این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10961
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+J5uvqzBai5A2MmI0 https://t.me/+J5uvqzBai5A2MmI0 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10960
-
-<div align="center"><img src="files/post_10960_tasiyanc_10960.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+J5uvqzBai5A2MmI0
-https://t.me/+J5uvqzBai5A2MmI0
-
-🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
 </div>
 

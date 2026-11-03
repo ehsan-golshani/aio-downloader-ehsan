@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/12 21:12
+📅 آخرین بروزرسانی: 1405/08/13 02:42
 
 ---
+
+## tasiyanc — post 10940
+
+<div align="center"><img src="files/post_10940_tasiyanc_10940.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+🔥 مسابقات امروز 👍
+
+⚽️ تراکتور - صنعت نفت آبادان
+🌎 ساعت ۱۷:۰۰
+⚽️ یوونتوس - رن
+🌎 ساعت ۲۰:۱۵
+﻿
+💸 ضرایب ویژه و رقابتی
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r30
+🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10939
+
+<div align="center"><video src="files/post_10939_tasiyanc_10939.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10939_tasiyanc_10939.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 حرف‌های این خانوم درباره برابری زن و مرد وایرال شده که میگه؛
+
+انقدر نگید زن و مرد برابرن؛ چون، ۹۰ درصد زن‌ها حقوقشون رو برای خودشون خرج می‌کنن، ولی مردا که کار می‌کنن باید خرج زن و بچه و کل خونه رو بدن و از کلی خواسته های خودشون میزنن تا خانوادشون تو رفاه باشه و چیزی کم نداشته باشن!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10938
 
@@ -263,37 +305,6 @@ G29🅰
 
 حالا اینکه دقیقاً چه گهی تو این ویدیو هست که ملت این‌جوری ریختن سرش، خودش جای بحث داره!
 
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10919
-
-<div align="center"><video src="files/post_10919_tasiyanc_10919.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10919_tasiyanc_10919.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 فوری | کارشناس صداوسیما با یک نظریه تاریخی، علم نظامی جهان رو وارد عصر جدیدی کرد!
-
-استاد خوش‌چشم می‌فرمایند: «می‌تونیم مادر بمب‌ها رو با دوش پرتاب بزنیم!»
-
-کسکش، تو خودت می‌فهمی چه گهی داری می‌خوری یا فکر کردی ملت یه مشت احمقن که هر چرت‌وپرتی بلغور کنی باور کنن؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10918
-
-<div align="center"><video src="files/post_10918_tasiyanc_10918.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10918_tasiyanc_10918.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از کالاف وارفر4
-
-قسمت‌هایی از نسخه جدید مدرن وارفر ۴، شما در نقش سرباز کره شمالی🇰🇵 بازی می‌کنید؛ جایی که اگه اشتباهی به عکس کیم جونگ اون شلیک کنید، هم‌تیمی‌هاتون خودشون دخلتون رو میارن!
-
-بنظرم نکته جالبیه و دیکتاتوریه کیم رو به زیبایی به رخ جهان کشیده
 ⚡ @Tasiyanc
 </div>
 
