@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/13 13:37
+📅 آخرین بروزرسانی: 1405/08/13 21:50
 
 ---
+
+## tasiyanc — post 11116
+
+<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
+از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11114
+
+<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چالش جدید وایرال شده دخترای دبیرستانی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r11
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 هنوز توی MelBet با این همه آپشن خفن و ضرایب فوق العاده ثبتنام نکردی ⁉️
+
+بعد میاید سوال میکنید کدوم سایت معتبره ❗️
+
+👀 اگه میخواید توی شرطبندی موفق باشید و درآمد کسب کنید در اولین قدم باید سایتی با آپشن های بی نظیر و ضرایب استاندارد و امنیت مالی بالا داشته باشید ✔️
+
+🎚️ همین حالا از طریق لینک زیر ثبتنام کنید و وارد دنیای جدیدی از شرطبندی بشید 🆕
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💛 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11111
+
+## tasiyanc — post 11110
+
+<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
+
+امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
+
+توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11109
 
@@ -215,125 +286,5 @@ https://t.me/+M_YAiGu22l05YzM0
 🔥 اگه می‌خوای فرم‌های فردای ما رو از دست ندی و مثل حرفه‌ای‌ها سود کنی همین الان به دوستانت کانال رو معرفی کن و اعلان‌ها رو روشن بذار👇
 
 🔗 @Tipster_Persians
-</div>
-
-## tasiyanc — post 11095
-
-<div align="center"><video src="files/post_11095_tasiyanc_11095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11095_tasiyanc_11095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بیلی آیلیش با انتشار تصویری از خودش و دوس‌پسر جدیدش در حال بوسیدن همدیگه، رابطه‌شون رو علنی کرد.
-
-اما حاشیه اصلی به ماجرای عمل کوچک کردن سینه‌هاش برمی‌گرده؛ گفته می‌شه دلیل این تصمیم، خواسته پارتنرش بوده که نمی‌خواسته سینه‌های بیلی در معرض دید مردم و طرفدارها باشه!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11093
-
-<div align="center"><img src="files/post_11093_tasiyanc_11093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آریا استارک بازیگر گیم آف ترونز طی یک حرکت کاملا پشم‌افکن اومد توی اینستا عکس و فیلم لختی خودشو و دوستاش رو پست کرد.
-ولی متاسفانه کمی بعد حذف شد،معلوم نیست خودش حذف کرد یا اینستا حذف کرد
-اما خوشبختانه ما ذخیره کردیم نشونتون بدیم 🤣
-مشاهده بدون سانسور ❤️‍🔥 👉
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11092
-
-<div align="center"><video src="files/post_11092_tasiyanc_11092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11092_tasiyanc_11092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حقیقت تکان‌دهنده درباره قرص برنج؛ از مرگبارترین قرص‌های دنیا!
-
-با خوردن این قرص مرگ شما حتمی و یکی از دردناکترین مرگ‌ها در جهان خواهد بود !
-با آزاد کردن گاز فسفین، در فاصله زمانی مشخص وقتی که کاملا به هوش هستید و درد رو حس میکنید تک به تک اعضای بدن‌تون مثل معده ، روده ، قلب ، کلیه ، کبد تجزیه میشه و باعث درد و رنج شدیدتون میشه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11091
-
-<div align="center"><video src="files/post_11091_tasiyanc_11091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11091_tasiyanc_11091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وقتی مسافرای اسنپ، راننده رو هم به مقصد می‌رسونن!
-این دو رفیق از ساری به مقصد رشت اسنپ می‌گیرن، اما وسط راه راننده خوابش می‌گیره و ماجرا یه‌جور دیگه پیش می‌ره!
-در نهایت این دوتا مسافر مجبور می‌شن خودشون پشت فرمون بشینن و راننده رو از ساری تا رشت برسونن!
-ایرانی جماعت واقعاً از هر موقعیتی یه خاطره می‌سازه!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 
-🥇
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد بایرن مونیخ 
-⚽️
-+ گلزنی میلان
-⚽️و اینتر 
-⚽️
-
-برنده 2.000.000 میلیون شوید 
-🔹
-
-
-✍️ ورود به کانال اطلاع رسانی وی پاری 
-✈️
-</div>
-
-## tasiyanc — post 11089
-
-<div align="center"><video src="files/post_11089_tasiyanc_11089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11089_tasiyanc_11089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دربی فوق حساااااس میلان
-⚽️و اینتر 
-⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 
-🔥
-
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید
-🎁
-
-
-🔥شنبه بونوس 100%
-
-🔥 دوشنبه بونوس 50%
-
-
-🤖دانلود اپلیکیشن بدون فیلتر 
-🚀
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
-💸🅰g9
 </div>
 
