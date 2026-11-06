@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/08/14 22:45
+📅 آخرین بروزرسانی: 1405/08/15 04:01
 
 ---
+
+## ProxyMTProto — post 50683
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: cdn2.kvakzon.top
+Port: 2443
+Secret: eea3046b756505c4772f1041996e592d2663646e322e6b76616b7a6f6e2e746f70
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50682
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 543
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50681
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: summer.vechnostnet.study
+Port: 443
+Secret: dddec0a247046e4dab47376d96117a8a7c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50680
 
@@ -154,33 +181,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: shin.startnetwork.shop
 Port: 443
 Secret: ddf91f0b9ebf2d72aa67c93402c5c1554f
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50663
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: jadid.zhigool.co.uk
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add6d656469612e737465616d706f77657265642e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50662
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media6.happtg.org
-Port: 443
-Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50661
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b7765622e62616c652e6169
 @ProxyMTProto
 </div>
 
