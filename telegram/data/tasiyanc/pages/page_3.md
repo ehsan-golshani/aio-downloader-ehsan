@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/15 04:03
+📅 آخرین بروزرسانی: 1405/08/15 11:00
 
 ---
+
+## tasiyanc — post 11140
+
+<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
+</div>
+
+## tasiyanc — post 11139
+
+<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11138
+
+<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
+ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11137
+
+<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11136
 
@@ -208,49 +271,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰g11
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سقوط هولناک جت شخصی در نزدیکی اقامتگاه ترامپ؛ 9 نفر پودر شدند!
-
-یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11118
-
-<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وینیسیوس هم بدجوری ضایع شد!
-
-وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11116
-
-<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
-از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11114
-
-<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چالش جدید وایرال شده دخترای دبیرستانی
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,52 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/15 04:03
+📅 آخرین بروزرسانی: 1405/08/15 11:00
 
 ---
+
+## tasiyanc — post 11119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سقوط هولناک جت شخصی در نزدیکی اقامتگاه ترامپ؛ 9 نفر پودر شدند!
+
+یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11118
+
+<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وینیسیوس هم بدجوری ضایع شد!
+
+وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11116
+
+<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
+از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11114
+
+<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چالش جدید وایرال شده دخترای دبیرستانی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11113
 
@@ -229,64 +273,6 @@ https://t.me/+M_YAiGu22l05YzM0
 
 پسری به نام خولیو برای شاشیدن ازخودروی خانواده پیاده شد.
 چند ثانیه بعد، تریلی به دلیل بریدن ترمز خودروشون رو زیر گرفت و پدر و مادرش همونجا جان باختند. برادر کوچک‌ترش نیز از داخل خودرو بیرون پرت شد و نجات پیدا کرد
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑 رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀 با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم. 📊 آمار فرم‌های امروز: ▪️ تعداد کل فرم‌ها: ۷ فرم ▪️ فرم‌های برنده: ۶ برد طلایی ✅ ▪️ فرم‌های…
-</div>
-
-## tasiyanc — post 11096
-
-<div align="center"><img src="files/post_11096_tasiyanc_11096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑
-
-رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀
-با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم.
-
-📊 آمار فرم‌های امروز:
-▪️ تعداد کل فرم‌ها: ۷ فرم
-▪️ فرم‌های برنده: ۶ برد طلایی ✅
-▪️ فرم‌های بازنده: ۱ باخت ❌
-▪️ مبلغ استیک (روی هر فرم): ۱۰,۰۰۰,۰۰۰ تومان
-
-💰 سود خالص امروز:
-✨ ۳۳,۶۱۰,۰۰۰ تومان پول تمیز به جیب رف
-
-تبریک به همه دوستانی که امروز پا به پای ما جلو اومدن و سود کردن. این روند تازه شروع راهه...
-🅰9
-🔥 اگه می‌خوای فرم‌های فردای ما رو از دست ندی و مثل حرفه‌ای‌ها سود کنی همین الان به دوستانت کانال رو معرفی کن و اعلان‌ها رو روشن بذار👇
-
-🔗 @Tipster_Persians
-</div>
-
-## tasiyanc — post 11095
-
-<div align="center"><video src="files/post_11095_tasiyanc_11095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11095_tasiyanc_11095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بیلی آیلیش با انتشار تصویری از خودش و دوس‌پسر جدیدش در حال بوسیدن همدیگه، رابطه‌شون رو علنی کرد.
-
-اما حاشیه اصلی به ماجرای عمل کوچک کردن سینه‌هاش برمی‌گرده؛ گفته می‌شه دلیل این تصمیم، خواسته پارتنرش بوده که نمی‌خواسته سینه‌های بیلی در معرض دید مردم و طرفدارها باشه!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11093
-
-<div align="center"><img src="files/post_11093_tasiyanc_11093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آریا استارک بازیگر گیم آف ترونز طی یک حرکت کاملا پشم‌افکن اومد توی اینستا عکس و فیلم لختی خودشو و دوستاش رو پست کرد.
-ولی متاسفانه کمی بعد حذف شد،معلوم نیست خودش حذف کرد یا اینستا حذف کرد
-اما خوشبختانه ما ذخیره کردیم نشونتون بدیم 🤣
-مشاهده بدون سانسور ❤️‍🔥 👉
-
 💋 @Tasiyanc
 </div>
 
