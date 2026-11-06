@@ -1,8 +1,82 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/15 11:00
+📅 آخرین بروزرسانی: 1405/08/15 19:36
 
 ---
+
+## tasiyanc — post 11061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صرافی بایننس هک شد؛ ۲.۶ میلیارد دلار به سرقت رفت و بازار کریپتو ریخت!
+
+بزرگ‌ترین صرافی ارز دیجیتال دنیا هدف یه حمله سایبری سنگین قرار گرفته و طبق گزارش‌ها، ۲.۶ میلیارد دلار از دارایی‌ها به سرقت رفته!
+📉 خبر این هک بازار ارزهای دیجیتال رو به لرزه انداخته و فشار فروش بالا رفته؛ حالا همه چشم‌ها به واکنش بایننس و وضعیت بازار دوخته شده!
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 11059
+
+<div align="center"><img src="files/post_11059_tasiyanc_11059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کدوم مناطق تهران تو جنگ ۴۰ روزه بیشتر زیر حمله بودن؟
+
++طبق آمار منتشرشده، منطقه 4 تهران با 298 بار اصابت در صدر مناطقی قرار گرفته که بیشترین حمله رو تجربه کردن!
+📍 این منطقه شامل محله‌هایی مثل تهرانپارس، حکیمیه، پاسداران، لویزان، مجیدیه، شمیران‌نو، هروی، نارمک شمالی و شمس‌آباده.
+آمار بقیه مناطق تهران رو هم توی تصویر ببینید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11058
+
+<div align="center"><video src="files/post_11058_tasiyanc_11058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11058_tasiyanc_11058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اتفاقی عجیب 4 نوجوان زیر 15 سال به اتهام آدم‌ربایی در بجنورد دستگیر شدند!
+
+این نوجوانان متهم‌اند که فردی را به خارج از شهر برده و پول و گوشی او را سرقت کرده‌اند. ماجرا زمانی عجیب‌تر شد که با همان گوشی سرقتی تماس گرفتند و قرار دعوا گذاشتند؛ غافل از اینکه رد گوشی، پلیس را به آن‌ها می‌رساند!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11057
+
+<div align="center"><img src="files/post_11057_tasiyanc_11057.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یکی از عجیب‌ترین پدیده‌های طبیعی ایران ؛ جزیره‌ای که جابه‌جا می‌شه!
+
+یکی از عجیب‌ترین جاذبه‌های طبیعی ایران، چمن متحرک چملی توی شهر تکاب استان آذربایجان غربیه؛ یه برکه که وسطش جزیره‌ای از چمن و گیاهان شناوره و با وزش باد جابه‌جا می‌شه!
+
+این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11056
+
+<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11055
 
@@ -219,73 +293,5 @@ https://t.me/+VmekrTukXnphNmU0
 https://t.me/+VmekrTukXnphNmU0
 
 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11041
-
-<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11039
-
-<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11038
-
-<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 نقی بیا پشمات بریزه !
-
-نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11037
-
-<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵  کانال 14 اسرائیل:
-
-نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 
