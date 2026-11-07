@@ -1,8 +1,123 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/16 17:43
+📅 آخرین بروزرسانی: 1405/08/16 22:21
 
 ---
+
+## tasiyanc — post 11140
+
+<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
+</div>
+
+## tasiyanc — post 11139
+
+<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11138
+
+<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
+ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11137
+
+<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔖 اپلیکیشن MelBet ✅
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11135
+
+<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11133
 
@@ -157,80 +272,4 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ https://DerbyBet.com
 📩 @Derbybet
 </div>
-
-## tasiyanc — post 11119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سقوط هولناک جت شخصی در نزدیکی اقامتگاه ترامپ؛ 9 نفر پودر شدند!
-
-یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11118
-
-<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وینیسیوس هم بدجوری ضایع شد!
-
-وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11116
-
-<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
-از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11114
-
-<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چالش جدید وایرال شده دخترای دبیرستانی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r11
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💛 هنوز توی MelBet با این همه آپشن خفن و ضرایب فوق العاده ثبتنام نکردی ⁉️
-
-بعد میاید سوال میکنید کدوم سایت معتبره ❗️
-
-👀 اگه میخواید توی شرطبندی موفق باشید و درآمد کسب کنید در اولین قدم باید سایتی با آپشن های بی نظیر و ضرایب استاندارد و امنیت مالی بالا داشته باشید ✔️
-
-🎚️ همین حالا از طریق لینک زیر ثبتنام کنید و وارد دنیای جدیدی از شرطبندی بشید 🆕
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💛 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11111
 

@@ -1,8 +1,109 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/16 17:43
+📅 آخرین بروزرسانی: 1405/08/16 22:21
 
 ---
+
+## tasiyanc — post 11161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!! کی کانفیگ فروشی نداشت؟ تاسیان!!! کی هواتونو همیشه خواهد داشت ؟ تاسیان ! فردا نت قطع شد کی پیشته ؟ تاسیان!! منتظر حمایتتون هستیم! چون کم نزاشتیم آیدی کانالو بفرستید به دوستاتون. بنظرم جای این حرفا نبود موقع قطعی‌ها…
+</div>
+
+## tasiyanc — post 11160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!!
+
+کی کانفیگ فروشی نداشت؟ تاسیان!!!
+
+کی هواتونو همیشه خواهد داشت ؟ تاسیان !
+
+فردا نت قطع شد کی پیشته ؟ تاسیان!!
+
+منتظر حمایتتون هستیم! چون کم نزاشتیم
+
+آیدی کانالو بفرستید به دوستاتون.
+بنظرم جای این حرفا نبود موقع قطعی‌ها خودمون ثابت کردیم !!!!
+@Tasiyanc
+</div>
+
+## tasiyanc — post 11159
+
+<div align="center"><img src="files/post_11159_tasiyanc_11159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ایده جالب ایلان ماسک برای اپلیکیشن پرداخت بدهی‌ها توسط ثروتمندان
+
+
+ایلان ماسک پیشنهاد ساخت اپلیکیشنی را مطرح کرده است که در آن افراد از سراسر جهان بتوانند قبض‌ها و بدهی‌های خود را ثبت کنند و افراد ثروتمندِ علاقه‌مند به کار خیر، امکان پرداخت آن بدهی‌ها را داشته باشند. این ایده در صورت اجرایی‌شدن می‌تواند مدلی مستقیم‌تر و شفاف‌تر برای کمک مالی ایجاد کند؛ هرچند موفقیت آن به سازوکار اعتماد، احراز هویت، حفظ حریم خصوصی و جلوگیری از سوءاستفاده وابسته خواهد بود.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11157
+
+<div align="center"><img src="files/post_11157_tasiyanc_11157.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g13
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11156
+
+<div align="center"><video src="files/post_11156_tasiyanc_11156.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11156_tasiyanc_11156.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بانو ایوانا ماریانا هستن ، آرایشگر مکزیکی، با مهارت و حرفه‌ای بودنش حسابی معروف شده؛
+
+تا جایی که پسرها از سراسر دنیا فقط برای کوتاه کردن موهاشون پیشش بلیط هواپیما می‌گیرن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11155
+
+<div align="center"><img src="files/post_11155_tasiyanc_11155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سوراج چاوان که تو هند بهش لقب جاستین بیبر هند رو دادن به عنوان خوشتیپ ترین و جذاب ترین مرد هند تو سال 2026 انتخاب شد:
+
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11154
 
@@ -197,120 +298,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 برنده 3.000.000 میلیون شوید ✔
 
 ✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11140
-
-<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
-</div>
-
-## tasiyanc — post 11139
-
-<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11138
-
-<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
-ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11137
-
-<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔖 اپلیکیشن MelBet ✅
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11135
-
-<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 🔗
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
 </div>
 
