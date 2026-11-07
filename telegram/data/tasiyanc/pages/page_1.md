@@ -1,12 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/15 19:36
+📅 آخرین بروزرسانی: 1405/08/16 04:36
 
 ---
 
-## tasiyanc — post 11189
+## tasiyanc — post 11192
 
-<div align="center"><a href="files/post_11189_@𝕿𝖆𝖘𝖎𝖞𝖆𝖓𝖈_𝕱𝖆𝖘𝖙_𝕾𝖊𝖗𝖛𝖊𝖗𝖘⚡.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝕿𝖆𝖘𝖎𝖞𝖆𝖓𝖈_𝕱𝖆𝖘𝖙_𝕾𝖊𝖗𝖛𝖊𝖗𝖘⚡.npvs</a></div>
+<div align="center"><a href="files/post_11192_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11191
+
+<div align="center"><img src="files/post_11191_tasiyanc_11191.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰15
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11189
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵مجموعه 20 سرور اختصاصی مولتی لوکیشن پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
@@ -41,8 +77,6 @@
 </div>
 
 ## tasiyanc — post 11187
-
-<div align="center"><a href="files/post_11187_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -284,47 +318,5 @@
 #شرطبندی
 ♦️ آموزش شارژ حساب با کریپتو
 ♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11171
-
-<div align="center"><video src="files/post_11171_tasiyanc_11171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11171_tasiyanc_11171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g14
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11169
-
-<div align="center"><video src="files/post_11169_tasiyanc_11169.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11169_tasiyanc_11169.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یک فصل بزرگ از تاریخ فوتبال به پایان رسید...
-
-کریستیانو رونالدو با یک ویدئوی پنج‌دقیقه‌ای، پایانی احساسی بر دوران حضورش در تیم ملی🇵🇹 گذاشت.
-
-با خداحافظی کریستیانو رونالدو از تیم ملی پرتغال، یکی دیگه از فصل‌های طلایی فوتبال به پایان رسید 💔
-پی‌نوشت: ویدیو زیرنویس داره
-
-💋 @Tasiyanc
 </div>
 

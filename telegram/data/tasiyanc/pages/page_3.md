@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/15 19:36
+📅 آخرین بروزرسانی: 1405/08/16 04:36
 
 ---
+
+## tasiyanc — post 11148
+
+<div align="center"><video src="files/post_11148_tasiyanc_11148.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11148_tasiyanc_11148.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 کنگره به دموکرات‌ها رسید , شکست جمهوری‌خواهان (حزب ترامپ) در انتخابات میان‌دوره‌ای
+
+•بر اساس پیش‌بینی رسانه‌های آمریکایی، دموکرات‌ها در انتخابات میان‌دوره‌ای ۲۰۲۶ هم مجلس نمایندگان و هم سنا را فتح کرده‌اند. این یک شکست سنگین برای ترامپ در دو سال پایانی دوره‌اش محسوب می‌شود و قدرت قانون‌گذاری و نظارت بر کاخ سفید را به طرف مخالف منتقل می‌کند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11147
+
+<div align="center"><video src="files/post_11147_tasiyanc_11147.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11147_tasiyanc_11147.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵علی دایی، اسطوره فوتبال ایران، در جریان مراسم خاکسپاری حمید علیدوستی، پیشکسوت فوتبال، هنگام پخش سرود جمهوری اسلامی از جای خود برنخاست.
+پی‌نوشت : برخی چهره های شناخته شده و محبوب مثل عادل فردوسی‌پور و جعفر پناهی هم بلند نشدن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11146
 
@@ -256,20 +283,5 @@ https://t.me/+R2nwb5FUo0RjYTVk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سلام و درود رفقا ، عزیزای دلم «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد» مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️ نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید…
-</div>
-
-## tasiyanc — post 11127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام و درود رفقا ، عزیزای دلم
-«درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد»
-مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️
-نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید .
-</div>
-
-## tasiyanc — post 11126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
 </div>
 
