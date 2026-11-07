@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/16 22:21
+📅 آخرین بروزرسانی: 1405/08/17 02:05
 
 ---
+
+## tasiyanc — post 11164
+
+<div align="center"><video src="files/post_11164_tasiyanc_11164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11164_tasiyanc_11164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰14r
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰13
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11161
 
@@ -256,47 +314,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 فوتبال امروز یکی از تلخ‌ترین روزهای خود را تجربه کرد.
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11143
-
-<div align="center"><img src="files/post_11143_tasiyanc_11143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ترند جدید عاشقانه بین پسرا حسابی وایرال شده!
-
-پسرا با کمک بازوهاشون شکل قلب درست می‌کنن و اینجوری عشقشون رو به دوست‌دختر یا کسی که دوستش دارن ابراز می‌کنن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11142
-
-<div align="center"><video src="files/post_11142_tasiyanc_11142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11142_tasiyanc_11142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حمیده راسخی، بلاگر ایرانی ساکن خارج از کشور، تمامی ویدیو هایی که توشون اکثرا میمی های ۸۵ش رو به نمایش میزاشت رو از پیجش پاک کرد و با انتشار یک ویدیو اعلام کرد که به ایران اومده، توبه کرده ...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد بارسلونا⚽️
-+ برد منچستریونایتد⚽️
-
-برنده 3.000.000 میلیون شوید ✔
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
 </div>
 

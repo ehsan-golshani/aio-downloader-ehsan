@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/16 22:21
+📅 آخرین بروزرسانی: 1405/08/17 02:05
 
 ---
+
+## tasiyanc — post 11212
+
+<div align="center"><a href="files/post_11212_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11211
+
+<div align="center"><video src="files/post_11211_tasiyanc_11211.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11211_tasiyanc_11211.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰16
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11210
+
+<div align="center"><img src="files/post_11210_tasiyanc_11210.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تصمیم نهایی و رسمی رئیس جمهور اسرائیل برای انتخاب بین نتانیاهو و آیزنکوت، یکشنبه اعلام میشه. 
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11209
 
@@ -69,8 +117,6 @@
 </div>
 
 ## tasiyanc — post 11203
-
-<div align="center"><a href="files/post_11203_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -270,59 +316,5 @@
 #شرطبندی
 ♦️ آموزش شارژ حساب با کریپتو
 ♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11186
-
-<div align="center"><video src="files/post_11186_tasiyanc_11186.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11186_tasiyanc_11186.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇g15🅰
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11185
-
-<div align="center"><img src="files/post_11185_tasiyanc_11185.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وقتی عشق تبدیل به کابوس می‌شه!
-
-یک دختر ۲۸ ساله آمریکایی بعد از اینکه دوست‌پسرش به رابطه سه‌هفته‌ای‌شون پایان داد، در عرض تنها یک هفته ۷۶ هزار بار با او تماس گرفت!
-اما این پایان ماجرا نبود؛ ۱۹۳۷ ایمیل، بیش از ۴۱ هزار پیام، ۶۴۷ نامه و حتی ۱۴۴ بار فکس هم برایش فرستاد!
-اصرارهای عجیب این دختر در نهایت باعث شد دوست‌پسر سابقش از او شکایت کند و کارش به زندان بکشد!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11184
-
-<div align="center"><img src="files/post_11184_tasiyanc_11184.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵به گزارش سازمان‌ ملل‌متحد تا سال 2050 نقشه جمعیتی جهان 🌌 تغییرات عجیبی خواهد کرد!
-
-بعضی کشورها با رشد انفجاری جمعیت روبه‌رو می‌شوند و بعضی دیگر، از جمله ژاپن و چین، بخش قابل‌توجهی از جمعیت خود را از دست خواهند داد و بیشترین رشد جمعیت متعلق به کشور های قاره آفریقا می‌باشد
-اما جالب‌تر اینکه جمعیت ایران تقریباً ثابت پیش‌بینی شده!
-
-💋 @Tasiyanc
 </div>
 
