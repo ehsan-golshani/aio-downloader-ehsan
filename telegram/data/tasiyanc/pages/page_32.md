@@ -1,8 +1,26 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10539
+
+<div align="center"><img src="files/post_10539_tasiyanc_10539.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.⭐👇
+
+https://t.me/+aeze7JXKVfU2NmNk
+https://t.me/+aeze7JXKVfU2NmNk
+
+🎯 سود 6 ملیونی ما از میکس بازی رئال و میلان 💵
+</div>
 
 ## tasiyanc — post 10538
 
@@ -263,17 +281,5 @@ G2🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10518
-
-<div align="center"><video src="files/post_10518_tasiyanc_10518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10518_tasiyanc_10518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
-
-💋 @Tasiyanc
 </div>
 

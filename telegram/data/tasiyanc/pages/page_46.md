@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10173
+
+<div align="center"><video src="files/post_10173_tasiyanc_10173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10173_tasiyanc_10173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟣 این قسمت پیک موتوری اسنپ‌فود
+
+دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
+فکر کنم دستشم تمیز باشه
+بعد به دست مشتری میرسونه
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10171
 
@@ -281,13 +297,5 @@ Final result: A believable rediscovered real color photograph from Tehran around
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فوروارد ۲ پست پرامپت بالارو به ۵۰۰ برسونید وایرال شه ❤️
-</div>
-
-## tasiyanc — post 10146
-
-<div align="center"><img src="files/post_10146_tasiyanc_10146.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴پرامپت اختصاصی که می‌خوام وایرال کنید👑 اسم پرامپت : دربار پادشاه ایران محمدرضاشاه پهلوی دهه ۵۰ Prompt 🤖🤖 Transform the photo into an authentic 1970s Pahlavi-era Iranian royal scene. Preserve my exact face, identity, eyes, hair and natural features. Dress…
 </div>
 

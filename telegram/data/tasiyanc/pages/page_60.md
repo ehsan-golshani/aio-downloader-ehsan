@@ -1,8 +1,17 @@
 # آرشیو کانال tasiyanc - صفحه 60
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 9822
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+رسایی: هر چه سریعتر اینترنت رو قطع کنید
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9821
 
@@ -274,23 +283,5 @@ sg10
 
 + هانا فقط 16 سال سن داشت :)
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9793
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  اختلال شکن OpenVpn 📶
-
-مناسب برای گیم - دانلود , Ai
-اینستاگرام 📸 یوتوب 🎥
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-
-🩸 T.me/Tasiyanc
 </div>
 

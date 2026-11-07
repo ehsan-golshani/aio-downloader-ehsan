@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10518
+
+<div align="center"><video src="files/post_10518_tasiyanc_10518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10518_tasiyanc_10518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10517
 
@@ -323,17 +335,6 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 اولین روز مدرسه در ایران :
 
 لباساتونو اتو کردید؟🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10490
-
-<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به زیباترین فصل سال خوش اومدید. 🍁🧡
-
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,10 @@
 # آرشیو کانال tasiyanc - صفحه 81
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 9275
 
 ## tasiyanc — post 9274
 
@@ -166,12 +168,6 @@ r23
 </div>
 
 ## tasiyanc — post 9253
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا ابد و یک روز؟؟؟؟
-</div>
-
-## tasiyanc — post 9252
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تا ابد و یک روز؟؟؟؟

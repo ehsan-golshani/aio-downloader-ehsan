@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 40
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10353
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری
+🔥
+
+
+💖امکان شارژ از طریق کارت بانکی
+
+💖تسویه حساب سریع بدون احراز
+
+💖دارای مجوز رسمی Anjuan وcuracao
+
+
+🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
+
+
+✅کانال تلگرام:
+👇
+
+💖https://t.me/+VKiCVNmMnFM2ZTU0
+</div>
 
 ## tasiyanc — post 10352
 
@@ -362,19 +385,5 @@ https://t.me/+ArmBt6ZWMF84ZDlk
 👉 @wsavebot
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10332
-
-<div align="center"><img src="files/post_10332_tasiyanc_10332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عاقبت تحریم کاربران ایرانی
-
-🚨 صرافی چینی کوینکس (CoinEx) که عمده مشتری‌هاش ایرانی بودند ورشکسته شد!
-صرافی کوینکس اعلام‌کرد‌ تعطیل شده است و پول‌هایتان را خارج کنید.
-
-
-💋@Tasiyanc
 </div>
 

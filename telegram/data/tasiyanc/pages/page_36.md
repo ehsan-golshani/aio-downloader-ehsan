@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10447
+
+<div align="center"><video src="files/post_10447_tasiyanc_10447.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10447_tasiyanc_10447.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این شروع مسیر پاکستانیزه کردن ایرانه . فلاکت و کثیفی و مریضی و نجاست از همینجاها شروع میشه و به کف خیابون میرسه .
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10446
 
@@ -301,19 +314,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 خطاب به ایلان ماسک نوشته ثروت واقعی به پول و... نیست به ممه های گنده‌س
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10422
-
-<div align="center"><img src="files/post_10422_tasiyanc_10422.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 ترفند
-
-اگه ویدیویی تو اکسپلور اینستاگرامت مدام تکرار میشه و دوستش نداری، روی سه‌نقطه یا سه‌خط پست بزن و Not interested رو انتخاب کن.
-
-این کار به الگوریتم می‌فهمونه محتوای مشابه رو کمتر بهت پیشنهاد بده.
-
-💋 @Tasiyanc
 </div>
 

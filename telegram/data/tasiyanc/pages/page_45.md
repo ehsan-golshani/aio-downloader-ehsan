@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 45
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10206
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 درگیری در سراوان منابع محلی گزارش دادند که پس از حدود هشت ساعت درگیری سنگین میان نیروهای امنیتی و افراد مسلح در بخش سراوان استان سیستان و بلوچستان، گروه مسلح دیگری موفق به شکستن محاصره شده و افراد تحت تعقیب از منطقه خارج شدند. بر اساس این گزارش‌ها، در جریان…
+</div>
 
 ## tasiyanc — post 10205
 
@@ -326,22 +332,6 @@ Fine visible rain, wet asphalt reflecting amber and muted blue, deep shadows, in
 •بانک سپه - 1557
 
 •بانک ملت - 1556
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10173
-
-<div align="center"><video src="files/post_10173_tasiyanc_10173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10173_tasiyanc_10173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟣 این قسمت پیک موتوری اسنپ‌فود
-
-دونه دونه سفارش ها رو باز میکنه همه سفارش ها رو تست میکنه و امتیاز میده
-فکر کنم دستشم تمیز باشه
-بعد به دست مشتری میرسونه
 
 💋 @Tasiyanc
 </div>

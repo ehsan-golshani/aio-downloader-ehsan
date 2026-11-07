@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10582
+
+<div align="center"><video src="files/post_10582_tasiyanc_10582.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10582_tasiyanc_10582.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لیان یون‌ژی، دختر شش‌ساله چینی، رکورد جهانی در حل مکعب روبیک (در بخش زنان) به نام خود ثبت کرد.
+
+این کودک چینی در عرض سه روز،ابتدا میانگین زمانی ۴٫۵۲ ثانیه و سپس به ۴٫۲۷ ثانیه بهبود بخشید؛او به تنها دختر مکعب‌باز در جهان است که میانگین زمان حل آن کمتر از ۴٫۵ ثانیه است
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10581
 
@@ -251,21 +265,6 @@ https://AmitisBet.com/
 پشمای آدم فر میخوره رسما !
 
 تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10560
-
-<div align="center"><video src="files/post_10560_tasiyanc_10560.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10560_tasiyanc_10560.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیو وایرال شده از محمدحسین قیاسی ببینید چطوری از همسرش دلبری می‌کنه..
-
-از قیاسی یاد بگیریم 😂😂😂
-
 
 @Tasiyanc
 </div>

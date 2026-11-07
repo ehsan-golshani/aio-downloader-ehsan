@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10011
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
 
 ## tasiyanc — post 10010
 
@@ -357,18 +367,6 @@ sg15
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔴انقد کله زرد گفتین ترامپ موهاشو رنگ کرده تا خوشتیپ تر بنظر برسه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9987
-
-<div align="center"><video src="files/post_9987_tasiyanc_9987.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9987_tasiyanc_9987.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴صحنه‌هایی دسته اول از واقعه تروریستی 11 سپتامبر که منجر به کشته شدن 2974 نفر شد و از تلخ‌ترین روزهای تاریخ آمریکا لقب گرفت
 
 💋 @Tasiyanc
 </div>

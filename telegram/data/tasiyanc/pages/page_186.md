@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 186
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 5980
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+خلاصه این تلگرامو کانفینگاشم میرسه به یه خرداد ماهی 😉😉😉
+</div>
 
 ## tasiyanc — post 5979
 
@@ -173,11 +179,5 @@ Gold🥇Vip servers.npvt
 30May - 9 خرداد
 
 💘💘💘 💘💘 💘💘
-</div>
-
-## tasiyanc — post 5956
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-TS premium Servers 🌲⚡.npvt
 </div>
 

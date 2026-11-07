@@ -1,12 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
 
-## tasiyanc — post 11192
+## tasiyanc — post 11194
 
-<div align="center"><a href="files/post_11192_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+<div align="center"><video src="files/post_11194_tasiyanc_11194.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11194_tasiyanc_11194.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تصویری تلخ از زندگی در حاشیه شهرهای هند!
+
+اینجا فقر فقط یک عدد یا آمار نیست؛ واقعیتی است که در نزدیک‌ترین فاصله ممکن می‌توان آن را دید. شرایط زندگی در برخی مناطق زاغه‌نشین هند، چهره‌ای تکان‌دهنده از نابرابری و محرومیت را به نمایش می‌گذارد.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11192
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -307,16 +318,5 @@
 اما قسمت جالب ماجرا کجاست؟
 نحوه پرداخت مهریه: عندالمطالبه! یعنی طبق توافق، هر زمان عروس خانم مطالبه کند، داماد موظف به پرداخت آن خواهد بود.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

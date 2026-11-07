@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10490
+
+<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+به زیباترین فصل سال خوش اومدید. 🍁🧡
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10489
 
@@ -257,21 +268,6 @@ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
 🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
 
 این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10470
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 کانفیگ پرمیوم پرسرعت OpenVpn 🌟
-
-مناسب دانلود ⬇️ اینستاگرام 📸 جمنای 🤖
-
-تست شده روی تمام نت‌ها
-
-👼 جهت دریافت کانفیگ‌ها کلیک کنید 👼
-
 
 💋 @Tasiyanc
 </div>

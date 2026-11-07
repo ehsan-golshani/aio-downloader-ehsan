@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10670
+
+<div align="center"><img src="files/post_10670_tasiyanc_10670.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨امروز 3 October روز جهانی دوست پسره
+
+بفرست واسش 🌹
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10669
 
@@ -276,11 +289,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10648
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎉 جمعه، شب شانسه! این بار جایزه‌ی هزار دلاری در انتظارته! این جمعه با WingoBingo و اجرای شری، یه بازی وینگو هیجان‌انگیز و پر از شانس‌های تازه داریم! ✨ 🎁 تیکت رایگان بگیر و بدون هیچ هزینه‌ای شانست رو امتحان کن! 🎱 بازی وینگو چطوریه؟ توی بازی وینگو باید ۶…
 </div>
 

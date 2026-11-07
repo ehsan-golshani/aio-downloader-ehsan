@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/08/16 04:36
+📅 آخرین بروزرسانی: 1405/08/16 10:42
 
 ---
+
+## tasiyanc — post 10422
+
+<div align="center"><img src="files/post_10422_tasiyanc_10422.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 ترفند
+
+اگه ویدیویی تو اکسپلور اینستاگرامت مدام تکرار میشه و دوستش نداری، روی سه‌نقطه یا سه‌خط پست بزن و Not interested رو انتخاب کن.
+
+این کار به الگوریتم می‌فهمونه محتوای مشابه رو کمتر بهت پیشنهاد بده.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10421
 
@@ -339,20 +353,5 @@ Act as a motivational coach
 🚨 لباس فرماندهان ترور شده امروز در رزمایش جانفدا تهران
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10401
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥اپلیکیشن حرفه ای اندروید کمپانی بین المللی وی پاری🔥
-
-💖امکان شارژ از طریق کارت بانکی
-💖تسویه حساب سریع بدون احراز
-💖دارای مجوز رسمی Anjuan وcuracao
-
-🫣ای پی فیلترشکن روی کشور مناسب قرار دهید مانند:المان،کانادا، ترکیه و...
-
-✅کانال تلگرام:👇
-💖https://t.me/+VKiCVNmMnFM2ZTU0
 </div>
 
