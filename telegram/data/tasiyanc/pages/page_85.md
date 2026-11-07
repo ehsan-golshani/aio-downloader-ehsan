@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 85
 
-📅 آخرین بروزرسانی: 1405/08/16 10:42
+📅 آخرین بروزرسانی: 1405/08/16 17:43
 
 ---
+
+## tasiyanc — post 9172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر متاسفانه باگش برطرف نشده ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
+
+## tasiyanc — post 9169
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز 11 آگوست روز جهانی کراش زدنه 😭
+
+رو هرکی کراشید برید بگید بهش
+
+@Tasiyanc 
+☑️
+</div>
+
+## tasiyanc — post 9168
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🇺🇸اظهارات ترامپ درباره ایران برای بار انم:
+
+همانطور که احتمالاً شنیده‌اید، ما تمام تنگه را پاکسازی مین کرده‌ایم. شاید شما این را نشنیده باشید.
+
+ما کنترل ۱۰۰ درصدی این تنگه را در اختیار داریم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9167
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+• لوکیشن multi📍
+
+•آموزش اتصال ⚡️
+
+توجه : اسکنر نپستر باگ داره پینگ نگیرید بزنید وصله ⭕️
+
+•اتصال امن برای همه 🇮🇷
+
+✅ @TASIYANC
+</div>
 
 ## tasiyanc — post 9166
 
@@ -262,69 +321,5 @@ ss://YWVzLTEyOC1nY206c2hhZG93c29ja3M@156.146.38.167:443#%40Tasiyanc
 ⚠️ #پیشنهاد_ویژه ⚠️
 🔥 حتما ویدیو‌ آموزشی بالا رو‌ببینید بازی ساده و بسیار شیرینی که راحت میشه میشه ازش کلی پول درآورد👌🏼
 دنیای سرگرمی و بازی های جذاب رو در این‌اپلیکیشن تجربه کنید⭐
-</div>
-
-## tasiyanc — post 9149
-
-<div align="center"><video src="files/post_9149_tasiyanc_9149.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9149_tasiyanc_9149.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🖱به راحتی کسب درامد کن 💵💰
-
-🟢 ویدیو #آموزش بازی chicky choice رو براتون گذاشتم خیلی راحت و بدون ریسک و میتونی بازی کنی و کلی پول دربیاری🔥
-
-💖 حتما ویدیو رو تا انتها ببینید
-💻لینک سایت بازی:
-💻 betinja.bet
-💻 betinja.bet
-🌐 کانال بونوس های رایگان r19
-@betinjabet
-</div>
-
-## tasiyanc — post 9146
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختلال شکن 🌱.npvt
-</div>
-
-## tasiyanc — post 9145
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-•کانفیگ اختصاصی نامحدود نپسترنت📱
-
-•سرور سرعتی تست شده تمام اپراتور ها ⚡️
-
-• لوکیشن Turkey📍
-
-•آموزش اتصال ⚡️
-
-توجه : اسکنر نپستر باگ داره پینگ نگیرید
-
-•اتصال امن برای همه 🇮🇷
-
-✅ @TASIYANC
-</div>
-
-## tasiyanc — post 9144
-
-<div align="center"><img src="files/post_9144_tasiyanc_9144.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 پرامپت اختصاصی 🤖🤖
-
-Prompt Woman
-
-A high-contrast, moody black and white portrait photograph. A young woman with dark, wavy hair, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. She is leaning forward in a contemplative pose, looking downward at her hands, which are holding a coiled leather leash. Directly behind her stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-Prompt Man
-
-A high-contrast, moody black and white portrait photograph. A handsome young man with short, styled dark wavy hair, a neat beard, wearing sunglasses, an oversized quilted puffer jacket, wide black trousers, and heavy combat boots, is seated on a low metal stool on a rugged dirt path. He is leaning forward in a contemplative pose, looking downward at his hands, which are holding a coiled leather leash. Directly behind him stands a massive black panther, looking intensely forward with sharp eyes. The backdrop is a desolate outdoor landscape with low, scrubby brush and a stormy, dark sky above, all rendered with dramatic film grain and strong chiaroscuro lighting. Solemn, grounded, atmospheric. Medium shot, caught on a high-end film camera.
-
-آموزش استفاده 👉
-
-
-@TASIYANC ⭐️
 </div>
 

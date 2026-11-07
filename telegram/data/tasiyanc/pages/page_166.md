@@ -1,8 +1,47 @@
 # آرشیو کانال tasiyanc - صفحه 166
 
-📅 آخرین بروزرسانی: 1405/08/16 10:42
+📅 آخرین بروزرسانی: 1405/08/16 17:43
 
 ---
+
+## tasiyanc — post 6510
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶  اختصاصی تاسیان  😏
+
+3سرور متد جدید🚀
+
+نامحدود  - تمام اپراتور ها ⚡️
+
+مناسب دانلود - وب‌گردی - اینستاگرام
+
+دانلود  NPV tunnel  ✔
+
+آموزش اتصال 🔹
+
+
+✔️ T.me/Tasiyanc ✅
+</div>
+
+## tasiyanc — post 6509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
+</div>
+
+## tasiyanc — post 6508
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ کاری کرد همه به ما خردادیا بدبین تر شدن 😐
+</div>
+
+## tasiyanc — post 6507
+
+<div align="center"><img src="files/post_6507_tasiyanc_6507.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔱 @Tasiyanc 🔥.txt
+</div>
 
 ## tasiyanc — post 6506
 
@@ -197,31 +236,5 @@
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6477
-
-<div align="center"><img src="files/post_6477_tasiyanc_6477.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-300 GB - 🇬🇧🇩🇪.npvt
-</div>
-
-## tasiyanc — post 6476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
-</div>
-
-## tasiyanc — post 6474
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-امسال ( خرداد ماه) آب تراز دریاچه اورمیه نسبت به سال گذشته (خرداد)۲۰ برابر افزایش داشته 😂😐
-</div>
-
-## tasiyanc — post 6473
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇺🇸@Tasiyanc.ovpn
 </div>
 

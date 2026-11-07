@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 111
 
-📅 آخرین بروزرسانی: 1405/08/16 10:42
+📅 آخرین بروزرسانی: 1405/08/16 17:43
 
 ---
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
+
+## tasiyanc — post 8447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین کامبک میزنه یا ن؟
+</div>
+
+## tasiyanc — post 8446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیااااااااااا میزنه
+</div>
+
+## tasiyanc — post 8445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرررررررررررررررران تووووووووووورس
+</div>
 
 ## tasiyanc — post 8444
 
@@ -120,31 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
-</div>
-
-## tasiyanc — post 8424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه آرژانتین از کون اورد
-</div>
-
-## tasiyanc — post 8423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
-</div>
-
-## tasiyanc — post 8421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
-
-@TASIYANC ✅
 </div>
 

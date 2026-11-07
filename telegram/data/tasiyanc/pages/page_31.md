@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/08/16 10:42
+📅 آخرین بروزرسانی: 1405/08/16 17:43
 
 ---
+
+## tasiyanc — post 10564
+
+<div align="center"><video src="files/post_10564_tasiyanc_10564.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10564_tasiyanc_10564.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴لحظه چپ کردن BMW تو جردن تهران
+
+پسره دوس دخترش کنارش نشسته جو گیر میشه میاد یه حرکت بزنه که زد ماشینو بگا داد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10563
+
+<div align="center"><video src="files/post_10563_tasiyanc_10563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10563_tasiyanc_10563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دختره : دوست پسرم رفته شمال، داره بهم خیانت میکنه!
+
++ دوست پسرش همون موقع :
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10562
+
+<div align="center"><img src="files/post_10562_tasiyanc_10562.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این بانو قهرمان میس المپیا 2026 شد
+
+
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10561
+
+<div align="center"><video src="files/post_10561_tasiyanc_10561.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10561_tasiyanc_10561.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پشمای آدم فر میخوره رسما !
+
+تور های ایرانی وارد مراحل عجیب و غریب میشن روز به روز حتما ببینید :
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10560
 
@@ -246,52 +300,5 @@ https://jhet0n.online/fa/?btag=2786270
 این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10544
-
-<div align="center"><video src="files/post_10544_tasiyanc_10544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10544_tasiyanc_10544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از سرازیر شدن موج جدید مهاجران افغانی از کوه‌های صعب‌العبور به سوی خاک ایران
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10543
-
-<div align="center"><video src="files/post_10543_tasiyanc_10543.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10543_tasiyanc_10543.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ایران نصب کنین عالیه
-
-🔴مردی در مشهد با انداختن 100 میلیون تومان ناقابل به حرم شفای همسرشو طلب کرده بود همسرش بعد مدتی میاد میمیره ، الان اومده میگه زود تند سریع 100 میلیون منو پس بدید 😂
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10541
-
-<div align="center"><img src="files/post_10541_tasiyanc_10541.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 این دختره گاث که دریک براش هاپ هاپ میکرد رو یادتونه؟
-
-حالا تو جدیدترین صحبتاش گفته پدرخونده من یه ایرانیه که از بچگی منو بزرگ کرده!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10540
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ورودی کانال آنالیز فعلاً بازه رفقا؛ اگه اهل بتی، خودتو برسون 👇🔥
-
-https://t.me/+aeze7JXKVfU2NmNk
-https://t.me/+aeze7JXKVfU2NmNk
 </div>
 

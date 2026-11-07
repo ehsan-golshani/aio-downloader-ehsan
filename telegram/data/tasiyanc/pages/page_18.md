@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/16 10:42
+📅 آخرین بروزرسانی: 1405/08/16 17:43
 
 ---
+
+## tasiyanc — post 10844
+
+<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
+
+https://t.me/+EADakrBU74wyOGVk
+https://t.me/+EADakrBU74wyOGVk
+
+تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
+</div>
+
+## tasiyanc — post 10843
+
+<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
+
+ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10842
+
+<div align="center"><video src="files/post_10842_tasiyanc_10842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10842_tasiyanc_10842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
+
+تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10841
+
+<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جاده مرگ ایران بشناسید ؛
+اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
+
+جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10840
 
@@ -232,57 +289,6 @@ https://play.google.com/store/apps/details?id=com.napsternetlabs.napsternetv
 برنامه آیفون :
 https://apps.apple.com/us/app/npv-tunnel/id162946547
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10824
-
-<div align="center"><video src="files/post_10824_tasiyanc_10824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10824_tasiyanc_10824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10823
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10822
-
-<div align="center"><img src="files/post_10822_tasiyanc_10822.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
-
-🅰20
-💎ادرس عضویت کانال vip:
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10821
-
-<div align="center"><img src="files/post_10821_tasiyanc_10821.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قتل ناموسی این‌بار در قشم
-
-یه دختر ۲۸ ساله به اسم مریم یارمحمدی توی قشم زندگی می‌کرده که!!!
-شوهر چند مدتی بود بهش مشکوک میشه و به برادر زنش ماجرارو میگه که ، برادر زن میگه نه همچین چیزی ممکن نیست ، بعد مدتی به طرف ثابت میشه
-بعد اینکه مطمئن شدن باهم همدست میشن سینه ها و واژن زن رو تیکه تیکه میکنن با چاقو و میزارن تا بمیره
-هردو متهم دستگیر شدن ولی طبق گزارشات برادر مقتول تو کمتر از ۶ ساعت آزاد شده !!!!
-جسد بی‌جان مریم روز پنج‌شنبه هفته پیش به خاک سپرده شد
 
 ⚡ @Tasiyanc
 </div>
