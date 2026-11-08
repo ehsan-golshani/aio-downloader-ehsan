@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 25
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10720
+
+<div align="center"><video src="files/post_10720_tasiyanc_10720.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10720_tasiyanc_10720.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 خبرنگار: خبر داری دلار شده ۲۷٠ تومن؟
+
+یه خانم تو تجمعات: اره ولی ما بخاطر وطنمون اومدیم، اگه ما نبودیم دلار حتی گرون ترم میشد
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10719
+
+<div align="center"><video src="files/post_10719_tasiyanc_10719.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10719_tasiyanc_10719.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴اگر گوشی‌تون مدل بالا نیست ولی دوست داری عکس‌های باکیفیت بگیری، این ویدئو رو حتما ببین
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10718
 
@@ -302,35 +329,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨ابوالفضل بازرگان ، کارشناس صداوسیما: در صورت حمله اتمی به تهران سه‌میلیون نفر کشته خواهند شد!
 
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10696
-
-<div align="center"><video src="files/post_10696_tasiyanc_10696.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10696_tasiyanc_10696.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 امروز October 5، روز جهانی فَحشاس.
-
-امروز باید تعارف بزارید کنار و غرق شهوت ، خوشی و هوس باشید
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10695
-
-<div align="center"><video src="files/post_10695_tasiyanc_10695.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10695_tasiyanc_10695.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 خاطره یه دختر تن فروش: یه دفعه یه سید بهم گفت بیا رابطه داشته باشیم، فقط تو زود بیا چون ممکنه خانمم بیاد خونه.
-رفتیم تو اتاق و شروع کرد صیغه خوندن، هر چی قرآن، آیت الکرسی، تابلو و کتاب دعا بود برعکس کرد و گفت زشته، گناه داره.
-یه دفعه وسط برنامه زنش اومد، گفت سید زودباش ...
 
 ⚡ @Tasiyanc
 </div>

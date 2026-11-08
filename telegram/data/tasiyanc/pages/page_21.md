@@ -1,8 +1,51 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10806
+
+<div align="center"><video src="files/post_10806_tasiyanc_10806.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10806_tasiyanc_10806.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂
+
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵
+
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی
+✅
+
+🅰19
+
+💎ادرس عضویت کانال vip:
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10805
+
+<div align="center"><video src="files/post_10805_tasiyanc_10805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10805_tasiyanc_10805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم پشم افکن از برخورد سوپر نفتکش با مین دریایی سپاه در تنگه هرمز امروز
+
+سپاه اعلام کرده این سومین ابرنفتکش در دو روزه گذشته هست که به مین دریایی برخورد کرده
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10802
 
@@ -248,35 +291,6 @@ https://t.me/+uA90XBGKpBRmM2Q0
 
 
 یه بار لیست دسترسی دوربین برنامه‌هاتون رو چک کنید؛ احتمالاً چندتاشون واقعاً هیچ نیازی به دوربین ندارن 👀
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10783
-
-<div align="center"><video src="files/post_10783_tasiyanc_10783.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10783_tasiyanc_10783.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖امروز 10 October
-تولد 42 سالگی «پاول دورف» بنیانگذار و مالک تلگرام هستش💖
-
-+ ممنون بابت ساختن یکی از امن‌ترین و بهترین پیام‌رسان‌های دنیا؛ تلگرام
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10782
-
-<div align="center"><video src="files/post_10782_tasiyanc_10782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10782_tasiyanc_10782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖عن بازی جدید ملت ؛ جدیدا زوج‌های ایرانی، دستشون رو بهم گره میزنن و روش نوشیدنی داغ می‌ریزن!
-
-برای اینکه نشون بدن واقعا عاشق همدیگن، نباید دستای همدیگرو ول کنن.
 
 ⚡ @Tasiyanc
 </div>

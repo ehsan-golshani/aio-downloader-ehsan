@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 31
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10591
+
+<div align="center"><video src="files/post_10591_tasiyanc_10591.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10591_tasiyanc_10591.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴فک کن داری با خیال راحت تو مسیر خودت رانندگی میکنی، بی خبر از اینکه یه حرومزاده و حیوان دوپا رم کرده، سر پیچ تو جاده دو طرفه یهو تصمیم میگیره که سبقت میگیره و با سرعت میاد به سمت شما...!
+
+اینجور آدما باید برن زندان و گواهینامشون برای همیشه باطل بشه.
+
+@Tasiyanc
+</div>
+
+## tasiyanc — post 10587
+
+<div align="center"><img src="files/post_10587_tasiyanc_10587.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴تصاویری شگفت انگیز از هواپیمای AC 130 
+🇺🇸 که شراره های دفاعی ( Flares ) خودشو پرتاب میکند و همین باعث شده این غول به فرشته‌‌ی مرگ لقب بگیرد ...
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10586
 
@@ -240,27 +265,5 @@ https://AmitisBet.com/
 🔴 امروز یه سری تندرو جلوی فرودگاه مهرآباد جمع شدن و اینطوری علیه پزشکیان و عراقچی شعار دادن :
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10566
-
-<div align="center"><video src="files/post_10566_tasiyanc_10566.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10566_tasiyanc_10566.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴من فک میکردم دوره این مسخره بازیا تموم شده :
-
-امروز تو تهران این پسر با موتور رفته بود جلوی دبیرستان دخترونه ویراژ میداد و مزاحمت ایجاد میکرد که توسط پلیس بازداشت و موتورشم توقیف شد!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10565
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
-
-@Tasiyanc
 </div>
 

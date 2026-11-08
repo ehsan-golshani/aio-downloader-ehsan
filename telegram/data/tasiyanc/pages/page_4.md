@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 11156
+
+<div align="center"><video src="files/post_11156_tasiyanc_11156.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11156_tasiyanc_11156.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بانو ایوانا ماریانا هستن ، آرایشگر مکزیکی، با مهارت و حرفه‌ای بودنش حسابی معروف شده؛
+
+تا جایی که پسرها از سراسر دنیا فقط برای کوتاه کردن موهاشون پیشش بلیط هواپیما می‌گیرن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11155
+
+<div align="center"><img src="files/post_11155_tasiyanc_11155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سوراج چاوان که تو هند بهش لقب جاستین بیبر هند رو دادن به عنوان خوشتیپ ترین و جذاب ترین مرد هند تو سال 2026 انتخاب شد:
+
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11154
 
@@ -276,41 +304,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
 ✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11135
-
-<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 🔗
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
 </div>
 

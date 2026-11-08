@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 11178
+
+<div align="center"><img src="files/post_11178_tasiyanc_11178.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰14
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11177
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تحولات مهم سیاسی اسرائیل 🇮🇱 ؛ کنار رفتن نتانیاهو از قدرت! رسانه‌های اسرائیلی : گادی آیزنکوت با حمایت ۶۷ کرسی، در برابر ۴۶ کرسی حامیان نتانیاهو، مأمور تشکیل کابینه جدید اسرائیل خواهد شد 💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11176
 
@@ -281,33 +310,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g13
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11156
-
-<div align="center"><video src="files/post_11156_tasiyanc_11156.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11156_tasiyanc_11156.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بانو ایوانا ماریانا هستن ، آرایشگر مکزیکی، با مهارت و حرفه‌ای بودنش حسابی معروف شده؛
-
-تا جایی که پسرها از سراسر دنیا فقط برای کوتاه کردن موهاشون پیشش بلیط هواپیما می‌گیرن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11155
-
-<div align="center"><img src="files/post_11155_tasiyanc_11155.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سوراج چاوان که تو هند بهش لقب جاستین بیبر هند رو دادن به عنوان خوشتیپ ترین و جذاب ترین مرد هند تو سال 2026 انتخاب شد:
-
-
-
-
-💋 @Tasiyanc
 </div>
 

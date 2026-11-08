@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 32
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10566
+
+<div align="center"><video src="files/post_10566_tasiyanc_10566.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10566_tasiyanc_10566.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴من فک میکردم دوره این مسخره بازیا تموم شده :
+
+امروز تو تهران این پسر با موتور رفته بود جلوی دبیرستان دخترونه ویراژ میداد و مزاحمت ایجاد میکرد که توسط پلیس بازداشت و موتورشم توقیف شد!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10565
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴یه مرد توی تهران بعد از یک سال به قتل همسرش اعتراف کرد و گفت چون لاتاری برنده شده بود و میخواست بره آمریکا کشتمش و جسدشو توی شمال در خانه ویلایی دفن کردم .
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 10564
 
@@ -273,32 +295,5 @@ https://jhet0n.online/fa/?btag=2786270
 🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
 💖کانال اطلاع رسانی:👇🅰3
 🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 10546
-
-<div align="center"><img src="files/post_10546_tasiyanc_10546.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 طبق مطالعات، رابطه جنسی می‌تونه نقش مهمی در ماندگاری و صمیمیت رابطه داشته باشه.
-
-•تحقیقات منتشرشده نشان می‌دهند که بیشتر زوج‌های دارای رضایت بالا، رابطه جنسی منظمی حدود هفته‌ای یک‌بار دارند.
-•زوج‌های خوشحال بدون رابطه جنسی، در این مطالعه فقط حدود ۲.۳٪ بودند.
-•سکس فقط لذت نیست؛ وقتی همراه با اعتماد و امنیت باشه، می‌تونه به صمیمیت بیشتر زوج‌ها کمک کنه.
-منبع: Journal of Family Psychology
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10545
-
-<div align="center"><video src="files/post_10545_tasiyanc_10545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10545_tasiyanc_10545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
-
-⚡ @Tasiyanc
 </div>
 

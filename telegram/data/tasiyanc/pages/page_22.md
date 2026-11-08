@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10783
+
+<div align="center"><video src="files/post_10783_tasiyanc_10783.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10783_tasiyanc_10783.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖امروز 10 October
+تولد 42 سالگی «پاول دورف» بنیانگذار و مالک تلگرام هستش💖
+
++ ممنون بابت ساختن یکی از امن‌ترین و بهترین پیام‌رسان‌های دنیا؛ تلگرام
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10782
+
+<div align="center"><video src="files/post_10782_tasiyanc_10782.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10782_tasiyanc_10782.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖عن بازی جدید ملت ؛ جدیدا زوج‌های ایرانی، دستشون رو بهم گره میزنن و روش نوشیدنی داغ می‌ریزن!
+
+برای اینکه نشون بدن واقعا عاشق همدیگن، نباید دستای همدیگرو ول کنن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10781
 
@@ -325,25 +354,5 @@ https://t.me/+ramzL0orpc5hMTBk
 ۹۶ درصد پسرایی که زیگیل دارن اصلا علائم زیگیلو ندارن!!! هیچ علائمی ندارن چون بدن خیلی قوی تری دارن و مشخص نمیکنه شماهم باهاشون رابطه جنسی برقرار میکنید و بهش مبتلا میشید.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10761
-
-<div align="center"><video src="files/post_10761_tasiyanc_10761.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10761_tasiyanc_10761.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری: خاکِ ایران به افغانستان واگذار شد!
-
-محسن زنگنه: قرار شده ۱۱۰ هکتار از چابهار رو بدیم به مردم افغانستان تا بتونن یه سرزمین متعلق به خودشون داشته باشن.
-البته قرار بود سهم بیشتری بهشون بدیم اما یه سری محدودیت هست و اینکار مشکله، ولی حتما پیگیری میکنیم که حلش کنیم!
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10760
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💠برد وستهام یونایتد 💠ضریب 1.49 ⚽️🔥تخصصی‌ترین کانال آنالیز فرم های فوتبال 💪فقط ادعا نمی‌کنم که جز بهترینا هستم، بهتون ثابت میکنیم. کافیه چند روز فرم های تماما رایگان کانال رو دنبال کنید تا متوجه بشید😍✅ 🅰r17 🆔@Aron_tip 🆔 @Aron_tip 🆔@Aron_tip 🆔 @Aron_tip
 </div>
 

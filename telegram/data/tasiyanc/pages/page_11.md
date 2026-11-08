@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 11010
+
+<div align="center"><video src="files/post_11010_tasiyanc_11010.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11010_tasiyanc_11010.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵«ویدیو وایرال شده پشم ریزون» از دعوا و درگیری یکی از زنان حامی حکومت با ترامپ پلاستیکی در تجریش که پشت میله ها وایستاده ، ترامپ پلاستیکی پشماش ریخته :
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11009
+
+<div align="center"><img src="files/post_11009_tasiyanc_11009.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵داستان واقعی ویتک خرس ایرانی که در جنگ جهانی سرجوخه شد!
+
+سال ۱۹۴۲، سربازای لهستانی توی ایران یه توله‌خرس یتیم پیدا کردن و اسمش رو گذاشتن ویتک
+ویتک با سربازا بزرگ شد، باهاشون کشتی می‌گرفت و طبق روایت‌ها، عاشق آبجو و خوردن سیگار بود!
+سال ۱۹۴۴، توی نبرد مونته کاسینو ایتالیا، به حمل جعبه‌های مهمات کمک کرد و بعدها به درجه سرجوخه رسید.
+حتی تصویرش در حال حمل مهمات، روی نشان یگانشون قرار گرفت!
+بعد از جنگ به اسکاتلند منتقل شد و سال ۱۹۶۳ در باغ‌وحش ادینبرو از دنیا رفت.
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11008
 
@@ -282,31 +311,5 @@
 
 بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
 💸🅰g3
-</div>
-
-## tasiyanc — post 10990
-
-<div align="center"><video src="files/post_10990_tasiyanc_10990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10990_tasiyanc_10990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 دکتر فاطمه آژیر درباره ترکیبات مایع منی و بلعیدن آن که می‌تونه بد باشه یا خوب توضیح داد ؛
-
-به گفته‌ی او، مایع منی سمی یا کثیف نیست و بخش عمده‌ش از آب تشکیل شده؛ در کنار پروتئین‌ها، آنزیم‌ها و ترکیبات دیگه‌ای مثل PH قلیایی‌ه‍ که باعث بوی خاصش می‌شه.
-به گفته‌ی دکتر آژیر، بلعیدن مایع منی در صورت مشخص بودن وضعیت عفونت‌های مقاربتی شریک جنسی، لزوماً خطرناک نیست؛ بااین‌حال، احتمال انتقال عفونت از طریق رابطه دهانی همچنان وجود داره.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10989
-
-<div align="center"><video src="files/post_10989_tasiyanc_10989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10989_tasiyanc_10989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیوی چند دختر بدنساز با استقبال گسترده کاربران وایرال شد!
-
-💋 @Tasiyanc
 </div>
 

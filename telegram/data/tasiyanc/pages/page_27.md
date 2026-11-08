@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10676
+
+<div align="center"><video src="files/post_10676_tasiyanc_10676.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10676_tasiyanc_10676.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 پسره برای نامزدش یه شب رویایی رمانتیک ساخته واسش گل خریده کنارش یه ایفون 18 پرومکس ۲۵۶ گیگ هم بهش هدیه داده، دختره همون لحظه میگه ۲۵۶ گیگ چیه اخه ۱ ترابایت میخواستم.
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10675
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⏳ فرصت محدوده؛ زود جوین شید، می‌خوام بردارمش 👇🔥
+
+https://t.me/+ha2KmA-UHioxNDI0
+https://t.me/+ha2KmA-UHioxNDI0
+</div>
 
 ## tasiyanc — post 10674
 
@@ -254,36 +275,5 @@ https://t.me/+VGH5xHispzJlMjM8
 دولت سنگاپور 🇸🇬 برای اینکه آمار ازدواج بالا بره ی سایت همسریابی راه انداخته که الان فقط افراد بین ۲۱ تا ۳۵ سال می‌تونن توی این سایت ثبت‌نام کنن، این سیستم فقط یک نفرو بهتون معرفی می‌کنه تا الکی وقت‌تون تلف نشه و درگیر انتخاب‌های زیاد نشید، هر کسی رو هم انتخاب کنید و باهاش قرار بذارید، هزینه ی دیت اول رو دولت بهتون میده.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10655
-
-<div align="center"><video src="files/post_10655_tasiyanc_10655.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10655_tasiyanc_10655.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴وضعیت اینستاگرام فارسی روز به روز دارک‌تر میشه :|
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10654
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-7 کانفیگ اوپن‌Vpn پرسرعت 🌟
-
-1 کانفیگ نپستر نامحدود پرسرعت 🌟
-
-
-تست شده با تمام نت‌ها 🛜
-🛜🛜
-🛜
-🛜🛜
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمنای 🤖
-
-
-جهت دریافت کانفیگ ها کلیک کنید 👉
 </div>
 

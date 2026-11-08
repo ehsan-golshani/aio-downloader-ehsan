@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 11091
+
+<div align="center"><video src="files/post_11091_tasiyanc_11091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11091_tasiyanc_11091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وقتی مسافرای اسنپ، راننده رو هم به مقصد می‌رسونن!
+این دو رفیق از ساری به مقصد رشت اسنپ می‌گیرن، اما وسط راه راننده خوابش می‌گیره و ماجرا یه‌جور دیگه پیش می‌ره!
+در نهایت این دوتا مسافر مجبور می‌شن خودشون پشت فرمون بشینن و راننده رو از ساری تا رشت برسونن!
+ایرانی جماعت واقعاً از هر موقعیتی یه خاطره می‌سازه!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد بایرن مونیخ 
+⚽️
++ گلزنی میلان
+⚽️و اینتر 
+⚽️
+
+برنده 2.000.000 میلیون شوید 
+🔹
+
+
+✍️ ورود به کانال اطلاع رسانی وی پاری 
+✈️
+</div>
 
 ## tasiyanc — post 11089
 
@@ -295,28 +335,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 تا اینکه خدا به جبرئیل دستور داد که به حضرت زهرا خبر انقلاب اسلامی ایران رو بده و ایشون آروم شدن.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11070
-
-<div align="center"><video src="files/post_11070_tasiyanc_11070.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11070_tasiyanc_11070.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو وایرال شده ۲۴ ساعت اخیر با ۱۱ میلیون ویو از دانشگاه آزاد مشهد
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
 </div>
 

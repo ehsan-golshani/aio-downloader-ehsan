@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 11226
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فقط 28 روز مونده نتانیاهو از قدرت بره کنار و آیزنکوت که مخالف حمله به ایرانه میاد توکار
+</div>
+
+## tasiyanc — post 11225
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨تهدید بی سابقه ترامپ (الکی مثلا):
+
+ما به ایران ضربه بسیار شدیدی وارد خواهیم کرد،
+نیروهای آمریکایی آماده هستند،
+من سه ناو هواپیمابر در خاورمیانه دارم،
+آنها کاملاً آماده و مسلح هستند،
+ترامپ افزود آمریکا می‌تواند 38 پل ایرانی را در عرض یک ساعت نابود کند.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11222
 
@@ -19,8 +39,6 @@
 </div>
 
 ## tasiyanc — post 11221
-
-<div align="center"><a href="files/post_11221_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -122,8 +140,6 @@
 </div>
 
 ## tasiyanc — post 11215
-
-<div align="center"><a href="files/post_11215_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -279,48 +295,5 @@
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11203
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11202
-
-<div align="center"><video src="files/post_11202_tasiyanc_11202.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11202_tasiyanc_11202.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد 
-⁉️
-
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g16
-
-⚡️@RitzoBetsupports
 </div>
 

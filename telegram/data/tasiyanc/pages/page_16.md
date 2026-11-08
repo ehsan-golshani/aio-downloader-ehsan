@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10908
+
+<div align="center"><video src="files/post_10908_tasiyanc_10908.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10908_tasiyanc_10908.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️ اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤 از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇 https://t.me/+HsrP_lU8O081ZWFk https://t.me/+HsrP_lU8O081ZWFk …
+</div>
+
+## tasiyanc — post 10907
+
+<div align="center"><video src="files/post_10907_tasiyanc_10907.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10907_tasiyanc_10907.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️
+⭕️
+⭕️
+⭕️
+اینم شیرینی ادمین به شما عزیزان  به مناسبت تولد مدیر کانال
+👤
+
+از امشب به مناسبت تولد مدیر آتنا خانوم کانال از الان تا صبح لینک کانال vip طلا و ارز  را #رایگان کردیم برای 100 نفر اول 👇
+
+https://t.me/+HsrP_lU8O081ZWFk
+https://t.me/+HsrP_lU8O081ZWFk
+
+
+💯ولی اینو بگم شرعا راضی نیستم جایی بفرستید
+لطفا رعایت کنید تا حق خودتون ضایع نشه🙏
+چون عضویت فقط برای 100 نفر بازه شانس با دوستانی که این پست مبینن
+💰 🅰g27
+</div>
 
 ## tasiyanc — post 10906
 
@@ -265,24 +305,5 @@
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10887
-
-<div align="center"><video src="files/post_10887_tasiyanc_10887.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10887_tasiyanc_10887.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه شرکت چینی برای تبلیغ نوار بهداشتی، همچین شاهکاری ساخته که شدیداً وایرال شده و فروشش ترکونده!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10886
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📍🏢باشگاه کاربران رویال📍🏢 🦁به جمع کاربران لوکس ما بپیوندید🦁 ❤️‍🔥بری‌بت❤️‍🔥 😌از انواع امکانات باشگاه رویال بهره‌مند شوید.😌 🌟خدمات پشتیبانی اختصاصی دریافت نمایید.🌟 💡به بونوس‌های فوری دسترسی پیدا کنید.🚩 🔔درصد بیشتری بازگشت نقدی بگیرید.🍸 💻 ورود به سایت 👇 ⚫️ …
 </div>
 

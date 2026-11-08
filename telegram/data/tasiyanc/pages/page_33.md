@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/08/17 19:05
+📅 آخرین بروزرسانی: 1405/08/17 23:43
 
 ---
+
+## tasiyanc — post 10546
+
+<div align="center"><img src="files/post_10546_tasiyanc_10546.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 طبق مطالعات، رابطه جنسی می‌تونه نقش مهمی در ماندگاری و صمیمیت رابطه داشته باشه.
+
+•تحقیقات منتشرشده نشان می‌دهند که بیشتر زوج‌های دارای رضایت بالا، رابطه جنسی منظمی حدود هفته‌ای یک‌بار دارند.
+•زوج‌های خوشحال بدون رابطه جنسی، در این مطالعه فقط حدود ۲.۳٪ بودند.
+•سکس فقط لذت نیست؛ وقتی همراه با اعتماد و امنیت باشه، می‌تونه به صمیمیت بیشتر زوج‌ها کمک کنه.
+منبع: Journal of Family Psychology
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10545
+
+<div align="center"><video src="files/post_10545_tasiyanc_10545.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10545_tasiyanc_10545.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این دختره که داره با یه فرد خیالی حرف میزنه عشقش ترکش کرده و در اثر مشکلات روحی دچار توهم و اسکیزوفرنی شده، فکر می‌کنه پسره پیششه و داره باهاش حرف میزنه‌ و دستشو میگیره... 💔
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10544
 
@@ -251,27 +278,5 @@ A high-fashion editorial collage of a stylish East Asian woman at a scenic park 
 🚨 بنیامین نتانیاهو در مجمع سازمان ملل : چاره ای جز پیروزی نداریم
 
 #N @Tasiyanc
-</div>
-
-## tasiyanc — post 10524
-
-<div align="center"><video src="files/post_10524_tasiyanc_10524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10524_tasiyanc_10524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-می‌دونستید همه این شاهکارهارو ایشون خونده؟
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10523
-
-<div align="center"><img src="files/post_10523_tasiyanc_10523.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشاورز چینی به نام ژانگ که در مزرعه‌اش مشغول به کار بود مار نیشش میزنه ، او مار رو با افعلی شاخدار اشتباه میگیره و بخاطر ترس از مرگ سریع انگشتش قطع میکنه ، بعد اینکه بیمارستان می‌ره دکترا میگن مشتی مادر سمی نبوده
-
-@Tasiyanc
 </div>
 
