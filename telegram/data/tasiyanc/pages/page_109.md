@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/08/17 02:05
+📅 آخرین بروزرسانی: 1405/08/17 12:07
 
 ---
+
+## tasiyanc — post 8520
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨💪 انفجار در کنارك
+
+@Tasiyanc
+</div>
 
 ## tasiyanc — post 8519
 
@@ -227,11 +235,5 @@ Loc 🇩🇪 🇩🇪
 اتصال امن برای همه 🇮🇷
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8482
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون بابت حمایت‌هاتون @i_am_souji_2 ❤️ شب بالای ۵۰ استارز زده زیر پست کانفیگا
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 203
 
-📅 آخرین بروزرسانی: 1405/08/17 02:05
+📅 آخرین بروزرسانی: 1405/08/17 12:07
 
 ---
+
+## tasiyanc — post 5553
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 هم اکنون فعالیت پدافند بندرعباس (احتمالا تست هست)
+</div>
 
 ## tasiyanc — post 5552
 
@@ -455,15 +461,5 @@ Join @Tasiyanc ✅
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 WİFİ 🚀speed.npvt
-</div>
-
-## tasiyanc — post 5517
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶اختصاصی تاسیان ۲سرور تست شده وای‌فای 📶
-
-برای اتصال پایدار ۲ تا ۴ مین زمان بدید 🚀
-
-@Tasiyanc ✅
 </div>
 

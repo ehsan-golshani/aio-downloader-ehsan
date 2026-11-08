@@ -1,12 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/17 02:05
+📅 آخرین بروزرسانی: 1405/08/17 12:07
 
 ---
 
-## tasiyanc — post 11212
+## tasiyanc — post 11213
 
-<div align="center"><a href="files/post_11212_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+<div align="center"><video src="files/post_11213_tasiyanc_11213.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11213_tasiyanc_11213.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 برخی از هموطنانمون گویا جدی جدی کصخل شدن!
+
+« ویدیو وایرال شده » توی یکی از مراسم‌های ختم، به‌جای مداح، رپر آوردن تا وسط مراسم رپ اجرا کنه! مرده خودش پشماش ریخت چه برسه ما
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11212
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -305,16 +317,5 @@
 ۳.🇩🇪 آلمان (۵.۵ تریلیون دلار)
 جالب است بدانید اقتصاد آمریکا حدود ۱.۵ برابر چین و آسیا با سهم ۳۱.۵ درصدی، بزرگترین قاره اقتصادی جهان خواهد بود.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11187
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

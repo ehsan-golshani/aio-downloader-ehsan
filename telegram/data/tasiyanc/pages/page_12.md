@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/17 02:05
+📅 آخرین بروزرسانی: 1405/08/17 12:07
 
 ---
+
+## tasiyanc — post 10979
+
+<div align="center"><img src="files/post_10979_tasiyanc_10979.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این زوج تایلندی با 58 ساعت و 35 دقیقه بوسیدن ، رکورد جهانی طولانی‌ترین بوسه رو شکستند!
+
+بعد از این همه مدت، دیگه جدایی‌شون نه با قهر، بلکه با کمبود اکسیژن اعلام میکنم!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10978
 
@@ -285,17 +297,5 @@ https://t.me/+J5uvqzBai5A2MmI0
 https://t.me/+J5uvqzBai5A2MmI0
 
 🎯 سود 4 ملیونی از میکس لایو اروپا 💵🅰g1
-</div>
-
-## tasiyanc — post 10959
-
-<div align="center"><video src="files/post_10959_tasiyanc_10959.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10959_tasiyanc_10959.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 هجوم طوفان شن به دشتیاری چابهار؛ آسمان دشتیاری در محاصره گردوخاک!
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/17 02:05
+📅 آخرین بروزرسانی: 1405/08/17 12:07
 
 ---
+
+## tasiyanc — post 11059
+
+<div align="center"><img src="files/post_11059_tasiyanc_11059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کدوم مناطق تهران تو جنگ ۴۰ روزه بیشتر زیر حمله بودن؟
+
++طبق آمار منتشرشده، منطقه 4 تهران با 298 بار اصابت در صدر مناطقی قرار گرفته که بیشترین حمله رو تجربه کردن!
+📍 این منطقه شامل محله‌هایی مثل تهرانپارس، حکیمیه، پاسداران، لویزان، مجیدیه، شمیران‌نو، هروی، نارمک شمالی و شمس‌آباده.
+آمار بقیه مناطق تهران رو هم توی تصویر ببینید
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11058
 
@@ -279,17 +294,5 @@ https://t.me/+VmekrTukXnphNmU0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11039
-
-<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
-
-💋 @Tasiyanc
 </div>
 
