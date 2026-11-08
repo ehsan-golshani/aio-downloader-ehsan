@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/17 12:07
+📅 آخرین بروزرسانی: 1405/08/17 19:05
 
 ---
+
+## tasiyanc — post 11133
+
+<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
+
+یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
+این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
+
+## tasiyanc — post 11131
+
+<div align="center"><img src="files/post_11131_tasiyanc_11131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+R2nwb5FUo0RjYTVk
+https://t.me/+R2nwb5FUo0RjYTVk
+
+🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
+
+## tasiyanc — post 11130
+
+<div align="center"><img src="files/post_11130_tasiyanc_11130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری توییت فرماندهی تفنگداران ویژه دریایی ارتش ایالات متحده
+«آماده اعزام»
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام و درود رفقا ، عزیزای دلم «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد» مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️ نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید…
+</div>
+
+## tasiyanc — post 11127
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام و درود رفقا ، عزیزای دلم
+«درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد»
+مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️
+نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید .
+</div>
+
+## tasiyanc — post 11126
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
+</div>
+
+## tasiyanc — post 11125
+
+<div align="center"><video src="files/post_11125_tasiyanc_11125.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11125_tasiyanc_11125.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵رسانه های آمریکایی اعلام کردن اون بمب هسته ای که ترامپ میخواد در حمله احتمالی به ایران ازش استفاده کنه این هست :
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11124
+
+<div align="center"><img src="files/post_11124_tasiyanc_11124.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جنایت هولناک در ارومیه؛ مانی زینالی پسر ۱۹ ساله به قتل رسید
+
+مانی دو روز پیش برای تفریح با دوستانش از خانه خارج شده بود که قربانی یک حادثه خشونت‌بار شد.
+گفته می‌شود دو مرد او را به خارج شهر برده‌اند و پس از مقاومت مانی در برابر تعرض، به او حمله کرده‌اند. مانی حتی موفق شده بود برای درخواست کمک با مادرش تماس بگیرد، اما مهاجمان دوباره به او دسترسی پیدا کردند و در نهایت جانش را گرفتند.
+حالا یک خانواده داغدار شده و یک مادر باید با جای خالی فرزند ۱۹ ساله‌اش زندگی کند...
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11123
 
@@ -140,133 +233,4 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 </div>
 
 ## tasiyanc — post 11111
-
-## tasiyanc — post 11110
-
-<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
-
-امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
-
-توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💬 ترکیب‌ها، آمار و فرم‌های پیشنهادی رو قبل بازی با هم بررسی می‌کنیم. برای همفکری و تبادل نظر، وارد گروه شو:
-
-🔗 [ورود به گروه]
-https://t.me/+M_YAiGu22l05YzM0
-
-برای دریافت فرم‌های روزانه، وارد کانال VIP شو.
-</div>
-
-## tasiyanc — post 11108
-
-<div align="center"><video src="files/post_11108_tasiyanc_11108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11108_tasiyanc_11108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 چرا «تیپستر پرشین»؟
-آنالیز دقیق و منطقی: بررسی آماری، فرم اخیر تیم‌ها، وضعیت مصدومیت‌ها و اخبار پشت پرده مسابقات (از دیدارهای ملی و جام جهانی تا جذاب‌ترین لیگ‌ها و دوستانه باشگاهی).
-فرم‌های پیشنهادی با ارزش بالا (Value Bets): معرفی گزینه‌های هوشمندانه با بالاترین ضریب اطمینان.
-بدون هیجان کاذب: پیشنهادهای کاملاً اکشن‌پذیر، اصولی و مدیریت‌شده برای سرمایه‌گذاری امن.
-💬 فقط یک کانال نیستیم؛ یک خانواده‌ایم!
-با عضویت در گروه همفکری اختصاصی تیپستر پرشین، در کنار سایر تحلیل‌گران و علاقه‌مندان به پیش‌بینی، نظرات‌تان را به اشتراک بگذارید، از تبادل نظرها استفاده کنید و بهترین فرم‌های روز را با هم بچینید.
-🚀 همین امروز به جمع حرفه‌ای‌ها بپیوندید و بازی را به نفع خودتان تمام کنید!🅰10
-👉 [لینک ورود به کانال تلگرام / لینک گروه همفکری]
-</div>
-
-## tasiyanc — post 11107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت‌های پشم ریزون جدید موتورسیکلت شرکت کویر که برای خرید ارزون‌ترین مدلش باید ۳۰ ماه کار کنه یه ایرانی
-
-ارزون‌ترین مدل همون هندای خودمون 428 میلیون تومان !!!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد رئال مادرید ⚽️
-+ گل زدن لیورپول⚽️+ آرسنال ⚽️
-
-برنده 2.000.000 میلیون شوید ✔
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11105
-
-<div align="center"><img src="files/post_11105_tasiyanc_11105.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار فوق حساااااس لیورپول⚽️و آرسنال ⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g9
-</div>
-
-## tasiyanc — post 11104
-
-<div align="center"><img src="files/post_11104_tasiyanc_11104.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آزمایش های جنجالی و پشم افکن دانشمندا در صنعت ربات‌سازی ادامه داره این‌بار پای مغز انسان رو به دنیای ربات‌ها باز کردن!
-محققان در یک آزمایش جنجالی، از سلول‌های عصبی زنده انسان برای کنترل یک ربات استفاده کردن!
-اونا سلول‌های بنیادی رو در آزمایشگاه به نورون تبدیل کردن و با ساخت یک بافت عصبی، اون رو به سیستم ربات متصل کردن.
-نتیجه؟ رباتی که می‌تونه اشیا رو برداره، نور لیزر رو دنبال کنه، به محیط واکنش نشون بده و با وظایف جدید سازگار بشه!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11103
-
-<div align="center"><img src="files/post_11103_tasiyanc_11103.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ارزون خریدن لوازم آرایشی ممکنه به قیمت از دست دادن بینایی تموم بشه!
-
-طباطبایی، مدیرعامل دیجی‌کالا، ادعای نگران‌کننده‌ای مطرح کرده و گفته میزان تخلیه چشم در کشور ۱۰ برابر شده؛ به گفته او، استفاده از مداد چشم‌های تقلبی و فاسد موجود در بازار می‌تونه باعث عفونت‌های شدید چشمی و در موارد حاد، تخلیه چشم بشه!
-⚠️ موقع خرید لوازم آرایشی، سلامتتون رو فدای قیمت پایین نکنید. هر محصول ارزونی ارزش خرید نداره!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11102
-
-<div align="center"><video src="files/post_11102_tasiyanc_11102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11102_tasiyanc_11102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو جدید انفجار هولناک در خیابان فردوسی تهران؛ که مردم در حال رفت آمد بودن
-
-ویدیویی از لحظه انفجار در جریان جنگ ۴۰ روزه منتشر شده که شدت حادثه و حضور مردم در خیابان رو به تصویر می‌کشه.
-💋 @Tasiyanc
-</div>
 
