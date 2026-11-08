@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/17 23:41
+📅 آخرین بروزرسانی: 1405/08/18 03:18
 
 ---
+
+## ProxyMTProto — post 52759
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52758
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52757
 
@@ -163,24 +181,6 @@ Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
 Server: nele46.mossharbor.xyz
 Port: 443
 Secret: ee920a4026fcc79354d87c30db9280e5786e656c6534362e6d6f7373686172626f722e78797a
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52739
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52738
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lotoka28.copperwren.click
-Port: 443
-Secret: eefd9a9e2ac2851ddc327fe5971e25a87d6c6f746f6b6132382e636f707065727772656e2e636c69636b
 @ProxyMTProto
 </div>
 

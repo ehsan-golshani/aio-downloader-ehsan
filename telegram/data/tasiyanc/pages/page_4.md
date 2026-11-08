@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/17 23:43
+📅 آخرین بروزرسانی: 1405/08/18 03:20
 
 ---
+
+## tasiyanc — post 11159
+
+<div align="center"><img src="files/post_11159_tasiyanc_11159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ایده جالب ایلان ماسک برای اپلیکیشن پرداخت بدهی‌ها توسط ثروتمندان
+
+
+ایلان ماسک پیشنهاد ساخت اپلیکیشنی را مطرح کرده است که در آن افراد از سراسر جهان بتوانند قبض‌ها و بدهی‌های خود را ثبت کنند و افراد ثروتمندِ علاقه‌مند به کار خیر، امکان پرداخت آن بدهی‌ها را داشته باشند. این ایده در صورت اجرایی‌شدن می‌تواند مدلی مستقیم‌تر و شفاف‌تر برای کمک مالی ایجاد کند؛ هرچند موفقیت آن به سازوکار اعتماد، احراز هویت، حفظ حریم خصوصی و جلوگیری از سوءاستفاده وابسته خواهد بود.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11157
+
+<div align="center"><img src="files/post_11157_tasiyanc_11157.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g13
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11156
 
@@ -261,48 +310,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11138
-
-<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
-ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11137
-
-<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔖 اپلیکیشن MelBet ✅
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

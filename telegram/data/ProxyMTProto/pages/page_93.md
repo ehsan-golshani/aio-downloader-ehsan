@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 93
 
-📅 آخرین بروزرسانی: 1405/08/17 23:41
+📅 آخرین بروزرسانی: 1405/08/18 03:18
 
 ---
+
+## ProxyMTProto — post 51077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: megaconnect.click
+Port: 443
+Secret: ee283d3bf19b80aa8a9ca06a2244c01c8a617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51075
 
@@ -163,24 +181,6 @@ Secret: ee5a9252c2c44ec88a5ad64b048d4585f7666173742d63646e2e6363
 Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: bonus.growthtrade.eu
-Port: 443
-Secret: 7g__EarnMoneyWithUs__gJ5YS5ydQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.160.196
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

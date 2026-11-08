@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/17 23:41
+📅 آخرین بروزرسانی: 1405/08/18 03:18
 
 ---
+
+## ProxyMTProto — post 52739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: lotoka28.copperwren.click
+Port: 443
+Secret: eefd9a9e2ac2851ddc327fe5971e25a87d6c6f746f6b6132382e636f707065727772656e2e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52737
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: fast.proxynet.tech
 Port: 443
 Secret: ee08787a2b7fd3220d9d35679aab082cab666173742e70726f78796e65742e74656368
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52719
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52718
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd9a30239f69e6bc3fce39ce2d88342f0c
 @ProxyMTProto
 </div>
 

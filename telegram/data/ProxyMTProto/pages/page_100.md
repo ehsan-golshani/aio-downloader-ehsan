@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/08/17 23:41
+📅 آخرین بروزرسانی: 1405/08/18 03:18
 
 ---
+
+## ProxyMTProto — post 50937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pesar.nanaz.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxtstar.live
+Port: 443
+Secret: eed21e15e0d7df3d811a11e2accff34eec617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50935
 
@@ -163,24 +181,6 @@ Secret: eefddb26d5047ce1787ece232a57832391617669746f2e7275
 Server: 194.120.230.37
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relay.rknsosi.shop
-Port: 443
-Secret: ee93e8816b5fd5c054bc95442701329e0072656c61792e726b6e736f73692e73686f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 80
-Secret: 3RbZ3hNtxAbJ6L5BQipx2_s=
 @ProxyMTProto
 </div>
 

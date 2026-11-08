@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/08/17 23:41
+📅 آخرین بروزرسانی: 1405/08/18 03:18
 
 ---
+
+## ProxyMTProto — post 51579
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ajab-Sorati-Dare-Ooh-OOh.moon
+Port: 8443
+Secret: dd00000000000000000000000000000000
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51578
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: matrixxx.top
+Port: 853
+Secret: eee4508d288bf81791177a2f5e73ac06cf6d617472697878782e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51577
 
@@ -162,24 +180,6 @@ Secret: ee7391242569590e01416101927d38b565686f66662e7275
 Server: 77.42.56.66
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51558
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51557
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 
