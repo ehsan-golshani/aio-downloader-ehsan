@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/18 03:20
+📅 آخرین بروزرسانی: 1405/08/18 15:28
 
 ---
+
+## tasiyanc — post 11143
+
+<div align="center"><img src="files/post_11143_tasiyanc_11143.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ترند جدید عاشقانه بین پسرا حسابی وایرال شده!
+
+پسرا با کمک بازوهاشون شکل قلب درست می‌کنن و اینجوری عشقشون رو به دوست‌دختر یا کسی که دوستش دارن ابراز می‌کنن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11142
+
+<div align="center"><video src="files/post_11142_tasiyanc_11142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11142_tasiyanc_11142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 حمیده راسخی، بلاگر ایرانی ساکن خارج از کشور، تمامی ویدیو هایی که توشون اکثرا میمی های ۸۵ش رو به نمایش میزاشت رو از پیجش پاک کرد و با انتشار یک ویدیو اعلام کرد که به ایران اومده، توبه کرده ...
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11141
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد بارسلونا⚽️
++ برد منچستریونایتد⚽️
+
+برنده 3.000.000 میلیون شوید ✔
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11140
+
+<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
+</div>
+
+## tasiyanc — post 11139
+
+<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11138
 
@@ -188,72 +266,6 @@ https://t.me/+R2nwb5FUo0RjYTVk
 نوزادی که هنوز چشم به دنیا باز نکرده، اما اولین واکنشش به ورود به این دنیا گریه است...
 انگار از همان لحظه اول فهمیده قرار نیست زندگی همیشه به کام آدم باشد؛
 گاهی اولین صدای ما در این دنیا، گریه‌ای برای تمام سختی‌های پیش روست...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11122
-
-<div align="center"><img src="files/post_11122_tasiyanc_11122.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵خراطیان؛ تحلیلگر نزدیک به حکومت :
-
-وقتی تاکر کارلسون «مجری مشهور نزدیک به ترامپ» میگه میخوان به ایران حمله اتمی کنن و «کوه کلنگ» رو با سلاح هسته ای بزن؛
-یعنی واقعا هدفشون همینه و اینکار رو میکنن چون همین آدم ده روز قبل از جنگ ۱۲ روزه گفت اسرائیل به زودی به ایران حمله میکنه ولی کسی جدی نگرفت اون از پشت پرده ها مطلعه....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11121
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11120
-
-<div align="center"><img src="files/post_11120_tasiyanc_11120.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰g11
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11119
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سقوط هولناک جت شخصی در نزدیکی اقامتگاه ترامپ؛ 9 نفر پودر شدند!
-
-یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11118
-
-<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وینیسیوس هم بدجوری ضایع شد!
-
-وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
 💋 @Tasiyanc
 </div>
 
