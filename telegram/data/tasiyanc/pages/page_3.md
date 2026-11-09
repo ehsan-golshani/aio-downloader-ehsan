@@ -1,8 +1,127 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/18 15:28
+📅 آخرین بروزرسانی: 1405/08/19 01:26
 
 ---
+
+## tasiyanc — post 11195
+
+<div align="center"><img src="files/post_11195_tasiyanc_11195.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰r16
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11194
+
+<div align="center"><video src="files/post_11194_tasiyanc_11194.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11194_tasiyanc_11194.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تصویری تلخ از زندگی در حاشیه شهرهای هند!
+
+اینجا فقر فقط یک عدد یا آمار نیست؛ واقعیتی است که در نزدیک‌ترین فاصله ممکن می‌توان آن را دید. شرایط زندگی در برخی مناطق زاغه‌نشین هند، چهره‌ای تکان‌دهنده از نابرابری و محرومیت را به نمایش می‌گذارد.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11192
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11191
+
+<div align="center"><img src="files/post_11191_tasiyanc_11191.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰15
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه 20 سرور اختصاصی مولتی لوکیشن پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 20 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11188
+
+<div align="center"><img src="files/post_11188_tasiyanc_11188.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آینده اقتصاد جهان در یک نگاه!
+
++ نقشه اقتصادی جهان در سال 2026
+💰گردش مالی کل اقتصاد دنیا در این سال به 128 تریلیون دلار می‌رسد.
+ابرقدرت‌های اقتصادی 2026
+۱. 🇺🇸 آمریکا (۳۲.۶ تریلیون دلار)
+۲. 🇨🇳 چین (۲۱.۵ تریلیون دلار)
+۳.🇩🇪 آلمان (۵.۵ تریلیون دلار)
+جالب است بدانید اقتصاد آمریکا حدود ۱.۵ برابر چین و آسیا با سهم ۳۱.۵ درصدی، بزرگترین قاره اقتصادی جهان خواهد بود.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11187
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11186
 
@@ -202,118 +321,5 @@
 کاش به‌جای مسابقه در سنگین‌تر کردن مهریه، مسابقه در مهربون‌تر بودن ترند بشه.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11173
-
-<div align="center"><video src="files/post_11173_tasiyanc_11173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11173_tasiyanc_11173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی که از مهریه متفاوت و به‌اصطلاح «سبک» یک زوج در فضای مجازی وایرال شده، حسابی مورد توجه قرار گرفته:
-۶۹ سکه تمام بهار آزادی
-۴ عدد نیم‌سکه
-۱۲ عدد ربع‌سکه
-۳۶ گرم طلای ۲۴ عیار
-یک سرویس طلای ۱۸ عیار با فیروزه نیشابور
-کاشت ۱۸ اصله درخت سرو
-کاشت ۱۹ اصله درخت بلوط ایرانی
-هزینه سفر به جام جهانی
-۱۳۳۹ شاخه گل مریم طبیعی
-اما قسمت جالب ماجرا کجاست؟
-نحوه پرداخت مهریه: عندالمطالبه! یعنی طبق توافق، هر زمان عروس خانم مطالبه کند، داماد موظف به پرداخت آن خواهد بود.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11172
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11171
-
-<div align="center"><video src="files/post_11171_tasiyanc_11171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11171_tasiyanc_11171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g14
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11169
-
-<div align="center"><video src="files/post_11169_tasiyanc_11169.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11169_tasiyanc_11169.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یک فصل بزرگ از تاریخ فوتبال به پایان رسید...
-
-کریستیانو رونالدو با یک ویدئوی پنج‌دقیقه‌ای، پایانی احساسی بر دوران حضورش در تیم ملی🇵🇹 گذاشت.
-
-با خداحافظی کریستیانو رونالدو از تیم ملی پرتغال، یکی دیگه از فصل‌های طلایی فوتبال به پایان رسید 💔
-پی‌نوشت: ویدیو زیرنویس داره
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11168
-
-<div align="center"><video src="files/post_11168_tasiyanc_11168.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11168_tasiyanc_11168.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کتاب تاریخ زنده آوردم براتون این خانم برزیلی ۱۲۶ سالشه!
-جنگ جهانی اول و دوم، جنگ سرد و حتی انقلاب ایران رو به چشم دیده؛ بچه و نوه و نتیجه و نبیره‌ش رو هم دیده!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11166
-
-<div align="center"><video src="files/post_11166_tasiyanc_11166.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11166_tasiyanc_11166.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اینجا تهرانه ، قصال خونه رو به سینما تغییر کاربری دادن
-
-پی‌نوشت: فک کن بری اینجا سری فیلم‌های احضار رو ببینی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11165
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 
