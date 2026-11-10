@@ -1,8 +1,73 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/19 07:36
+📅 آخرین بروزرسانی: 1405/08/19 16:14
 
 ---
+
+## tasiyanc — post 11137
+
+<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔖 اپلیکیشن MelBet ✅
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11135
+
+<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11133
 
@@ -189,48 +254,4 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
 💋 @Tasiyanc
 </div>
-
-## tasiyanc — post 11114
-
-<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چالش جدید وایرال شده دخترای دبیرستانی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r11
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💛 هنوز توی MelBet با این همه آپشن خفن و ضرایب فوق العاده ثبتنام نکردی ⁉️
-
-بعد میاید سوال میکنید کدوم سایت معتبره ❗️
-
-👀 اگه میخواید توی شرطبندی موفق باشید و درآمد کسب کنید در اولین قدم باید سایتی با آپشن های بی نظیر و ضرایب استاندارد و امنیت مالی بالا داشته باشید ✔️
-
-🎚️ همین حالا از طریق لینک زیر ثبتنام کنید و وارد دنیای جدیدی از شرطبندی بشید 🆕
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💛 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11111
 
