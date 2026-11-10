@@ -1,8 +1,112 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/19 16:14
+📅 آخرین بروزرسانی: 1405/08/19 23:43
 
 ---
+
+## tasiyanc — post 11079
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Tasiyan | تاسیان pinned «⭕️ ⭕️ دوستانی ک میپرسن در قطعی چنل در شبکه های ایرانی خواهیم داشت : پاسخ خیر چنین قصدی ندارم ، مراقب باشین از اسم «تـاسـیان» و تیم ما در جنگ و قطعی  در کانالهای روبیکا و برنامه های ایرانی سو استفاده نشه تنها راه ارتباطی  با ما در تلگرام خواهد بود @TSSUB…»
+</div>
+
+## tasiyanc — post 11078
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ ⭕️ دوستانی ک میپرسن در قطعی چنل در شبکه های ایرانی خواهیم داشت :
+
+پاسخ خیر چنین قصدی ندارم ، مراقب باشین از اسم «تـاسـیان» و تیم ما در جنگ و قطعی  در کانالهای روبیکا و برنامه های ایرانی سو استفاده نشه
+
+تنها راه ارتباطی  با ما در تلگرام خواهد بود @TSSUB
+
+کانفیگای رایگان در قطعی و جنگ در این کانالهای تلگرامی بصورت رایگان منتشر خواهد شد :
+➡️ @Tasiyanc - @TasiyanProxy
+</div>
+
+## tasiyanc — post 11077
+
+<div align="center"><video src="files/post_11077_tasiyanc_11077.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11077_tasiyanc_11077.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وفاداری‌ای که حتی مرگ هم نتونست از بین ببره، سگ مومیایی ۳۳۰۰ ساله پادشاه مصر پیدا شد!
+
+بیش از ۳۳۰۰ سال پیش، در آرامگاه سلطنتی فرعون آمنهوتپ دوم، مومیایی یک سگ کشف شد؛ سگی که ظاهراً جایگاهی ویژه در زندگی پادشاه داشته و حتی پس از مرگ هم در کنار او آرام گرفته است.
+انگار بعضی پیوندها، حتی با گذشت هزاران سال هم فراموش نمی‌شن...
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11076
+
+<div align="center"><img src="files/post_11076_tasiyanc_11076.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مخدری که بدن انسان رو از درون نابود می‌کنه؛ اسمش کروکودیله! 🐊
+
+«کروکودیل» یکی از مخدرهای بسیار خطرناکه که مصرفش می‌تونه باعث تخریب شدید بافت‌های بدن، عفونت و حتی از بین رفتن بخش‌هایی از پوست و گوشت بشه!
+آسیب‌های این ماده به‌قدری وحشتناکه که در موارد شدید، ظاهر بدن مصرف‌کننده تغییر می‌کنه و زخم‌های عمیقی روی پوستش به وجود میاد.
+این مخدر به‌خاطر عوارض مخربش به اسم کروکودیل معروف شده؛ هشداری جدی درباره اینکه بعضی مواد چطور می‌تونن زندگی انسان رو به نابودی بکشن.
+⚠️ کروکودیل؛ فقط یک اسم ترسناک نیست، یک خطر جدی برای جان انسانه.
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11075
+
+<div align="center"><video src="files/post_11075_tasiyanc_11075.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11075_tasiyanc_11075.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇 https://t.me/+RwajvZ55XSo5OWM0 https://t.me/+RwajvZ55XSo5OWM0 🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
+
+## tasiyanc — post 11074
+
+<div align="center"><video src="files/post_11074_tasiyanc_11074.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11074_tasiyanc_11074.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇
+
+https://t.me/+RwajvZ55XSo5OWM0
+https://t.me/+RwajvZ55XSo5OWM0
+
+🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
+
+## tasiyanc — post 11073
+
+<div align="center"><video src="files/post_11073_tasiyanc_11073.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11073_tasiyanc_11073.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجری احمق مکزیکی وسط پخش زنده جوگیر شد پهپاد رو لگد زد، مستقیم خورد تو صورت مدل برنامه!
+
+ارنستو چاوانا، مجری مکزیکی، وسط برنامه زنده خواست پهپاد رو با لگد بزنه، اما پهپاد منحرف شد و خورد تو صورت ایزابلا روخاس، مدل حاضر تو برنامه!
+ایزابلا با صورت زخمی صحنه رو ترک کرد و رسانه‌ها از بریدگی لبش خبر دادن ایزابلا بعد از دریافت درمان دوباره برگشت استودیو.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11072
 
@@ -151,111 +255,5 @@
 بزرگ‌ترین صرافی ارز دیجیتال دنیا هدف یه حمله سایبری سنگین قرار گرفته و طبق گزارش‌ها، ۲.۶ میلیارد دلار از دارایی‌ها به سرقت رفته!
 📉 خبر این هک بازار ارزهای دیجیتال رو به لرزه انداخته و فشار فروش بالا رفته؛ حالا همه چشم‌ها به واکنش بایننس و وضعیت بازار دوخته شده!
 ⚡@Tasiyanc
-</div>
-
-## tasiyanc — post 11059
-
-<div align="center"><img src="files/post_11059_tasiyanc_11059.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کدوم مناطق تهران تو جنگ ۴۰ روزه بیشتر زیر حمله بودن؟
-
-+طبق آمار منتشرشده، منطقه 4 تهران با 298 بار اصابت در صدر مناطقی قرار گرفته که بیشترین حمله رو تجربه کردن!
-📍 این منطقه شامل محله‌هایی مثل تهرانپارس، حکیمیه، پاسداران، لویزان، مجیدیه، شمیران‌نو، هروی، نارمک شمالی و شمس‌آباده.
-آمار بقیه مناطق تهران رو هم توی تصویر ببینید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11058
-
-<div align="center"><video src="files/post_11058_tasiyanc_11058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11058_tasiyanc_11058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اتفاقی عجیب 4 نوجوان زیر 15 سال به اتهام آدم‌ربایی در بجنورد دستگیر شدند!
-
-این نوجوانان متهم‌اند که فردی را به خارج از شهر برده و پول و گوشی او را سرقت کرده‌اند. ماجرا زمانی عجیب‌تر شد که با همان گوشی سرقتی تماس گرفتند و قرار دعوا گذاشتند؛ غافل از اینکه رد گوشی، پلیس را به آن‌ها می‌رساند!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11057
-
-<div align="center"><img src="files/post_11057_tasiyanc_11057.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یکی از عجیب‌ترین پدیده‌های طبیعی ایران ؛ جزیره‌ای که جابه‌جا می‌شه!
-
-یکی از عجیب‌ترین جاذبه‌های طبیعی ایران، چمن متحرک چملی توی شهر تکاب استان آذربایجان غربیه؛ یه برکه که وسطش جزیره‌ای از چمن و گیاهان شناوره و با وزش باد جابه‌جا می‌شه!
-
-این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11056
-
-<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11054
-
-<div align="center"><img src="files/post_11054_tasiyanc_11054.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💥 با لنزبت، هیجان بازیها رو چندین برابر کن 🎯
-
-⛏️ بونوس 🛍0️⃣0️⃣2️⃣ خوش آمد گویی
-💯 بونوس 🔣0️⃣0️⃣1️⃣برای هر واریز
-🔝 بونوس🔤0️⃣0️⃣1️⃣ کازینو
-💰 کد هدیه0️⃣2️⃣🔤🔤 بعد از اولین واریز
-📇 امتیاز وفاداری با انواع بونوسهای روزانه مخصوص کاربران فعال لنزبت🍀
-🔤0️⃣3️⃣کش بگ هفتگی
-💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت
-🅰g7
-🔤🔤🔤🔤🔤🔤🔤
-
-📱 @lenzbet_official
-
-📱 https://www.lenzbet1.xyz
-</div>
-
-## tasiyanc — post 11053
-
-<div align="center"><img src="files/post_11053_tasiyanc_11053.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ترویج بی‌بندوباری و لاشی‌گری توسط یه عده بلاگرنمای چِل پدر در اینستاگرام !
-
-یه عده تو اینستاگرام انگار نه تعهد حالیشونه، نه وفاداری؛ زن متأهل دوست‌پسر می‌گیره، بعد به خاطر همون یارو شوهرشو ول می‌کنه و طلاق می‌گیره!
-بعدم این چیزا رو می‌کشن وسط فضای مجازی، انگار نه انگار پای زندگی و احساسات آدمای دیگه وسطه!
-هر گوهی می‌خواین تو زندگی شخصیتون بخورین، ولی خیانت رو به اسم سبک زندگی مدرن به خورد بقیه ندین!
-
-
-💋 @Tasiyanc
 </div>
 

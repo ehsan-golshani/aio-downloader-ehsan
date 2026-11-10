@@ -1,8 +1,114 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/19 16:14
+📅 آخرین بروزرسانی: 1405/08/19 23:43
 
 ---
+
+## tasiyanc — post 11059
+
+<div align="center"><img src="files/post_11059_tasiyanc_11059.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کدوم مناطق تهران تو جنگ ۴۰ روزه بیشتر زیر حمله بودن؟
+
++طبق آمار منتشرشده، منطقه 4 تهران با 298 بار اصابت در صدر مناطقی قرار گرفته که بیشترین حمله رو تجربه کردن!
+📍 این منطقه شامل محله‌هایی مثل تهرانپارس، حکیمیه، پاسداران، لویزان، مجیدیه، شمیران‌نو، هروی، نارمک شمالی و شمس‌آباده.
+آمار بقیه مناطق تهران رو هم توی تصویر ببینید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11058
+
+<div align="center"><video src="files/post_11058_tasiyanc_11058.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11058_tasiyanc_11058.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اتفاقی عجیب 4 نوجوان زیر 15 سال به اتهام آدم‌ربایی در بجنورد دستگیر شدند!
+
+این نوجوانان متهم‌اند که فردی را به خارج از شهر برده و پول و گوشی او را سرقت کرده‌اند. ماجرا زمانی عجیب‌تر شد که با همان گوشی سرقتی تماس گرفتند و قرار دعوا گذاشتند؛ غافل از اینکه رد گوشی، پلیس را به آن‌ها می‌رساند!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11057
+
+<div align="center"><img src="files/post_11057_tasiyanc_11057.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یکی از عجیب‌ترین پدیده‌های طبیعی ایران ؛ جزیره‌ای که جابه‌جا می‌شه!
+
+یکی از عجیب‌ترین جاذبه‌های طبیعی ایران، چمن متحرک چملی توی شهر تکاب استان آذربایجان غربیه؛ یه برکه که وسطش جزیره‌ای از چمن و گیاهان شناوره و با وزش باد جابه‌جا می‌شه!
+
+این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11056
+
+<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11054
+
+<div align="center"><img src="files/post_11054_tasiyanc_11054.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💥 با لنزبت، هیجان بازیها رو چندین برابر کن 🎯
+
+⛏️ بونوس 🛍0️⃣0️⃣2️⃣ خوش آمد گویی
+💯 بونوس 🔣0️⃣0️⃣1️⃣برای هر واریز
+🔝 بونوس🔤0️⃣0️⃣1️⃣ کازینو
+💰 کد هدیه0️⃣2️⃣🔤🔤 بعد از اولین واریز
+📇 امتیاز وفاداری با انواع بونوسهای روزانه مخصوص کاربران فعال لنزبت🍀
+🔤0️⃣3️⃣کش بگ هفتگی
+💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت
+🅰g7
+🔤🔤🔤🔤🔤🔤🔤
+
+📱 @lenzbet_official
+
+📱 https://www.lenzbet1.xyz
+</div>
+
+## tasiyanc — post 11053
+
+<div align="center"><img src="files/post_11053_tasiyanc_11053.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ترویج بی‌بندوباری و لاشی‌گری توسط یه عده بلاگرنمای چِل پدر در اینستاگرام !
+
+یه عده تو اینستاگرام انگار نه تعهد حالیشونه، نه وفاداری؛ زن متأهل دوست‌پسر می‌گیره، بعد به خاطر همون یارو شوهرشو ول می‌کنه و طلاق می‌گیره!
+بعدم این چیزا رو می‌کشن وسط فضای مجازی، انگار نه انگار پای زندگی و احساسات آدمای دیگه وسطه!
+هر گوهی می‌خواین تو زندگی شخصیتون بخورین، ولی خیانت رو به اسم سبک زندگی مدرن به خورد بقیه ندین!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11052
 
@@ -188,94 +294,5 @@ https://t.me/+VmekrTukXnphNmU0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11039
-
-<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11038
-
-<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 نقی بیا پشمات بریزه !
-
-نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11037
-
-<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵  کانال 14 اسرائیل:
-
-نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11035
-
-<div align="center"><img src="files/post_11035_tasiyanc_11035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوووق حسااااس لیورپول و چلسی رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11034
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از یه طرفدار رئال رفته جلوی محل تمرین رئال مادرید و فیلم گرفته ببینه کدوم بازیکنا زودتر از بقیه می‌رسن؛ نفر اول هم مورینیوئه!
-
-ماشین‌هاشونم ببینید :)
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11033
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵آخرین آمار نتایج انتخابات اسرائیل:
-۴۹.۷ درصد آرا شمرده شده (حدود 3 میلیون رای) که ائتلاف نتانیاهو 56 کرسی؛ ائتلاف آیزنکوت 49 کرسی و احزاب عرب 15 کرسی رو بدست آوردن.
-
-💋 @Tasiyanc
 </div>
 
