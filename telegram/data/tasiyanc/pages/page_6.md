@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/19 01:26
+📅 آخرین بروزرسانی: 1405/08/19 07:36
 
 ---
+
+## tasiyanc — post 11133
+
+<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
+
+یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
+این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
+
+## tasiyanc — post 11131
+
+<div align="center"><img src="files/post_11131_tasiyanc_11131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+R2nwb5FUo0RjYTVk
+https://t.me/+R2nwb5FUo0RjYTVk
+
+🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
 
 ## tasiyanc — post 11130
 
@@ -197,47 +233,4 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 </div>
 
 ## tasiyanc — post 11111
-
-## tasiyanc — post 11110
-
-<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
-
-امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
-
-توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💬 ترکیب‌ها، آمار و فرم‌های پیشنهادی رو قبل بازی با هم بررسی می‌کنیم. برای همفکری و تبادل نظر، وارد گروه شو:
-
-🔗 [ورود به گروه]
-https://t.me/+M_YAiGu22l05YzM0
-
-برای دریافت فرم‌های روزانه، وارد کانال VIP شو.
-</div>
-
-## tasiyanc — post 11108
-
-<div align="center"><video src="files/post_11108_tasiyanc_11108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11108_tasiyanc_11108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 چرا «تیپستر پرشین»؟
-آنالیز دقیق و منطقی: بررسی آماری، فرم اخیر تیم‌ها، وضعیت مصدومیت‌ها و اخبار پشت پرده مسابقات (از دیدارهای ملی و جام جهانی تا جذاب‌ترین لیگ‌ها و دوستانه باشگاهی).
-فرم‌های پیشنهادی با ارزش بالا (Value Bets): معرفی گزینه‌های هوشمندانه با بالاترین ضریب اطمینان.
-بدون هیجان کاذب: پیشنهادهای کاملاً اکشن‌پذیر، اصولی و مدیریت‌شده برای سرمایه‌گذاری امن.
-💬 فقط یک کانال نیستیم؛ یک خانواده‌ایم!
-با عضویت در گروه همفکری اختصاصی تیپستر پرشین، در کنار سایر تحلیل‌گران و علاقه‌مندان به پیش‌بینی، نظرات‌تان را به اشتراک بگذارید، از تبادل نظرها استفاده کنید و بهترین فرم‌های روز را با هم بچینید.
-🚀 همین امروز به جمع حرفه‌ای‌ها بپیوندید و بازی را به نفع خودتان تمام کنید!🅰10
-👉 [لینک ورود به کانال تلگرام / لینک گروه همفکری]
-</div>
 

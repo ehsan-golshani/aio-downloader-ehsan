@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/19 01:26
+📅 آخرین بروزرسانی: 1405/08/19 07:36
 
 ---
+
+## tasiyanc — post 10864
+
+<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
+💵
+🛍
+👆
+</div>
+
+## tasiyanc — post 10863
+
+<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+
+🔥 مسابقات امروز 
+👍
+
+⚽️ اینتراخت فرانکفورت - کلن
+
+🌎 ساعت ۲۲:۰۰
+⚽️ دپورتیوولاکرونیا - لوانته
+
+🌎 ساعت ۲۲:۳۰
+
+﻿
+
+💸 ضرایب ویژه و رقابتی
+
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r24
+
+🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10862
+
+<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
+
+از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
+این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
+این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
+توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10861
 
@@ -213,47 +283,5 @@ Odd:1.98
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10844
-
-<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
-
-https://t.me/+EADakrBU74wyOGVk
-https://t.me/+EADakrBU74wyOGVk
-
-تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10843
-
-<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
-
-ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10842
-
-<div align="center"><video src="files/post_10842_tasiyanc_10842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10842_tasiyanc_10842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
-
-تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
-
-💋 @Tasiyanc
 </div>
 

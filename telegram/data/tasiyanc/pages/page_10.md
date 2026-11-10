@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/19 01:26
+📅 آخرین بروزرسانی: 1405/08/19 07:36
 
 ---
+
+## tasiyanc — post 11048
+
+<div align="center"><video src="files/post_11048_tasiyanc_11048.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11048_tasiyanc_11048.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑7 آبان؛ روز بزرگداشت کوروش بزرگ👑
+
+از دل تاریخ، از میان قرن‌ها، نامی برخاسته که هنوز در رگ‌های این سرزمین جاری‌ست؛ کوروش بزرگ، نماد شکوه، آزادگی و عظمت ایران.
+ایران، سرزمین شیران و وارثان تمدنی کهن؛ خاکی که هر وجبش روایتگر هزاران سال افتخار است و نامش تا همیشه در قلب فرزندانش زنده خواهد ماند.
+7 آبان، بر تمام ایرانیان راستین و پاسداران هویت و تاریخ ایران‌زمین خجسته باد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11046
+
+<div align="center"><img src="files/post_11046_tasiyanc_11046.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎰 لنز بت بیشترین تنوع در بازیهای کازینویی ، هدایای متفاوت💥
+
+🔣با هر واریز، بونوسی متفاوت و پیشنهادی ویژه در انتظار شماست🔣
+
+🎁 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+
+🏦 کد هدیه 0️⃣2️⃣🫡🔠بعد از واریز
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰6
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://l2enzbet.site/fa
+</div>
 
 ## tasiyanc — post 11045
 
@@ -215,35 +267,5 @@ https://t.me/+VmekrTukXnphNmU0
 جناح چپ (آیزنکوت) : 43
 
 +نتانیاهو فعلا پیشتازه
-</div>
-
-## tasiyanc — post 11028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
-</div>
-
-## tasiyanc — post 11027
-
-<div align="center"><video src="files/post_11027_tasiyanc_11027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11027_tasiyanc_11027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بی‌بی نتانیاهو پاشده رفته تو یه کاباره میکروفون گرفته دستش میگه الان وقت کصکلک بازی نیست پاشید برید رای بدید
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11026
-
-<div align="center"><video src="files/post_11026_tasiyanc_11026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11026_tasiyanc_11026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جدیدا چون برای ماساژ دادن جنس مخالف مجوز صادر نمی‌کنن، بعضی‌ها خدمات ماساژ رو به‌صورت خصوصی و در منزل مشتری انجام می‌دن؛ یعنی ماساژور خانم برای آقا یا ماساژور آقا برای خانم به محل موردنظر می‌ره.
-
-💋 @Tasiyanc
 </div>
 

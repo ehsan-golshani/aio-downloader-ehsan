@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/19 01:26
+📅 آخرین بروزرسانی: 1405/08/19 07:36
 
 ---
+
+## tasiyanc — post 11176
+
+<div align="center"><img src="files/post_11176_tasiyanc_11176.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چیز در حال سقوط است از بورس آمریکا و طلا تا بازار کریپتو !
+- ریزش 1.4 تریلیون دلاری در کمتر از 30 دقیقه
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تحولات مهم سیاسی اسرائیل 🇮🇱 ؛ کنار رفتن نتانیاهو از قدرت!
+
+رسانه‌های اسرائیلی : گادی آیزنکوت با حمایت ۶۷ کرسی، در برابر ۴۶ کرسی حامیان نتانیاهو، مأمور تشکیل کابینه جدید اسرائیل خواهد شد
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11174
+
+<div align="center"><video src="files/post_11174_tasiyanc_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11174_tasiyanc_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این همون چیزیه که باید به‌جای مهریه‌های نجومی ترند بشه!
+یک عروس خوش‌قلب برای مهریه‌اش نه سکه‌های میلیاردی خواسته، نه ماشین و خونه؛ فقط ۸۸ شاخه گل رز و هزینه تحصیل ۸ کودک بی‌سرپرست تا رسیدن به دانشگاه!
+کاش به‌جای مسابقه در سنگین‌تر کردن مهریه، مسابقه در مهربون‌تر بودن ترند بشه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11173
 
@@ -272,54 +307,6 @@
 
 
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11154
-
-<div align="center"><img src="files/post_11154_tasiyanc_11154.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵از پرچم جدید آمریکا بعد از تغییر رژیم در این کشور رونمایی شد :
-
-مسلمانانی که در انتخابات میان دوره‌ای آمریکا، پیروز شدن:
-
-۱- عبدال السید
-۲- رشیده طلیب
-۳- ایلهان عمر
-۴- آدام حماوی
-۵- داریالیزا آویلا شوالیه
-۶- عایشه وهاب
-۷- آبر کاواس
-۸- نبیله سید
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11153
-
-<div align="center"><img src="files/post_11153_tasiyanc_11153.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بلوای سیاسی در واشنگتن؛ دموکرات‌ها کنگره را قبضه کردند
-
-دموکرات‌ها در انتخابات آمریکا 🇺🇸 هم مجلس نمایندگان و هم سنا را گرفتند و کنترل کل کنگره را به دست آوردند؛ حتی در ایالت‌های جمهوری‌خواه مثل تگزاس و کانزاس هم پیروز شدند.
-
-مهم » این بزرگ‌ترین ضربه به ترامپ است؛ تصویب قوانین و بودجه و تأیید کابینه و قضات برایش سخت‌تر می‌شود. مهم‌تر برای ایران: تأمین بودجه برای ادامه تنش/جنگ با ایران خیلی دشوارتر می‌شود، هرچند لزوماً به معنای پایان تنش نیست.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11151
-
-<div align="center"><video src="files/post_11151_tasiyanc_11151.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11151_tasiyanc_11151.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه همه چی برعکس شده، این پسر فکر می‌کرد رابطه‌شون با دختره جدیه. درباره پلن رابطه حرف زده بودن. اما، یه شب دختر باهاش سکس داشته یا همون «وان نایت» و بعد ترکش کرده.
-پسر الان درگیر افسردگی شده 😂
 
 💋 @Tasiyanc
 </div>

@@ -1,8 +1,53 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/19 01:26
+📅 آخرین بروزرسانی: 1405/08/19 07:36
 
 ---
+
+## tasiyanc — post 10948
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G30🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?…
+</div>
+
+## tasiyanc — post 10947
+
+<div align="center"><img src="files/post_10947_tasiyanc_10947.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G30🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10946
+
+<div align="center"><video src="files/post_10946_tasiyanc_10946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10946_tasiyanc_10946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 شرکت چینی Unitree از ربات بادیگارد خود با قابلیت اجرای حرکات رزمی و قدرت ضربات بالا رونمایی کرد.
+
+طبق ویدئوی منتشرشده، این ربات قادر است ضربات قدرتمندی وارد کند که به بدنه خودرو آسیب می‌زند.
+
+نکته قابل‌توجه، تأکید شرکت سازنده بر استفاده «دوستانه و ایمن» از این ربات است؛ هشداری که با توجه به توانایی‌های فیزیکی آن، اهمیت ویژه‌ای دارد
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10945
 
@@ -250,51 +295,5 @@ G29🅰
 ✅ https://t.me/BerryBetOfficial
 آدرس سایت:🅰r29
 🔗 https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-</div>
-
-## tasiyanc — post 10926
-
-<div align="center"><video src="files/post_10926_tasiyanc_10926.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10926_tasiyanc_10926.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این خانوم دو روز پیش یه تبلیغ ساده واسه آنلاین‌شاپ پروتئینش گذاشت، ولی پستش نزدیک ۵ میلیون ویو خورد!
-
-دلیل وایرال شدنشم ظاهراً بیشتر از پروتئین، چاک کونشه مثل طالبی ورامین انداخت بیرون که تو ویدیو حسابی تو چشمه؛ خلاصه تبلیغ پروتئین بود، ولی ملت یه چیز دیگه دیدن!
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10925
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 28🅰 🛒 ورود به سایت 👇 ✅ https://rwqteyxoof.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10924
-
-<div align="center"><img src="files/post_10924_tasiyanc_10924.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-28🅰
-🛒 ورود به سایت 👇
-✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
 </div>
 
