@@ -1,8 +1,282 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 9983
+
+<div align="center"><video src="files/post_9983_tasiyanc_9983.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9983_tasiyanc_9983.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨معرفی بهترین ابزارها و اپلیکشن‌های هوش مصنوعی تولید محتوا،ساخت ویدیو، تبلیغات، تحقیق، برنامه نویسی در هر زمینه ای می‌تونه کارتون رو را بندازه:
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9982
+
+<div align="center"><video src="files/post_9982_tasiyanc_9982.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9982_tasiyanc_9982.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یک تک‌تیرانداز از شبه‌نظامیان یمنی طرفدار عربستان، وقتی که یک جنگجوی حوثی داشته قضای حاجت میکرده، از فرصت استفاده میکنه و به "شمبول" او شلیک میکنه 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9981
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9980
+
+<div align="center"><img src="files/post_9980_tasiyanc_9980.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9979
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴ساده‌ترین گوشی شیائومی ۵۰ میلیون تومان شد!!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9978
+
+<div align="center"><img src="files/post_9978_tasiyanc_9978.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 بابک زنجانی برای استخدام راننده در شرکت دات‌وان آگهی زده؛ بعد یکی از شرایط استخدام را گذاشته:
+«عدم سوءپیشینه»! 😐
+
+مشتی تو خودت ۳ ماهه آزاد شدی 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9977
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤩 فیلم « بهشت پاره شده » • زیرنویس چسبیده فارسی ⚠️ ژانر : #بزرگسال | #درام 🔞 صحنه های +۱۸   خلاصه داستان : زندگی دو دخترخاله، دیوسا و کلودیا، زمانی که یک کارناوال به شهرشان می‌رسد، تغییر می‌کند. وقتی که هر دو دل به مردان کارناوال می بازن و اینجاست که…
+</div>
+
+## tasiyanc — post 9976
+
+<div align="center"><img src="files/post_9976_tasiyanc_9976.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+#پرونده_قتل
+
+
+🔴پدرو آلونسو لوپز هیولای آند بی رحم ترین قاتل اکوادور ، کلمبیا ؛ مردی که ۳۰۰ قربانی را به نام خود زد.
+سال‌ها، در مناطق دورافتاده‌ی کلمبیا، اکوادور و پرو، دختران یکی‌یکی ناپدید می‌شدند؛ بدون اینکه کسی بداند چه اتفاقی برایشان افتاده است.
+در سال ۱۹۸۰، پدرو آلونسو لوپز در شهر آمباتوِ اکوادور هنگام تلاش برای ربودن یک دختر دستگیر شد. بعد از بازجویی، اعتراف کرد که صدها دختر را کشته است و پلیس را به محل دفن قربانیان برد؛ جایی که ده‌ها جسد کشف شد.
+
+اما شاید تکان‌دهنده‌ترین بخش پرونده، پایان آن بود:
+او به ۱۶ سال زندان محکوم شد؛ حداکثر مجازاتی که قانون آن زمان اکوادور اجازه می‌داد. تنها ۱۴ سال بعد، به دلیل «رفتار خوب» آزاد شد.
+و بعد از آزادی؟
+ناپدید شد.
+تا امروز، سرنوشت دقیق او همچنان در هاله‌ای از ابهام است
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9975
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9974
+
+<div align="center"><video src="files/post_9974_tasiyanc_9974.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9974_tasiyanc_9974.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 
+🔥
+                       
+         
+😃
+😃
+😃
+😃
+         
+😃
+😃
+😃
+😃
+
+
+🔥 بازگشت باخت به صورت هفتگی
+
+🔥پرداخت جوایز سریع و امن
+
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9973
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سد مهدی دهمردی بریم تو کارت یا ن 😐
+</div>
+
+## tasiyanc — post 9972
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 گروه هکری عدل علی: رضا پهلوی رو میکشیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9971
+
+<div align="center"><video src="files/post_9971_tasiyanc_9971.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9971_tasiyanc_9971.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨پشماتون بریزه اسرائیل تپه علی الطاهر در جنوب لبنان را از حزب الله پس گرفت؛ در یک ثانیه بیش از ۱۰۰ نقطه مربوط به تونل‌های مهمات منفجر شد.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9970
+
+<div align="center"><video src="files/post_9970_tasiyanc_9970.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9970_tasiyanc_9970.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بیانیه سپاه:
+امروز واسه پاسخ به حمله آمریکا، 3 نفتکش تو مسیر غیرمجاز تنگه هرمز + 3 شناور وابسته به آمریکا رو تو یه منطقه دیگه زدیم!
+فریب آمریکا رو نخورید، از هر راهی غیر از اون مسیر مجاز برید، بهتون شلیک میشه...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9969
+
+<div align="center"><video src="files/post_9969_tasiyanc_9969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9969_tasiyanc_9969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢حملات ساعت پیش سپاه پاسداران با پهپاد به نفتکش ها و کشتی های حمل کانتینر
+
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9964
+
+<div align="center"><img src="files/post_9964_tasiyanc_9964.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
+
+آیدی عددی اکانت 7189150445
+</div>
+
+## tasiyanc — post 9963
+
+<div align="center"><video src="files/post_9963_tasiyanc_9963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9963_tasiyanc_9963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴روایت یه خیانت پشم ریزان از سمت یک مشتری آقا در طلافروشی
+
++ به کجا داریم میریم ، نمیتونید به یکی پایبند باشید گوه میخورید ازدواج میکنید
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9962
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴خادمین عزیز ناو آبراهام لینکلن در پاتایا تایلند درحال عیاشی و عشق‌وحال با دخترای تایلندی بعد از تموم شدن ماموریت و جنگشون با ایران:
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9961
 
@@ -20,251 +294,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 کانفیگ پرمیوم OpenVpn  📶 لوکیشن 🇲🇦 Morocco مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب ⬅️ دریافت کانفیگ ها 🟠 🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9958
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺حسن روحانی:
-هیچکس از طرف خدا حاکم نشده. همتون مستقیم و غیرمستقیم با رای مردم مسئولیت دارید. از اون بالایی تا پایینی‌. پس ببینید مردم چی میگن؛ همون کارو کنید. اگه میخواید ۲۰ سال دیگه با دنیا بجنگید اول باید مردم موافق باشن. اون که پیغمبرش بود و به خدا وصل بود مشورت میکرد؛ حالا شما کی هستید؟!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9957
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سخنگوی قرارگاه مرکزی خاتم‌الانبیا:
-
-🚨به آمریکا هشدار می‌دیم اگر مزاحمت برای کشتی‌های ایرانی و محاصره دریایی ادامه پیدا کنه، حملات به شناورهای نظامی آمریکا شدیدتر از قبل می‌شه و ممکنه دامنه درگیری هم گسترش پیدا کنه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9956
-
-<div align="center"><video src="files/post_9956_tasiyanc_9956.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9956_tasiyanc_9956.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پسرا چقد مهربون شدن جدیدا به هیشکی نه نمیگن😞...
-
-+ حقیقتا با دیدن این ریدم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9954
-
-<div align="center"><video src="files/post_9954_tasiyanc_9954.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9954_tasiyanc_9954.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨شرکت تسلا بالاخره تاکسی‌های بدون راننده خودش رو به خیابون‌های آستین تگزاس آورد.
-
-تاکسی‌های جدید Cybercab که نه فرمون دارن و نه پدال گاز و ترمز، به ناوگان Robotaxi اضافه شدن.
-تصور کنید سوار ماشینی می‌شید که درهای پروانه‌ایش با اپلیکیشن باز می‌شه و هوش مصنوعی شما رو به مقصد می‌رسونه.
-+این تاکسی های تسلا رو یه یارویی شخصا تست کرده خیلی خفنن ایلان ماسک داره دنیا رو تغییر میده:
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9953
-
-<div align="center"><img src="files/post_9953_tasiyanc_9953.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 ده تا از برترین فیلم‌های بالیوود (هند) بر اساس محبوبیت و IMDb دوس داشتید ببینید
-
-سایت پیشنهادی جهت دانلود و تماشای بدون سانسور
-🔗https://www.novigrad.top
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9952
-
-<div align="center"><video src="files/post_9952_tasiyanc_9952.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9952_tasiyanc_9952.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ایرانی یه وانت پول جمع کرده و آورده تبدیل به دلارش کنه
-حالا ببینید چه صحنه‌ محشری خلق میشه
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9951
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇩🇪آپ اندروید سایت جهانی Melbet💥
-
-🎁بونوس ورزشی هر چهارشنبه🔥
-💸واریز و برداشت متنوع💵
-⭕️بدون نیاز به فیلتر شکن⭕️
-sg14
-🎁کد هدیه ثبت نام Melbet90 ✌️
-✔https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9950
-
-<div align="center"><img src="files/post_9950_tasiyanc_9950.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید⁉️
-
-🎲سایت بین المللی و معتبر Melbet
-
-                                 👍😁😊🙂
-🥇واریز و برداشت ارزی و ریالی‼️
-🔥بونوس 100% اولین واریز‼️
-⚽️بونوس ورزشی هرچهارشنبه‼️
-🆗کازینو و انفجار با ضرایب جهانی‼️
-
-🎁کد هدیه ثبت نام :Melbet90
-
-🇩🇪دانلود اپلیکیشن MELBET👉
-
-🔗لینک وبسایت👉
-⭕️جهت استفاده از vpn از IP های آسیایی یا کانادا استفاده کنید.🇨🇦 🇹🇷
-
-✔ https://t.me/+x60dZGAgXTUxM2U0
-</div>
-
-## tasiyanc — post 9949
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اگه هنوز به آینده امید داری این پیام رو لایک کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9948
-
-<div align="center"><video src="files/post_9948_tasiyanc_9948.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9948_tasiyanc_9948.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اسکات بسنت، وزیر خزانه‌داری آمریکا :
-
-مردم تمام دنیا ، چشم‌هاتونو خوب بازکنید و به روزای پایانی جمهوری اسلامی نگاه کنید .
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9947
-
-<div align="center"><video src="files/post_9947_tasiyanc_9947.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9947_tasiyanc_9947.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ پرمیوم OpenVpn  
-📶
-
-لوکیشن 
-🇲🇦 Morocco
-
-مناسب برای دانلود - Gemini  & ChatGpt- اینستاگرام یوتوب
-
-
-⬅️ دریافت کانفیگ ها 
-🟠
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9946
-
-<div align="center"><video src="files/post_9946_tasiyanc_9946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9946_tasiyanc_9946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فیلم وایرال شده از دختر ایرانی که با یه پسر مکزیکی با هم وارد رابطه لانگ دیستنس میشن و بعد از ۴ سال بالاخره به هم میرسن و باهم ازدواج میکنن :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9945
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۱۱ کانفیگ اختصاصی وایرگارد فوق سرعتی  😎 مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸 حجم و کاربر نامحدود 🟢 ⚡دریافت کانفیگ های وایرگارد 🔥 ⭕️برای دوستانی ک اینترنتشون ضعیفه بشدت پیشنهاد میکنم 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9944
-
-<div align="center"><video src="files/post_9944_tasiyanc_9944.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9944_tasiyanc_9944.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‌حسین پاک، خبرنگار صداوسیما حوزه لبنان:
-منتظر بیانیه حزب‌الله هستیم ولی چیزی که معلومه اینه که علی الطاهر سقوط کرده و به دست اسرائیل افتاده!
-رزمنده‌ها تو علی الطاهر محاصره شدن و امکان ارسال غذا و اسلحه بهشون نیست.
-شرایط اونجا کاملا عاشورایی شده.
-میشه اسرائیل رو فرستاد عقب، حمله نظامی تاثیر داره.
-5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠دلار رسید 227000
-
-عر عر بعضیا فقط واسه حجاب دختر مردمه؟
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9942
-
-<div align="center"><video src="files/post_9942_tasiyanc_9942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9942_tasiyanc_9942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠مهر تاییدی بر این موضوع که هر سگ و گربه‌ای رو نباید عقد و عروسیتون دعوت کنید:
-
-+ طفلی عروس چه فشاری میخوره
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9940
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خبر دستگیری این مادر جنده بیاد به ۱۰ نفر اوپن VPN اختصاصی نامحدود میدم ( فقد اعضای گروه)
-
-https://t.me/+PTaxqSvYQ_A0MTc8
-
-
-🔴تا ساعت ۱۴ زیر پست کامنت بزارید قرعه کشی میشه ( به گزارش تابناک قاتل کردن تو گونی و موقع فرار از مرز دستگیر شده )
-</div>
-
-## tasiyanc — post 9938
-
-<div align="center"><img src="files/post_9938_tasiyanc_9938.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠 نیلوفر مجاور، دختر ۲۷ ساله اهل پیرانشهر توسط خواستگار ۴۱ ساله سابقش سید عزت الدین سیدطاهری ۴۱ ساله که جواب رد بهش داده بود به بدترین شکل ممکن بقتل رسیده.
-
-نیلوفر به مدت ۱۲ روز تو مکانی نامعلوم، تحت شکنجه تجاوز قرار گرفته او با جراحات زیادی به بیمارستان امام پیرانشهر اعزام و متاسفانه پزشکان مرگ مغزی اورا تایید کردند
-کبودی‌های گسترده در سراسر بدن، شکستگی چانه و پهلو، آسیب شدید به سر و جراحات شدید در ناحیه واژن و مقعد نشون از تجاوزی وحشتناک میداد!
-در تمام این مدت به نیلوفر آب و غذا داده نمیشده و اگه نیلوفر درخواست آب میکرده، این حرومزاده ادرار میکرده براش! در نهایت دخترک بی دفاع جان نازینینش را از دست می‌دهد
-حدود ۱۰ سال پیش این جانی بخاطر مرگ همسر سابقشم متهم شده بود و بعد مدتی آزاد شد این حرامزاده یک فرزند پسر هم از ازدواج قبلیش دارد
-بنابر اطلاعات این فرد پیشتر به اتهام تجاوز و شکنجه مواجه بوده است اما قربانیان بخاطر « آبروی خانواده » عنوان نکردند
-امیدوارم این حرامزاده جانی بزودی دستگیر بشه ، خدا می‌دونه چه بلاهایی سر چند تا دختر دیگه هم آورده.
-💋 @Tasiyanc
 </div>
 

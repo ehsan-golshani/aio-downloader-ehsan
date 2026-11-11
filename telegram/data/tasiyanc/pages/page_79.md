@@ -1,8 +1,193 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 9426
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🪙اپلیشیکن اندروید سایت جهانی لاین بت
+💳 واریز و برداشت ریالی
+🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
+🔗 بدون نیاز ب فیلترشکن
+🤩 آموزش کامل استفاده از اپ 🔜
+💰💰💰💰💰
+📱Telegram Channel👇
+https://telegram.me/+dukgrB6-zGsyNGM8
+</div>
+
+## tasiyanc — post 9425
+
+<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
+
+🪙سایت بین المللی و معتبر لاین بت
+
+❤️‍🔥اسپانسر لیگ  فرانسه
+💳 واریز و برداشت ریالی
+👀بازگشت باخت ب صورت هفتگی
+📣دارای پشتیبانی فارسی فعال
+🎁بونوس 💯 روز های دوشنبه
+
+🎡کدهدیه ثبت نام ➡️ L5670
+
+🔗《 لینک سایت برای کاربران ایرانی》
+
+👍《 دانلود اپلیکیشن اندروید》
+❤️https://telegram.me/+dukgrB6-zGsyNGM8
+🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
+
+✔️ آموزش کامل و جامع شرطبندی👉
+</div>
+
+## tasiyanc — post 9422
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان گل ایشون چنل و گپشو Restiract save کرده نمیشه اسکرین ویدیو گرفت ، سریع از تمام محتویات چنل و گپ و پیویش با گوشی دیگتون فیلم بگیرید تا پاک نکرده
+
+اطلاعات دقیق و آدرس اینا رو تو چنل نمیزنم بخاطر الگوریتم تلگرام مجبورم دایرکت چنل فردا باز کنم بفرستم
+
+آیدی
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
+
+## tasiyanc — post 9421
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+جهت اطلاع ساعت ۲ پست ها پاک میشه
+</div>
+
+## tasiyanc — post 9420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
+</div>
+
+## tasiyanc — post 9419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+آیدی عددی
+8973915004
+</div>
+
+## tasiyanc — post 9418
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سیو کنین ساعت ۲ پاک میشه
+دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
+</div>
+
+## tasiyanc — post 9416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
+</div>
+
+## tasiyanc — post 9415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
+همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
+پستها پاک میشه
+</div>
+
+## tasiyanc — post 9414
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
+</div>
+
+## tasiyanc — post 9413
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+603799746347**** شماره کارت دوم
+</div>
+
+## tasiyanc — post 9412
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
+</div>
+
+## tasiyanc — post 9411
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
+</div>
+
+## tasiyanc — post 9410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
+</div>
+
+## tasiyanc — post 9409
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام بر دوستان گل 👇
+@wWwWwWwWwWwWwWwWwWwWwW26
+
+من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
+
+هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
+
+@TSSUB
+</div>
+
+## tasiyanc — post 9408
+
+<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
+
+📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
+
+❓ چطوری ازش استفاده کنیم ؟!
+
+1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
+
+2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
+
+3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
+
+📥 دانلود و کد پروژه : لینک گیت‌هاب
+
+🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این کانال از نون شب واجب تر 👌
+</div>
+
+## tasiyanc — post 9406
+
+<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
+
+💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
+sa26
+📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
+
+‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
+https://t.me/+F1CivZlkxrgzMTM0
+https://t.me/+F1CivZlkxrgzMTM0
+</div>
 
 ## tasiyanc — post 9405
 
@@ -25,230 +210,5 @@
 فووووری
 
 ترامپ: توافق با ایران را لغو خواهیم کرد
-</div>
-
-## tasiyanc — post 9403
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به گزارش اعضا وضعیت اینترنت داغون شده ، تایید یا ن؟
-</div>
-
-## tasiyanc — post 9402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ العربیه :
-
-ایران و آمریکا بر سر تمدید مجدد ۶۰ روزه ی آتش بس موافقت کردن.
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی وایرگارد  😎
-
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💢مدیرعامل آسیاتک: مردم بی‌رویه اینترنت مصرف می‌کنند چون قیمت هر گیگ اینترنت ناچیز است!
-
-زمینه سازی میکنید گرون کنید جا*شا؟
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قدیمی ترین سایت فعال در ایران✅
-امنیت،امکانات،تضمین پرداخت💎
-</div>
-
-## tasiyanc — post 9394
-
-<div align="center"><img src="files/post_9394_tasiyanc_9394.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅چرا سایت بین المللی ماف بت بهترین انتخاب برای پیش بینی و شرط بندی❓
-1️⃣ شارژ و برداشت اسان و سریع
-2️⃣پر اپشن ترین سایت فعال در ایران
-3️⃣دارای مجوز رسمی curacao
-4️⃣کارت به کارت همیشه فعال
-
-➖هدایا بی نظیر ماف بت:👇
-🎁 100% بونوس خوشامدگویی
-🎁 تا 20%برگشت باخت هفتگی
-🎁10% شارژ اضافی روی شارژ دلاری
-🎁و15%و20%شارژ اضافی نقدی برای 3 واریز اول هر روز
-
-👍 با فعالیت در ماف بت طعم واقعی امکانات در سایت جهانی حس میکنید👍
-g26
-🎯ادرس بدون فیلتر سایت:
-✅https://mafbet.com/fa/?btag=260368
-✔️ کانال تلگرام سایت:
-👑https://t.me/+8eCDvbzSV5JlZjlk
-</div>
-
-## tasiyanc — post 9392
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز August 17، روز دوست داشتن پاهاست.
-
-+ این روز رو به رفیقای فوت فتیشت تبریک بگو
-
-@Tasiyanc 
-✅
-</div>
-
-## tasiyanc — post 9391
-
-<div align="center"><img src="files/post_9391_tasiyanc_9391.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، مارجوری تیلور نماینده سابق کنگره آمریکا:
-
-آمریکا توی جلسات راهبردی خودش، درباره استفاده از بمب اتم علیه ایران صحبت میکنه! آره این موضوع کاملا واقعیه و حدس نمیزنم!
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9390
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ اسم کانال با فونت معمولی تنظیم شد
-
-𝐓 𝐀 𝐒 𝐈 𝐘 𝐀 𝐍 👉 Tasiyan | تاسیان
-
-بخاطر برخی الگوریتم های موجود تلگرام فونت معمولی گذاشتیم
-
-« همراه ما باشید ❤️ »
-</div>
-
-## tasiyanc — post 9388
-
-<div align="center"><video src="files/post_9388_tasiyanc_9388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9388_tasiyanc_9388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمسخر جوانان ایرانی توسط یک عراقی مادربخطا ک واسه تفریح اومدن ایران
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9384
-
-<div align="center"><video src="files/post_9384_tasiyanc_9384.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9384_tasiyanc_9384.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اظهارات مجری صداسیما ریحانه قاسمی زاده : جنوب ایران فدای جنوب لبنان چون اینا همونایی ان که ۹ اسفند شادی کردن
-
-@Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9383
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-تست شده تمام نت‌ها ⚡️
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9382
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴آغاز توزیع کارت کنکور ۱۴۰۵
-
-📡 داوطلبان کنکور تا چهارشنبه ۲۸ مرداد فرصت دارند کارت آزمون خود را از سایت سازمان سنجش دریافت کنند.
-
-📡 آزمون تجربی صبح، هنر و زبان‌های خارجی بعدازظهر پنجشنبه ۲۹ مرداد، ریاضی، فنی و انسانی صبح جمعه ۳۰ مرداد برگزار خواهد شد.
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9381
-
-<div align="center"><img src="files/post_9381_tasiyanc_9381.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺بورس در آستانه ۵.۹ میلیونی شدن
-
-@Tasiyanc 
-⭐️
-</div>
-
-## tasiyanc — post 9380
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🙂این بازی خیلی این روزا ترند💥
-راحت میتونی پولت چند برابر کنی💖
-فرصت از دست ندین فیلم بازی نگاه کنید و شروع کنید😁💵
-</div>
-
-## tasiyanc — post 9379
-
-<div align="center"><video src="files/post_9379_tasiyanc_9379.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9379_tasiyanc_9379.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌟ویدئوبازی محبوب Chicky choice🌟
-
-فقط کافیه مرغ از خیابون رد کنی و پولت افزایش بدی😍💵
-
-💖توی سایت بت اینجا بازی کن و پیش بینی کن و پول در بیار😍
-⬅️امکان شارژ با کارت بانکی راحت و امن
-⬅️تسویه حساب سریع بدون احراز
-
-🎁هربار شارژ کنی 12% بیشتر شارژ میشی✅
-🎁اگ باختی هم 10% باختت سایت بهت برگشت میده✅
-🚨ادرس ورود به سایت:
-💠http://betinja.bet/affiliates/?btag=2760677
-
-⚠️فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،امریکا،ترکیه،سنگاپور،فنلاند و...
-
-⭐کانال اطلاع رسانی سایت:👇 sr26
-💠https://t.me/+K0fAOE9hCUo3OGE8
-</div>
-
-## tasiyanc — post 9378
-
-<div align="center"><img src="files/post_9378_tasiyanc_9378.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‏قیمت آیفون ۱۷ پرومکس حافظه ۱ ترابایت؛ از ۷۰۰ میلیون تومن هم عبور کرد
-
-@Tasiyanc 
-⭐️
 </div>
 

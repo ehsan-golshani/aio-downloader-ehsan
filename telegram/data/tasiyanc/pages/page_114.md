@@ -1,8 +1,138 @@
 # آرشیو کانال tasiyanc - صفحه 114
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 8460
+
+<div align="center"><img src="files/post_8460_tasiyanc_8460.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری ، حمله سپاه پاسداران به ورزشگاهی که ترامپ در اون حضور داشت !
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8459
+
+<div align="center"><img src="files/post_8459_tasiyanc_8459.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 فقط دو سرمربی تو این دوره از جام جهانی باخت نداشتن:
+
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8458
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقای ترامپ دنس معروفشم زد موقع اهدای کاپ به اسپانیا
+</div>
+
+## tasiyanc — post 8457
+
+<div align="center"><img src="files/post_8457_tasiyanc_8457.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+​«رونالدو و مسی ؛ دو جادوگری که به رویای بچگی‌های ما رنگ واقعیت زدند. آخرین رقص آن‌ها در جام جهانی، پایان یک عصر طلایی بود؛ عصری که دیگر تکرار نخواهد شد.»
+
+@TASIYANC ✅
+</div>
+
+## tasiyanc — post 8456
+
+<div align="center"><img src="files/post_8456_tasiyanc_8456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حضور پرزیدنت ترامپ با اینفانتینو برای اهدای جام
+
+@TASIYANC⭐️
+</div>
+
+## tasiyanc — post 8455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+الان ک ترامپ ممنوع تصویره نمی‌خواین تقدیم جام رو نشون بدید کسخلا؟
+</div>
+
+## tasiyanc — post 8454
+
+<div align="center"><img src="files/post_8454_tasiyanc_8454.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آقا دیگه خیلی خیلی تنگ تر بشینید که مسی هم اومد 😐
+
+
+@TASIYANC ⭐️
+</div>
+
+## tasiyanc — post 8453
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانییییییییییییا قهرمان جام جهانی شد
+</div>
+
+## tasiyanc — post 8452
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تماااااامممممممم
+</div>
+
+## tasiyanc — post 8451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه اسپانیا از کون اورد
+</div>
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
+
+## tasiyanc — post 8449
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بازی بعدی فینال ایران و امریکا
+</div>
+
+## tasiyanc — post 8448
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گل شد ولی افساید
+</div>
+
+## tasiyanc — post 8447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+آرژانتین کامبک میزنه یا ن؟
+</div>
+
+## tasiyanc — post 8446
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اسپانیااااااااااا میزنه
+</div>
+
+## tasiyanc — post 8445
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرررررررررررررررران تووووووووووورس
+</div>
+
+## tasiyanc — post 8444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گگگگگگگگگگگگگگگگگگگگل
+</div>
+
+## tasiyanc — post 8443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقت اول اضافه تموم شد ، میریم پنالتیا؟
+</div>
 
 ## tasiyanc — post 8440
 
@@ -14,138 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 نود زن مسی 😂
-</div>
-
-## tasiyanc — post 8438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قرممممممز آرژانتین ۱۰ نفره شد
-</div>
-
-## tasiyanc — post 8437
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت 🔐
-
-5سرور سرعتی پرمیوم دارای ۳ لوکیشن  ⚡️
-
-تست شده روی همه نت ها 🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود اندروید 🕹
-
-دانلود آیفون 📱
-
-مناسب دانلود⬇️ وب‌گردی🔍 اینستاگرام 📸 جمینای 🤖
-
-
-
-اتصال امن برای همه 🇮🇷
-
-✔️ T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 8436
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨گزارش انفجار از اصفهان ، قم ، اراک
-
-تایید یا تکذیب نمیشه
-</div>
-
-## tasiyanc — post 8435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مقابل خدمات رایگانی ک میدم انتظار حمایت دارم ، چون منم می‌تونستم مثل خیلیا فروش بزارم
-</div>
-
-## tasiyanc — post 8434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-صبح یه اوپن VPN زدم هنوزم کار می‌کنه 😂 کاش همه چنلا مثل ما بودن به ناموسم قسم جوین میزدم براش
-</div>
-
-## tasiyanc — post 8433
-
-<div align="center"><img src="files/post_8433_tasiyanc_8433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-موقع قطعی خودتو بکشی ام رات نمیدم
-</div>
-
-## tasiyanc — post 8431
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستانی ک لف میدید تو خواب ببینید برگشتید تو چنل همتون بن میزنم
-</div>
-
-## tasiyanc — post 8430
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تموم شد بریم بازی کسشر رو ببینیم
-</div>
-
-## tasiyanc — post 8429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
-</div>
-
-## tasiyanc — post 8427
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چه بازی کسشریه
-</div>
-
-## tasiyanc — post 8425
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-داور خطای واضح روی اسپانیارو نمیگیره🤣
-</div>
-
-## tasiyanc — post 8424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اوه آرژانتین از کون اورد
-</div>
-
-## tasiyanc — post 8423
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرزیدنت ترامپ کنار اینفانتینو امشب در استادیومه و قراره جام قهرمانی رو شخصا خودش به تیم قهرمان بده
-</div>
-
-## tasiyanc — post 8421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺سایت AparatSport فینال با گزارش عادل فردوسی پور هست
-
-@TASIYANC ✅
-</div>
-
-## tasiyanc — post 8420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
-</div>
-
-## tasiyanc — post 8419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه چی به کنار خوب این عربارو گاییدن🤣
-بی خایه های کودن
 </div>
 

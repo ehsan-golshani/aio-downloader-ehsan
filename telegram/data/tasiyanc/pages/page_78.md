@@ -1,8 +1,264 @@
 # آرشیو کانال tasiyanc - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 9446
+
+<div align="center"><video src="files/post_9446_tasiyanc_9446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9446_tasiyanc_9446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🖤امروز ۲۸ مرداد ، تولد فرزند ایران جاویدنام مهرداد مشتاقی ۲۷ ساله هست ، مهرداد ۱۹ دی در اراک با گلوله کشته شد او هوادار استقلال بود و عاشق زندگی ...
+
+
+@Tasiyanc 🏛
+</div>
+
+## tasiyanc — post 9445
+
+<div align="center"><img src="files/post_9445_tasiyanc_9445.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💻 گوشی مرموز Surface Phone ؛ محصول مایکروسافت که هیچ وقت به بازار نرسید !
+
+▪️تصاویر جدیدی از نمونه اولیه گوشی مایکروسافت با نام رمز Raven فاش شده که طراحی احتمالی Surface Phone در سال های 2013 و 2014 رو نشون میده. این دستگاه از نظر ظاهر شباهت زیادی به تبلت Surface 2 داشته.
+
+▪️این گوشی قرار بوده با نمایشگر 720p و سیستم عامل Windows Phone 8.1 عرضه بشه و از یکی از تراشه های سری Snapdragon کوالکام استفاده کنه.
+اما در نهایت پروژه Raven لغو شد و این گوشی هیچ وقت به دست کاربران نرسید.
+
++ حالا بعد از سال ها، تصاویر نمونه اولیه اون منتشر شده.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9444
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
+
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+</div>
+
+## tasiyanc — post 9443
+
+<div align="center"><img src="files/post_9443_tasiyanc_9443.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         😃😃😃😃
+         😃😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+🎰شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت
+👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9442
+
+<div align="center"><img src="files/post_9442_tasiyanc_9442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+توی قائمشهر یک مرد همسر و دختر خردسال خودش رو خفه کرد و به قتل رسوند!!
+
+وقتی همسر و دخترش خواب بودن جفتشون رو با فشار بر مجرای تنفسی خفه میکنه بعدش سعی میکنه این قتل رو نشت گاز جلوه بده ولی در نهایت لو میره!
+انگیزش قتلش هم اختلافات خانوادگی بوده.
+‌
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9441
+
+<div align="center"><video src="files/post_9441_tasiyanc_9441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9441_tasiyanc_9441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠 بدترین سرنوشت برای یک حاکم( رهبر) اینه که مردمش از دستش بنالند و دائما نفرینش کنند .... آه دل داغ دیدگان یقه کوچیک و بزرگتان را خواهد گرفت ( استاد کاکاوند)
+
+@Tasiyanc ☑️
+</div>
+
+## tasiyanc — post 9440
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Decarys 🔥.ovpn
+</div>
+
+## tasiyanc — post 9439
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پیرم و گاهی دلم یاد جوانی می‌کند
+بلبل شوقم هوای نغمه‌خوانی می‌کند 😞
+
+نفری یه بیت بگید تو کامنت
+</div>
+
+## tasiyanc — post 9438
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال 
+⛓
+
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9437
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ترامپ :
+
+دیگه هیچ مذاکره یا گفت‌وگویی با جمهوری اسلامی ایران در جریان نیست و هیچ مذاکره‌ای هم برنامه‌ریزی نشده؛
+
+محاصره دریایی همچنان با تمام قدرت ادامه داره و همچنین تنگه هرمز بازه و همه مین‌های دریایی  یا جمع‌آوری شدن یا منفجرشون کردیم.
+
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9436
+
+<div align="center"><img src="files/post_9436_tasiyanc_9436.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 پست جدید ترامپ: تنگه هرمز؛ منطقه‌ی جدید ایالات متحده
+
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 9435
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با #کد های هدیه کسب درآمد میکنید 🤑
+
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 9434
+
+<div align="center"><img src="files/post_9434_tasiyanc_9434.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+☝فاصله ی تو با پول دراوردن فقط یک کلیک
+
+🔺فقط فوتبال تماشا نکن از پبشبینی فوتبال پول در بیار چطوری ⁉️ بیا تا بهت بگم
+
+⚡️ پلتفرم جهانی ریتزوبت به کاربران فارسی زبان خودش 100% هدیه شارژ اولیه میده
+
+🔺 یعنی اگه 1.000.000 داشته باشی 1.000.000 هم ریتزوبت بهت میده
+
+☑️ این یه بیزنس بین المللی و جهانی شرط بندی اما در محیط امن و سالم
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇g27
+
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 9433
+
+<div align="center"><video src="files/post_9433_tasiyanc_9433.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9433_tasiyanc_9433.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز تولد جاویدنام و بچه قهرمان ایران ملینا اسدی ؛
+
+دختر بچه ی ۳ ساله ای که به ضرب گلوله در ۱۸ دیماه غرق در خون شد و برای همیشه چشمان زیبایش را بست
+
+@Tasiyanc 
+✅
+</div>
+
+## tasiyanc — post 9432
+
+<div align="center"><img src="files/post_9432_tasiyanc_9432.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سود های میلیارد دلاری شرکت های نفتی آمریکا بعد جنگ:
+
+پ ن : حالا شما هی تو صداسیما بگو پیروز شدیم
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9431
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ اختصاصی پرسرعت OpenVpn 
+📶
+
+تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
+
+آموزش اتصال ⛓
+
+
+@Tasiyanc 
+⭐️
+</div>
+
+## tasiyanc — post 9430
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴برید به ChatGpt بگید ...
+
+Roast me , no filter , no mercy
+
+اون روی سگشو می‌بینید ، جوری زخماتون باز می‌کنه گریه کنید
+
+#N
+@Tasiyanc ⭐️
+</div>
+
+## tasiyanc — post 9429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨بلومبرگ میگه با رد ترامپ واسه تمدید دوباره آتش بس دیگه امیدی واسه صلح ایران و آمریکا نیست.
+
+#N
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 9428
 
@@ -27,190 +283,5 @@
 
 #R
 @Tasiyanc ⭐️
-</div>
-
-## tasiyanc — post 9426
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🪙اپلیشیکن اندروید سایت جهانی لاین بت
-💳 واریز و برداشت ریالی
-🎁 هر دوشنبه تا سقف ۱۳ ملیون تومان بونوس ورزشی
-🔗 بدون نیاز ب فیلترشکن
-🤩 آموزش کامل استفاده از اپ 🔜
-💰💰💰💰💰
-📱Telegram Channel👇
-https://telegram.me/+dukgrB6-zGsyNGM8
-</div>
-
-## tasiyanc — post 9425
-
-<div align="center"><img src="files/post_9425_tasiyanc_9425.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️اولین سایت جهانی برای کاربران ایران با واریز برداشت مستقیم⬇️
-
-🪙سایت بین المللی و معتبر لاین بت
-
-❤️‍🔥اسپانسر لیگ  فرانسه
-💳 واریز و برداشت ریالی
-👀بازگشت باخت ب صورت هفتگی
-📣دارای پشتیبانی فارسی فعال
-🎁بونوس 💯 روز های دوشنبه
-
-🎡کدهدیه ثبت نام ➡️ L5670
-
-🔗《 لینک سایت برای کاربران ایرانی》
-
-👍《 دانلود اپلیکیشن اندروید》
-❤️https://telegram.me/+dukgrB6-zGsyNGM8
-🔻جهت استفاده از وبسایت از آی پی کشورهای آسیایی🇷🇺 یا کانادا🇨🇦، استفاده کنید
-
-✔️ آموزش کامل و جامع شرطبندی👉
-</div>
-
-## tasiyanc — post 9422
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان گل ایشون چنل و گپشو Restiract save کرده نمیشه اسکرین ویدیو گرفت ، سریع از تمام محتویات چنل و گپ و پیویش با گوشی دیگتون فیلم بگیرید تا پاک نکرده
-
-اطلاعات دقیق و آدرس اینا رو تو چنل نمیزنم بخاطر الگوریتم تلگرام مجبورم دایرکت چنل فردا باز کنم بفرستم
-
-آیدی
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-آیدی عددی
-8973915004
-</div>
-
-## tasiyanc — post 9421
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جهت اطلاع ساعت ۲ پست ها پاک میشه
-</div>
-
-## tasiyanc — post 9420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه @wWwWwWwWwWwWwWwWwWwWwW26 آیدی عددی 8973915004
-</div>
-
-## tasiyanc — post 9419
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان عزیز توجه کنید جهت طرح شکایت چون اطلاعات تایید ۱۰۰٪ نمیشه ، فقط کانال و شماره اکانت تلگرام و شماره عددی اکانت طرف کافیه تا طرح شکایت کنید پلیس فتا درجا پیگیری می‌کنه
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-آیدی عددی
-8973915004
-</div>
-
-## tasiyanc — post 9418
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سیو کنین ساعت ۲ پاک میشه
-دخترایی ک عکسشون پخش شده اسکرین ویدیو بگیرن از چنلش و اکانتش ، میتونن در اولین ساعات فردا با مراجعه به دفتر خدمات قضایی شهرشون شکایتشون طرح کنن کلا ۱۰ مین زمان می‌بره ، پروسه خاص ای هم ندارع و زود پیگیری میشه ، قبلا هم از این موردها داشتیم ک نسلش منقرض شد
-</div>
-
-## tasiyanc — post 9416
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ، همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام پستها پاک میشه
-</div>
-
-## tasiyanc — post 9415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اطلاعاتشو سیو کنید بفرستید واسه کسایی ک عکسشون پخش شده ،
-همه اطلاعات بدید به دخترای گوش ک گفتم پخش شده عکسام
-پستها پاک میشه
-</div>
-
-## tasiyanc — post 9414
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شمارشو تلاش میکنیم براتون بزاریم تا راحت شکایت کنین ، اگر شماره خودش نبود شماره باباشو میزارم
-</div>
-
-## tasiyanc — post 9413
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-603799746347**** شماره کارت دوم
-</div>
-
-## tasiyanc — post 9412
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-علی نظام آبادی - کد ملی : 3100474*** شهر بم شماره کارت: 589210170532**** فقط امشب فرصت داری چنلتو پاک کنی عکس ناموس مردم حذف کنی و بری پی زندگیت
-</div>
-
-## tasiyanc — post 9411
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇 @wWwWwWwWwWwWwWwWwWwWwW26 من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این…
-</div>
-
-## tasiyanc — post 9409
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام بر دوستان گل 👇
-@wWwWwWwWwWwWwWwWwWwWwW26
-
-من نمی‌دونم این مادرجنده کیه فقط حدس میزنم نهایتش ۱۴.۱۵ سالش باشه ک داره عکس پروفایل دخترای مردمو ورمیداره می‌زاره چنلش ک ۵۰۰ تا ممبر داره و کسشر میگه
-
-هرگونه اطلاعات ، آدرس ، شماره تماس و هرچی میتونید از این شخص بدست بیارید سریع بفرستید پیوی ادمین هزینشو ... هم میدیم
-
-@TSSUB
-</div>
-
-## tasiyanc — post 9408
-
-<div align="center"><img src="files/post_9408_tasiyanc_9408.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📶 اینترنت گوشی رو به ساده ترین راه ممکن بفرست روی لپ تاپ!
-
-📰اگه روی گوشیت VPN روشنه و میخوای همون اینترنت و VPN رو روی ویندوز داشته باشی، Relay کار رو خیلی ساده میکنه. این پروژه متن بازه و گوشی و لپ تاپ مستقیما به هم وصل میشن و ترافیک از طریق یک تونل WireGuard منتقل میشه.
-
-❓ چطوری ازش استفاده کنیم ؟!
-
-1️⃣اپ Relay رو روی گوشی و ویندوز نصب کن ؛ هات اسپات گوشی رو روشن کن و Relay رو اجرا کن.
-
-2️⃣روی گوشی Start Sharing رو بزن تا QR Code نمایش داده بشه ؛ Relay رو روی ویندوز باز کن و Scan QR رو بزن.
-
-3️⃣در نهایت QR رو با دوربین لپ تاپ اسکن کن و اتصال رو روی گوشی تایید کن. تمام!
-
-📥 دانلود و کد پروژه : لینک گیت‌هاب
-
-🔐 طبق توضیحات پروژه، اکانت، سرور واسطه، تله متری یا اشتراک نداره و لاگ ها هم به صورت خودکار آپلود نمیشن.
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 9407
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این کانال از نون شب واجب تر 👌
-</div>
-
-## tasiyanc — post 9406
-
-<div align="center"><img src="files/post_9406_tasiyanc_9406.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥این شبا همه از پیش بینی فوتبال دارن پول درمیارن🔥
-
-💖اگه توم دوس داری فوتبال لیگ های اروپایی با یه ادم حرفه ای پیش بینی کنی و کسب درامد کنی عضو کانال بکس بت شو💖
-sa26
-📣کانال بکس بت برای عاشقان فوتبال چون هم فوتبال میبینی هم پیش بینی میکنی و پول در میاری🔥💵
-
-‼️توم میتونی از پیش بینی فوتبال یه پول خوب به جیب بزنی پس با متخصص این کار همراه شو💖💖
-https://t.me/+F1CivZlkxrgzMTM0
-https://t.me/+F1CivZlkxrgzMTM0
 </div>
 

@@ -1,8 +1,241 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 11040
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11039
+
+<div align="center"><video src="files/post_11039_tasiyanc_11039.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11039_tasiyanc_11039.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :))
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11038
+
+<div align="center"><video src="files/post_11038_tasiyanc_11038.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11038_tasiyanc_11038.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نقی بیا پشمات بریزه !
+
+نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11037
+
+<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵  کانال 14 اسرائیل:
+
+نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11036
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11035
+
+<div align="center"><img src="files/post_11035_tasiyanc_11035.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوووق حسااااس لیورپول و چلسی رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11034
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو پر بازدید از یه طرفدار رئال رفته جلوی محل تمرین رئال مادرید و فیلم گرفته ببینه کدوم بازیکنا زودتر از بقیه می‌رسن؛ نفر اول هم مورینیوئه!
+
+ماشین‌هاشونم ببینید :)
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آخرین آمار نتایج انتخابات اسرائیل:
+۴۹.۷ درصد آرا شمرده شده (حدود 3 میلیون رای) که ائتلاف نتانیاهو 56 کرسی؛ ائتلاف آیزنکوت 49 کرسی و احزاب عرب 15 کرسی رو بدست آوردن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
+
+## tasiyanc — post 11031
+
+<div align="center"><img src="files/post_11031_tasiyanc_11031.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔣از اولین شارژ تا هر واریز بعدی،
+انواع بونوس‌ها و هدایای ورود🔣
+
+🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
+💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
+🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
+🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
+
+📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
+💱 کش‌بک🔤0️⃣3️⃣ هفتگی
+💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰5
+
+🔠🔠🔠🔠🔠🔠🔠
+
+📱@lenzbet_official
+
+📱 https://www.lenz89bet.online
+</div>
+
+## tasiyanc — post 11030
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+طبق برخی گزارشات رسانه های اسراییل بی‌بی نتانیاهو از آیزنکوت پیشی گرفته
+</div>
+
+## tasiyanc — post 11029
+
+<div align="center"><img src="files/post_11029_tasiyanc_11029.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تصویر منتشر شده از شبکه ۱۴ اسراییل هم‌اکنون از شمارش آرا :
+
+جناح راست که لیکود (نتانياهو) : 60
+
+جناح چپ (آیزنکوت) : 43
+
++نتانیاهو فعلا پیشتازه
+</div>
+
+## tasiyanc — post 11028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
+</div>
+
+## tasiyanc — post 11027
+
+<div align="center"><video src="files/post_11027_tasiyanc_11027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11027_tasiyanc_11027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بی‌بی نتانیاهو پاشده رفته تو یه کاباره میکروفون گرفته دستش میگه الان وقت کصکلک بازی نیست پاشید برید رای بدید
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11026
+
+<div align="center"><video src="files/post_11026_tasiyanc_11026.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11026_tasiyanc_11026.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جدیدا چون برای ماساژ دادن جنس مخالف مجوز صادر نمی‌کنن، بعضی‌ها خدمات ماساژ رو به‌صورت خصوصی و در منزل مشتری انجام می‌دن؛ یعنی ماساژور خانم برای آقا یا ماساژور آقا برای خانم به محل موردنظر می‌ره.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+
+برد مساوی استقلال 🔵
+
+برنده 2.000.000 میلیون شوید 🔹
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11024
+
+<div align="center"><img src="files/post_11024_tasiyanc_11024.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدار فوق حساااااس شباب الاهلی🇰🇼 و استقلال 🔵رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g5
+</div>
+
+## tasiyanc — post 11023
+
+<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
+
+قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
+بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11022
 
@@ -18,275 +251,5 @@
 مردم ایران باید خودشون از داخل رژیمشون تغییر ایجاد کنن؛ اینکه ما بخوایم با حمله ی نظامی رژیم ایران رو تغییر بدیم کار درستی نیست، ما نباید دخالتی کنیم این به خود مردم ایران بستگی داره که میخوان چیکار کنن.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11020
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
-</div>
-
-## tasiyanc — post 11019
-
-<div align="center"><img src="files/post_11019_tasiyanc_11019.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛
-ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع حمله به ایران نخست وزیر بعدی اسرائیله.
-ـ ترامپ هم به رویترز اعلام کرده که اگه اسرائیل رهبری غیر از نتانیاهو داشته باشه، آمریکا مجبور میشه به‌تنهایی با ایران مقابله کنه و من اصلاً تمایلی به این کار ندارم
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11018
-
-<div align="center"><video src="files/post_11018_tasiyanc_11018.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11018_tasiyanc_11018.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو پر بازدید از ترسناک‌ترین سیارات کشف‌شده در کیهان؛ سیاراتی عجیب و باورنکردنی که هرگز تصورش را هم نمی‌کردید وجود داشته باشند !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11017
-
-<div align="center"><video src="files/post_11017_tasiyanc_11017.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11017_tasiyanc_11017.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مومیایی روزالیا لومباردو ، دختر کوچکی که پس از بیش از ۱۰۰ سال هنوز چهره‌ای شبیه به زمان حیاتش دارد!
-
-روزالیا در سال ۱۹۲۰، در حدود دو سالگی بر اثر ذات‌الریه از دنیا رفت؛ اما پدرش که نتوانست با مرگ دختر کوچکش کنار بیاد به کمک روش خاص مومیایی‌سازی،تونسته تا به امروز چهره دخترش را حفظ کند
-مومیایی او در دخمه‌های کاپوچین شهر پالرمو در ایتالیا نگهداری می‌شه؛ جایی که بازدیدکننده‌ها با دیدن چهره‌ی این کودک، انگار با تصویری از گذشته روبه‌رو می‌شن…
-بیش از یک قرن گذشته، اما چهره‌ی کوچکش هنوز یادآور زندگی کوتاهی‌ست که خیلی زود به پایان رسید.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11016
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r5
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11015
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11014
-
-<div align="center"><video src="files/post_11014_tasiyanc_11014.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11014_tasiyanc_11014.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوری 
-🚨ممنوعیت بنزین آزاد جایگاه‌داران در ۱۲ استان اجرا شد!
-
-با اجرای این طرح، سفرهای بین‌استانی می‌تونه برای راننده‌ها - مسافر ها دردسرساز بشه؛ مثلاً با ۱۱۰ لیتر بنزین شخصی خودت از تهران راهی مشهد بشی، اما برای برگشت با مشکل تأمین سوخت مواجه بشی!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11013
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11012
-
-<div align="center"><img src="files/post_11012_tasiyanc_11012.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎆 تورنومنت کازینو
-
-💥 فرصت ویژه برای علاقه‌مندان به بازی‌های کازینویی 🆒
-
-📈 رقابت کن، امتیاز جمع کن و سهمت را از جوایز میلیادری بگیر 💰
-
-💯 بونوس🔤0️⃣0️⃣1️⃣ کازینو
-
-🔣0️⃣3️⃣ کش بک هفتگی
-
-📇 امتیاز وفاداری همراه با انواع هدایای نقدی روزانه مخصوص کاربران فعال لنزبت
-
-💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت🅰4
-
-🔤🔤🔤🔤🔤🔤🔤
-
-📱 @lenzbet_official
-
-📱 https://www.lenz7bet.online
-</div>
-
-## tasiyanc — post 11011
-
-<div align="center"><img src="files/post_11011_tasiyanc_11011.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پدری که یک‌تنه یک شبکه قاچاق انسان رو متلاشی کرد تا دختر ۱۴ سالشو نجات بده!
-
-یک ماه کابوس، یک دختر ربوده‌شده و پدری که حاضر نبود تسلیم بشه… «فرانک جروسی» اهل نیویورک برای پیدا کردن دخترش به دل خطر زد و به یک کشتی یورش برد؛ اقدامی که به متلاشی شدن یک شبکه قاچاق انسان هم کمک کرد...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11010
-
-<div align="center"><video src="files/post_11010_tasiyanc_11010.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11010_tasiyanc_11010.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵«ویدیو وایرال شده پشم ریزون» از دعوا و درگیری یکی از زنان حامی حکومت با ترامپ پلاستیکی در تجریش که پشت میله ها وایستاده ، ترامپ پلاستیکی پشماش ریخته :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11009
-
-<div align="center"><img src="files/post_11009_tasiyanc_11009.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵داستان واقعی ویتک خرس ایرانی که در جنگ جهانی سرجوخه شد!
-
-سال ۱۹۴۲، سربازای لهستانی توی ایران یه توله‌خرس یتیم پیدا کردن و اسمش رو گذاشتن ویتک
-ویتک با سربازا بزرگ شد، باهاشون کشتی می‌گرفت و طبق روایت‌ها، عاشق آبجو و خوردن سیگار بود!
-سال ۱۹۴۴، توی نبرد مونته کاسینو ایتالیا، به حمل جعبه‌های مهمات کمک کرد و بعدها به درجه سرجوخه رسید.
-حتی تصویرش در حال حمل مهمات، روی نشان یگانشون قرار گرفت!
-بعد از جنگ به اسکاتلند منتقل شد و سال ۱۹۶۳ در باغ‌وحش ادینبرو از دنیا رفت.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11008
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-گل زدن العین ⚽️ و تراکتور ⚽️
-+برد پاریس ⚽️
-
-برنده 2.300.000 میلیون شوید ☠️
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11007
-
-<div align="center"><img src="files/post_11007_tasiyanc_11007.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار فوق حساااااس العین⚽️ و تراکتور ⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g4
-</div>
-
-## tasiyanc — post 11006
-
-<div align="center"><video src="files/post_11006_tasiyanc_11006.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11006_tasiyanc_11006.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری / اعتراضات گسترده در صربستان؛ دولت الکساندر وویچ بخاطر فساد و بی‌عدالتی سقوط کرد 
-🇷🇸
-
-اعتراضات دانشجویی علیه فساد و بی‌عدالتی در صربستان، به تجمعات گسترده مردمی تبدیل شد؛ حرکتی که با حضور نسل Z شروع شد و شهروندان بیشتری رو به خیابون‌ها کشوند.
-ویدیوهای منتشرشده از این اعتراضات، تصاویری از رقص و شادی مردم و حتی ثبت لحظات عاشقانه زوج‌ها رو نشون می‌ده؛ تصاویری متفاوت از چیزی که معمولاً از اعتراضات خیابونی می‌بینیم.
-در این اعتراضات حتی یه گلوله به سمت مردم شلیک و کسی کشته نشد
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11005
-
-<div align="center"><img src="files/post_11005_tasiyanc_11005.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اگه یه کشور دیگه به دنیا می‌اومدی، زندگیت چه شکلی می‌شد؟
-با این سایت می‌تونی یه زندگی فرضی توی کشور دیگه رو تجربه کنی و ببینی چقدر ممکن بود سرنوشتت متفاوت باشه! امتحانش کن، ببین توی یه دنیای دیگه چه زندگی‌ای داشتی!
-
-⛓ https://1in8b.life/en/
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد! ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است. 🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری…
-</div>
-
-## tasiyanc — post 11003
-
-<div align="center"><video src="files/post_11003_tasiyanc_11003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11003_tasiyanc_11003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد!
-
-ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است.
-
-🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری قرار گرفت.
-
-
-💋@Tasiyanc
 </div>
 

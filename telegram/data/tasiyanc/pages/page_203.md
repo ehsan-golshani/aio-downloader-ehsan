@@ -1,8 +1,186 @@
 # آرشیو کانال tasiyanc - صفحه 203
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 5640
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+{"remarks":"@Tasiyanc ترکیب","log":{"loglevel":"warning"},"inbounds":[{"tag":"socks","port":10808,"protocol":"socks","settings":{"auth":"noauth","udp":true,"userLevel":8},"sniffing":{"enabled":true,"destOverride":["http","tls"],"routeOnly":false}}],"outbounds":[{"tag":"proxy","protocol":"trojan","settings":{"servers":[{"address":"95.38.162.222","ota":false,"password":"humanity","port":40443,"level":8}]},"streamSettings":{"network":"ws","security":"tls","wsSettings":{"path":"/assignment","headers":{"Host":"www.ignitelimit.com"}},"tlsSettings":{"allowInsecure":true,"serverName":"www.ignitelimit.com","show":false}},"mux":{"enabled":false,"concurrency":-1,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"direct","protocol":"freedom","settings":{"domainStrategy":"UseIP"},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}},{"tag":"block","protocol":"blackhole","settings":{"response":{"type":"http"}},"mux":{"enabled":false,"concurrency":8,"xudpConcurrency":8,"xudpProxyUDP443":""}}],"dns":{"servers":["1.1.1.1"],"hosts":{"domain:googleapis.cn":"googleapis.com","dns.alidns.com":["223.5.5.5","223.6.6.6","2400:3200::1","2400:3200:baba::1"],"one.one.one.one":["1.1.1.1","1.0.0.1","2606:4700:4700::1111","2606:4700:4700::1001"],"dot.pub":["1.12.12.12","120.53.53.53"],"dns.google":["8.8.8.8","8.8.4.4","2001:4860:4860::8888","2001:4860:4860::8844"],"dns.quad9.net":["9.9.9.9","149.112.112.112","2620:fe::fe","2620:fe::9"],"common.dot.dns.yandex.net":["77.88.8.8","77.88.8.1","2a02:6b8::feed:0ff","2a02:6b8:0:1::feed:0ff"]}},"routing":{"domainStrategy":"IPIfNonMatch","rules":[{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"},{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"},{"type":"field","ip":["1.1.1.1"],"outboundTag":"proxy","port":"53"},{"type":"field","ip":["223.5.5.5"],"outboundTag":"direct","port":"53"}]}}
+
+ترکیبی ✅
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5639
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور وی ای پی سرور تست شده همراه بقیه اپراتورا تست کنن⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5638
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+منو چقد دوس؟
+</div>
+
+## tasiyanc — post 5637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲ سرور وی ای پی سرور تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈4 سرور وی ای پی تست شده نت خانگی⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5634
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5633
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5632
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈سرور تست شده همه اپراتورا⛈
+
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5631
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تمام سرورا با همراه اول & وای‌فای تست میشن
+</div>
+
+## tasiyanc — post 5629
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان نامحدود 📱
+
+⛈۲سرور تست شده همه اپراتورا⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5628
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرورای وای‌فای ک بالا گذاشتم هنوز وصله✅
+</div>
+
+## tasiyanc — post 5627
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بمب بعدی
+</div>
+
+## tasiyanc — post 5626
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کی از همه قشنگتره؟ کامنتارو 🗿
+</div>
+
+## tasiyanc — post 5625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈1 سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5613
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔑Pass : @Tasiyanc
+
+📱 اختصاصی تاسیان 📱
+
+⛈سرور تست شده wifi⛈
+
+برای اتصال پایدار صبور باشید🚀
+
+🚀 @Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5612
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گوگل پلی برا بعضیا باز شده و اکثرا باز نشده ( طبق گزارش ممبرهای عزیزمون)
+</div>
+
+## tasiyanc — post 5611
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ گوگل پلی رفع فیلتر شد
+</div>
+
+## tasiyanc — post 5610
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⭕️ وزیر ارتباطات:
+با دستور رئیس‌جمهوری و پس از برگزاری ۳ جلسه فشرده کارشناسی، فرایند بازگرداندن اینترنت کشور به وضعیت قبل از دی‌ماه ۱۴۰۴ آغاز شده است.
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5609
 
@@ -18,154 +196,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دارن وصل میکنن؟
-</div>
-
-## tasiyanc — post 5607
-
-<div align="center"><img src="files/post_5607_tasiyanc_5607.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-@Tasiyanc [02] WiFi ⚡ (1).npvt
-</div>
-
-## tasiyanc — post 5606
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈سرور تست شده wifi⛈
-
-برای اتصال پایدار صبور باشید🚀
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5605
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حجم پیام زیاده
-
-قربون همتون عشقید ❤️‍🔥💋
-</div>
-
-## tasiyanc — post 5604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرف نداری پسر/دختر🫶😂
-</div>
-
-## tasiyanc — post 5603
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یدونه هستش درست ۲ هفته وصلم 😂😂
-</div>
-
-## tasiyanc — post 5602
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اقا واقعا وصل ممنون تاسيان♥️♥️♥️
-</div>
-
-## tasiyanc — post 5601
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5600
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🥹💋 fadatooooooooooooonnn
-</div>
-
-## tasiyanc — post 5599
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-خیلی خوبن🥹
-</div>
-
-## tasiyanc — post 5598
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-من فقط با نپستر این چنل وصلم
-</div>
-
-## tasiyanc — post 5597
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فقط ترکیبی بزار من با ترکیب هات همیشه وصلم
-</div>
-
-## tasiyanc — post 5596
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون که کنارمون بودی این روزای سخت هم وطن🤍🕊
-</div>
-
-## tasiyanc — post 5595
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانالت عالیه من همیشه با تو وصلم
-</div>
-
-## tasiyanc — post 5594
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ممنون از همه زحماتتون تیم تاسیان مرسی من با npv تونستم وصل شم
-</div>
-
-## tasiyanc — post 5585
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان 📱
-
-⛈ سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔑Pass : @Tasiyanc
-
-📱 اختصاصی تاسیان 📱
-
-⛈دو سرور تست شده همه اپراتورها⛈
-
-برای اتصال پایدار صبور باشید
-
-🚀 @Tasiyanc ✅
-</div>
-
-## tasiyanc — post 5583
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg 1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن 2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه 3 -…
-</div>
-
-## tasiyanc — post 5580
-
-<div align="center"><video src="files/post_5580_tasiyanc_5580.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_5580_tasiyanc_5580.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅ اموزش ویدیویی ترکیبی سایفون با کلاینت MahsaNg
-
-1 - وارد بخش get EMS  config شوید گزینه Mahsa repo رو بزنید بعد روی get emergency config بزنید تا کانفیگ ها اضافه بشن
-
-2 - وارد تنظیمات سایفون شوید protocol روی Auto قرار بدید و aggressive هم ON باشه
-
-3 - تو منوی اصلی F رو بزنید و فقط گزینه Psiphon after روشن کنین
-
-4 - برگردید و به اولین سروری که هست کانکت بشید بعد ۲۰ ثانیه شما کانکت میشوید ✅
-
-
-@Tasiyanc ✅
 </div>
 

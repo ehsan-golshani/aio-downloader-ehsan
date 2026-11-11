@@ -1,8 +1,317 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 10297
+
+<div align="center"><img src="files/post_10297_tasiyanc_10297.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عجیب اما واقعی !
+توی کانادا🇨🇦 کلاب هایی هست که میتونی بری بشینی و سـکس دو نفر دیگه رو زنده از نزدیک نگاه کنی
+
+یعنی تو این کلاب هم میتونی رابطه برقرار کنی تا دیگران ببینن هم خودت میتونی تماشاچی باشی.
+
+عکس مربوط به کلاب M4 Dundas هست
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10296
+
+<div align="center"><video src="files/post_10296_tasiyanc_10296.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10296_tasiyanc_10296.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴سرقت طلا به ارزش ۸ میلیارد توسط باجناق !!
+تو امام‌زاده‌حسن تهران یه باجناق سه تا سارق اجیر می‌کنه تا برن خونه باجناقشو سرقت کنن ، جای طلاهارو به سارق‌ها میگه و وقتی میرن خونه دو تا بچه خونه بودن بچه‌هارو تو حموم دست پاشون میبندن و هرچی تو خونه مثل طلا ، موبایل بود رو سرقت میکنن در نهایت دستگیر شدن
+
+مراقب باجناق هاتون باشید🐸
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10295
+
+<div align="center"><img src="files/post_10295_tasiyanc_10295.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فووووری /طبق پیامک های ارسال شده رسما جانفداها بزودی باید برن پادگان های نظامی آموزش ببینن تا درصورت حمله زمینی آمریکا اعزام بشن به منطقه
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  اختلال شکن OpenVpn 📶
+
+مناسب برای گیم - دانلود , Ai اینستاگرام 📸 یوتوب 🎥
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+درصورت ارور چند بار بزنید ⭕️
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 10289
+
+<div align="center"><img src="files/post_10289_tasiyanc_10289.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عاشقانه‌ترین عکسی که میتونی با پارتنرت بسازی 💕
+
+Prompt 🤖🤖
+
+Keep faces 100% similar to reference photos A detailed medium close-up, candid portrait photograph of a young, attractive couple in a tender, romantic embrace on a beach. The man, with dark hair and a beard, is on the left, wearing a vintage-style brown t-shirt with beige gothic-style text and graphic prints on the back. He holds the woman close, his arms around her waist. The woman, with long blonde hair emerging from under a black baseball cap worn backwards, is on the right, wearing a dark olive-green coverall. She has bold red lipstick and her eyes are closed as she reaches up with both hands, gently cupping the man’s face, their faces very close for a soft, imminent kiss (a nose-to-nose or soft cheek kiss). The background is a soft-focus, overcast beach scene with gray-blue sea waves and a hazy, indistinct horizon. Natural, diffuse, and gentle lighting. The image is clean and completely devoid of any text, status bars, or watermarks. Canvas: 9:16
+
+
+آموزش استفاده ➡️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 آپدیت جدید اپلیکیشن اندروید MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: giftcodeir
+
+🤝 اسپانسر رسمی جام جهانی
+🔵 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 آموزش ثبت نام و واریز
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را فارسی کنید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10287
+
+<div align="center"><img src="files/post_10287_tasiyanc_10287.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی های جذاب امروز فوتبال جهان رو با آپشن های تخصصی در MelBet پیشبینی کنید! ⚽️🔥
+
+✅ تمام بازی ها در سایت Melbet ارائه شده و بالای 3000 آپشن دارند. از برد و باخت بگیر تا کرنر و شوت و آفساید و خطا و… حتی روی VAR و کادر درمان بازی هم شرط میتونید ببندید!
+
+┅━━━━━━━━━━━━┅
+
+
+💵 امکان شارژ حساب با انواع ارز دیجیتال
+🔢 با واریز اول در ملبت 2 برابر شارژ بشید
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+↗️حرفه ای، مطمئن و در کلاس جهانی پیش بینی کنید!
+
+🔔 آموزش ثبت نام و واریز
+
+💛 لینک جدید و بدون فیلتر ملبت (فیلترشکن خاموش)⬇️
+🌐 www.Melbet.com
+🌐 www.Melbet.com
+</div>
+
+## tasiyanc — post 10286
+
+<div align="center"><video src="files/post_10286_tasiyanc_10286.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10286_tasiyanc_10286.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پرامپت گنگ براتون آوردیم 
+😎
+
+Prompt 
+🤖
+🤖
+
+«BatMan»
+
+CREATE A BLACK-AND-WHITE CINEMATIC, MEDIUM CLOSE-UP. IN THE FOREGROUND, DOMINATING THE LEFT SIDE OF THE FRAME, IS THE BACK OF A RIGID, MATTE BLACK HIGH-TECH SUIT FEATURING BROAD SHOULDER PLATES AND A SLEEK, ANGULAR SCULPTED COWL WITH SHARP POINTED EARS. OVER THE SHOULDER OF THE SUIT, POSITIONED IN THE RIGHT MIDGROUND, IS A HANDSOME YOUNG MAN LOOKING AT THE SUIT. HE IS WEARING A DARK PINSTRIPE SUIT JACKET OVER A FINELY STRIPED DRESS SHIRT AND DARK TIE. HIS EXPRESSION IS SERIOUS, CONTEMPLATIVE, AND STOIC. THE SETTING IS A MINIMALIST, MODERN ROOM FEATURING A BRIGHT, LUMINOUS GRID CEILING AND DARK, OUT-OF-FOCUS BACKGROUND WALLS WITH A SUBTLE VERTICAL METALLIC ELEMENT. SOFT, DIFFUSED OVERHEAD LIGHTING FROM THE CEILING PANELS CREATES SCULPTED SHADOWS ON THE MAN'S SHARPLY FOCUSED FACE AND STRIKING EDGE HIGHLIGHTS ALONG THE CONTOURS OF THE DARK SUIT. HIGH CONTRAST GRAYSCALE, FINE FACIAL FEATURES AND CRISP TEXTURES, INTENSE INTROSPECTIVE MOOD. ASPECT RATIO 3:4
+
+«Sport Man »
+
+RAW 35MM FLASH PHOTOGRAPHY, POINT-AND-SHOOT SNAPSHOT AESTHETIC. [SUBJECT: A PERSON MATCHING MY UPLOADED REFERENCE PHOTO] STANDING CONFIDENTLY IN A NOCTURNAL STONE COURTYARD. THE SUBJECT IS WEARING A FITTED BLACK LEATHER JACKET, DARK T-SHIRT, AND DARK DENIM, LEANING CASUALLY AGAINST THE DRIVER'S SIDE OF A SLEEK BLACK PORSCHE 911 GT3 RS WITH A VISIBLE CARBON FIBER HOOD AND MASSIVE REAR WING. THE SUBJECT IS HOLDING THE LEATHER LEAD ROPE OF A MASSIVE, IMPOSING BLACK FRIESIAN HORSE STANDING IMMEDIATELY BEHIND THEM ON THE RIGHT. DIRECT, HARSH ON-CAMERA FLASH ILLUMINATES THE SCENE, CREATING INTENSE SPECULAR HIGHLIGHTS ON THE GLOSSY CAR PAINT AND THE HORSE'S DARK COAT. SHARP, HARD SHADOWS FALL DIRECTLY BEHIND THE SUBJECTS ONTO PALE BEIGE STUCCO WALLS AND STONE ARCHWAYS WITH DARK WOOD DOORS. IRREGULAR COBBLESTONE GROUND. PITCH BLACK, LIGHTLESS NIGHT SKY ABOVE THE WALLS. HIGH CONTRAST, DESATURATED COLORS, DEEP CRUSHED BLACKS IN THE BACKGROUND, HEAVY FILM GRAIN, SLIGHT VIGNETTE, RAW, GRITTY LUXURY LIFESTYLE EDITORIAL, ULTRA-DETAILED. ASPECT RATIO 3:4.
+
+«Smoke Man »
+
+CREATE A SURREAL BLACK-AND-WHITE EDITORIAL POSTER SHOT FROM AN EXTREME LOW ANGLE WITH HEAVY ANALOG GRAIN, HARSH CONTRAST, AND REALISTIC PHOTOGRAPHIC TEXTURE. A YOUNG ATHLETIC MAN STANDS CENTER-RIGHT, AGAINST THE BELLY, WEARING A DISTRESSED DARK TANK TOP, TROUSERS, AND A METAL WATCH. HE CALMLY SMOKES A CIGARETTE WITH BOTH HANDS, THE SMOKE SLOWLY DRIFTING PAST HIS FACE.
+ABOVE HIM, HANG AN UPSIDE-DOWN PALE SUBURBAN HOUSE AGAINST A BLURRED SKY, SURROUNDED BY INVERTED DARK FOLIAGE. ADD A LARGE DIAGONAL BLACK ARCHITECTURAL SILHOUETTE IN THE BOTTOM-RIGHT OF THE BACKGROUND, LEAVING STRONG NEGATIVE SPACE ON THE LEFT.
+IN THE SKY, PLACE A DISTRESSED CRIMSON-MAROON HEADLINE: "ONE LAST SMOKE". RED SHOULD BE THE ONLY COLOR. ADD A FAINT "AI.AKAASH" LOGO/WATERMARK IN A CLEAN MINIMALIST STYLE, PREFERABLY SMALL NEAR THE BOTTOM.
+USE DEEP BLACKS, SILVERY MID-TONES, CINEMATIC DUST TEXTURE, HALFTONE EFFECT, AND IMPERFECT BLUR. MONOCHROME, SURREAL, GRITTY POSTER STYLE. NO REALISM OF HUMAN APPEARANCE.
+IMAGE FORMAT: 3:
+
+آموزش استفاده 
+➡️
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10285
+
+<div align="center"><video src="files/post_10285_tasiyanc_10285.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10285_tasiyanc_10285.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 قوه قضاییه برای رستوران بی‌بی که وایرال شده بود پرونده قضایی تشکیل داد ، پیج اینستاگرام رستوران بسته شد و رستوران پلمپ شد
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10284
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Barcelona 🇪🇸.ovpn
+</div>
+
+## tasiyanc — post 10283
+
+<div align="center"><video src="files/post_10283_tasiyanc_10283.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10283_tasiyanc_10283.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی نامحدود OpenVpn 
+📶
+
+آموزش اتصال 
+
+دانلود برای اندروید
+
+دانلود برای آیفون
+
+مناسب دانلود 
+⬇️ وب‌گردی
+✈️ هوش‌مصنوعی
+🤖 اینستاگرام 
+📸
+
+Location 
+🇪🇸 
+🇪🇸 Catalunya
+
+
+🩸 @Tasiyanc
+</div>
+
+## tasiyanc — post 10280
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅ با گزارش وسیع مردمی و ارائه مدارک آران توسط پلیس بازداشت شد
+</div>
+
+## tasiyanc — post 10272
+
+<div align="center"><video src="files/post_10272_tasiyanc_10272.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10272_tasiyanc_10272.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چطوری میشه انقد حرومزاده باشی؟
+
+🚨 این پسر تیک تاکر حرومزاده به اسم آران‌ به یه دختر بچه ۶ ساله تجاوز کرده طبق چت‌هاش
+
+ماجرا از این قراره که یه دختر بچه ۶ ساله که فامیلشون بود اومد خونشون. بعد این بی همه چیز به دوستاش تو گروه میگه:
+این دختر خیلی منو حشری میکنه، منتظرم خونوادش برن تا بهش تجاوز کنم.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10271
+
+<div align="center"><video src="files/post_10271_tasiyanc_10271.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10271_tasiyanc_10271.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا برای اولین بار منتشر کرد لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران : آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن…
+</div>
+
+## tasiyanc — post 10269
+
+<div align="center"><video src="files/post_10269_tasiyanc_10269.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10269_tasiyanc_10269.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا برای اولین بار منتشر کرد
+لحظه خارج کردن خلبان آمریکایی با نام رمز « براوو » توسط نیروهای کماندو Delta Force از ایران :
+
+آمریکا در این عملیات نجات ۲۱ هواپیما و هلی‌کوپتر را بسوی ایران روانه کرده بود ، خلبان پس از اجکت، به دلیل آسیب‌دیدگی و باز نشدن کامل چتر نجات، با سرعت حدود ۱۶۰ کیلومتر بر ساعت به زمین برخورد کرد و در این حادثه کمر، دست و شانه‌اش شکست که گویا الان حالش خوب هست .
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10268
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10267
+
+<div align="center"><video src="files/post_10267_tasiyanc_10267.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10267_tasiyanc_10267.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ بازی فوق حسااااس استقلال و السد رو با آپشن های تخصصی در MelBet پیشبینی کنید! 
+🔥
+
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+
+🌐 دانلود مستقیم اپلیکیشن اندروید
+
+🤝 اسپانسر رسمی لالیگا
+
+🇮🇷 پشتیبانی از زبان فارسی
+
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌
+✅ Link 🔜 MelBet1.net
+
+✅‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10265
+
+<div align="center"><img src="files/post_10265_tasiyanc_10265.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴شات های جدید عشقتون بانو سیدنی سویینی
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10264
 
@@ -21,339 +330,5 @@ Join Join Join
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 میکس عالی برد شد❤️☑️
 ✔️@Tipster_Mafiaa
-</div>
-
-## tasiyanc — post 10260
-
-<div align="center"><video src="files/post_10260_tasiyanc_10260.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10260_tasiyanc_10260.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نماز خوندن این بانو با بیکینی تو سواحل بدروم ترکیه وایرال شده و صدای مذهبی‌هارو دراورده😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10257
-
-<div align="center"><video src="files/post_10257_tasiyanc_10257.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10257_tasiyanc_10257.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 خبرگزاری فارس :
-احتمالاً تو مهرماه امسال شاهد کنسرت شادمهر عقیلی تو تهران باشیم.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10256
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال 📈 فرم‌های آماری + نکات کلیدی بازی‌های روز 🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی 👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10255
-
-<div align="center"><video src="files/post_10255_tasiyanc_10255.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10255_tasiyanc_10255.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مرجع آنالیز و تحلیل حرفه‌ای فوتبال
-
-📈 فرم‌های آماری + نکات کلیدی بازی‌های روز
-
-🗣 دارای گروه گفتگوی فعال برای همفکری قبل از بازی
-
-👈 وارد شو، تحلیل‌ها رو مقایسه کن و با جمع حرفه‌ای‌ها همفکر باش:
-</div>
-
-## tasiyanc — post 10250
-
-<div align="center"><video src="files/post_10250_tasiyanc_10250.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10250_tasiyanc_10250.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی نامحدود OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون 
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10249
-
-<div align="center"><video src="files/post_10249_tasiyanc_10249.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10249_tasiyanc_10249.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوان مظلوم فلسطینی میاد از سرباز صهیونیستی آدرس بپرسه که اینطوری بیرحمانه به شهادت میرسه
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10247
-
-<div align="center"><video src="files/post_10247_tasiyanc_10247.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10247_tasiyanc_10247.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طلای فیزیکی از هیچ سایت و اپلیکیشنی نخرید !!!!
-
-اپلیکیشن میلی گلد به اونایی که طلای فیزیکی خواستن طلای تقلبی فرستاده!
-
-« اطلاع رسانی کنین به آشناهاتون »
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10246
-
-<div align="center"><video src="files/post_10246_tasiyanc_10246.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10246_tasiyanc_10246.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 4 سال پیش در چنین روزی، مهسا(ژینا) امینی بخاطر حجاب و چند تار مو به قتل رسید.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10245
-
-<div align="center"><video src="files/post_10245_tasiyanc_10245.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10245_tasiyanc_10245.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-استقبال گرم مردم ایرلند از پرزیدنت ترامپ :
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10244
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت‌های سال 97 رو ببینید انگار اصحاب کهف شدیم رسما !
-
-•دلار 5000 تومن
-•طلا گرمی 160هزار
-•سکه 1 میلیون 700هزار
-•مسکن متری 5 میلیون و 600هزار
-•پژو 206 , 35 میلیون
-•پراید 22 میلیون
-•سراتو 105 میلیون
-•برنج 14 هزار
-•گوشت 39700
-•حداقل حقوق 1.200.000 تومان
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10242
-
-<div align="center"><video src="files/post_10242_tasiyanc_10242.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10242_tasiyanc_10242.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-«لاله مرزبان» جایزه بهترین بازیگر زن بخش های افق ونیز رو برنده شد
-در این فستیوال چهره‌هایی مثل « بانو جورجینا & کندال جنر & سیدنی سویینی & دوالیپا » دیده میشوند
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10241
-
-<div align="center"><video src="files/post_10241_tasiyanc_10241.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10241_tasiyanc_10241.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 جدیدترین آپدیت اپلیکیشن Wepari 
-📱
-
-
-✅ امکان شارژ درگاه ریالی کاربران ایران
-
-💖بونوس 100% واریز اول
-
-💖بونوس 100% واریز دوم
-
-💖بونوس 75% | 50% واریز سوم و چهارم
-
-💖بونوس 200% ویژه کازینو
-
-
-🔥کد هدیه برای بونوس ها: wepari200
-
-
-🛡از اپلیکیشن به سادگی و بدون نیاز به فیلترشکن استفاده کنید.
-
-
-🔥 کانال تلگرام وی پاری:
-
-✅ @wepari_irann
-</div>
-
-## tasiyanc — post 10240
-
-<div align="center"><video src="files/post_10240_tasiyanc_10240.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10240_tasiyanc_10240.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👀دنبال سایت معتبر برای شرطبندی می‌گردید
-⁉️
-
-              
-😃
-😃
-😃
-😃                
-
-
-🔥 کمپانی بین المللی Wepari به کاربران ایرانی خدمات میدهد 
-🤝
-
-
-🔥 سایت شماره 1 حال حاضر اروپا
-
-🔥 بازگشت 25% باخت به صورت هفتگی
-
-🔥 پرداخت جوایز سریع کمتر از 3 دقیقه
-
-
-✅ شارژ و برداشت آسان از طریق کارت بانکی فعال است.
-┅━━━━━━━━━━━
-
-
-🎁 کد هدیه ثبت نام: wepari200
-
-💳  آموزش شارژ با کارت بانکی
-
-📱 نصب اپلیکیشن اندروید سایت
-
-🍏 آموزش برای کاربران iOS
-
-
-🌐 لینک ورود به سایت
-👇
-
-🔥 til.ac/PJHVQSm
-
-🔥 til.ac/PJHVQSm
-
-
-🗺برای ورود حتما از فیلترشکن کشورهایی مانند آلمان، کانادا و کشورهای آسیایی استفاده کنید.
-</div>
-
-## tasiyanc — post 10239
-
-<div align="center"><video src="files/post_10239_tasiyanc_10239.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10239_tasiyanc_10239.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 
-📶
-
-آموزش اتصال 
-⛓
-
-دانلود برای اندروید 
-🕹
-
-دانلود برای آیفون
-📱
-
-مناسب دانلود 
-⬇️ وب‌گردی
-✈️ هوش‌مصنوعی
-🤖 اینستاگرام 
-📸
-
-
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 10238
-
-<div align="center"><img src="files/post_10238_tasiyanc_10238.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-جوون ترین دختری که تو آمریکا حکم اعدام گرفته قراره اخر این ماه حکمش اجرا بشه...
-
-جرمش چی بوده؟
-چون فقط فکر میکرده دختری به اسم کالین( مقتول) از دوست پسرش خوشش میاد به وحشتناک ترین شکل ممکن کالین رو به قتل میرسونه و یه تیکه از جمجه‌ش رو به عنوان یادگاری برمیداره...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10236
-
-<div align="center"><video src="files/post_10236_tasiyanc_10236.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10236_tasiyanc_10236.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دخترای مسلمون تو اروپا برای اینکه اونجا به حجابشون گیر ندن رو روسری، کلاه گیس میزارن میرن بیرون 😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👈 چنل: منتشرکننده فرمهای روزانه، تیپهای Over/Under و BTTS بر اساس آمار
-
-👈 گروه: محل تحلیل زنده، لایو تیپ و تبادل تجربه بین اعضا
-</div>
-
-## tasiyanc — post 10234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚽️ دیگه تنهایی و بدون استراتژی فرم نبند!
-دنیای پیش‌بینی فوتبال یعنی «دیتای دقیق» به‌علاوه «همفکری با افراد حرفه‌ای». مجموعه ما هر دو رو برات آماده کرده:
-📢 در کانال ما چه خبره؟
-▫️ فرم‌ها و تیپ‌های روزانه بر اساس آمار (BTTS، Over/Under و لاین‌های ارزشمند)
-▫️ تحلیل ترکیب، مصدومان و انگیزه تیم‌ها قبل از بازی
-▫️ آموزش مدیریت سرمایه برای سوددهی بلندمدت
-💬 در گروه (سوپرگپ) چه خبره؟
-▫️ تحلیل زنده بازی‌ها و لایو تیپ در حین تماشای فوتبال
-▫️ تبادل نظر و اشتراک فرم‌ها بین اعضای باسابقه
-▫️ پاسخ به سوالات و استراتژی‌های پیش‌بینی
-━━━━━━━━━━━━━━━
-📌 همین حالا به خانواده ما اضافه شو:
-📢 ورود به کانال تحلیل و فرم‌ها: https://t.me/+-CuEyZrRcfY3NjQ8
-💬 ورود به گروه گفتگو و همفکری: https://t.me/+sOyOgtoSByMzZjg0
 </div>
 

@@ -1,8 +1,288 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 11166
+
+<div align="center"><video src="files/post_11166_tasiyanc_11166.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11166_tasiyanc_11166.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اینجا تهرانه ، قصال خونه رو به سینما تغییر کاربری دادن
+
+پی‌نوشت: فک کن بری اینجا سری فیلم‌های احضار رو ببینی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11165
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11164
+
+<div align="center"><video src="files/post_11164_tasiyanc_11164.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11164_tasiyanc_11164.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰14r
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰13
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!! کی کانفیگ فروشی نداشت؟ تاسیان!!! کی هواتونو همیشه خواهد داشت ؟ تاسیان ! فردا نت قطع شد کی پیشته ؟ تاسیان!! منتظر حمایتتون هستیم! چون کم نزاشتیم آیدی کانالو بفرستید به دوستاتون. بنظرم جای این حرفا نبود موقع قطعی‌ها…
+</div>
+
+## tasiyanc — post 11160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!!
+
+کی کانفیگ فروشی نداشت؟ تاسیان!!!
+
+کی هواتونو همیشه خواهد داشت ؟ تاسیان !
+
+فردا نت قطع شد کی پیشته ؟ تاسیان!!
+
+منتظر حمایتتون هستیم! چون کم نزاشتیم
+
+آیدی کانالو بفرستید به دوستاتون.
+بنظرم جای این حرفا نبود موقع قطعی‌ها خودمون ثابت کردیم !!!!
+@Tasiyanc
+</div>
+
+## tasiyanc — post 11159
+
+<div align="center"><img src="files/post_11159_tasiyanc_11159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ایده جالب ایلان ماسک برای اپلیکیشن پرداخت بدهی‌ها توسط ثروتمندان
+
+
+ایلان ماسک پیشنهاد ساخت اپلیکیشنی را مطرح کرده است که در آن افراد از سراسر جهان بتوانند قبض‌ها و بدهی‌های خود را ثبت کنند و افراد ثروتمندِ علاقه‌مند به کار خیر، امکان پرداخت آن بدهی‌ها را داشته باشند. این ایده در صورت اجرایی‌شدن می‌تواند مدلی مستقیم‌تر و شفاف‌تر برای کمک مالی ایجاد کند؛ هرچند موفقیت آن به سازوکار اعتماد، احراز هویت، حفظ حریم خصوصی و جلوگیری از سوءاستفاده وابسته خواهد بود.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11157
+
+<div align="center"><img src="files/post_11157_tasiyanc_11157.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g13
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11156
+
+<div align="center"><video src="files/post_11156_tasiyanc_11156.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11156_tasiyanc_11156.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بانو ایوانا ماریانا هستن ، آرایشگر مکزیکی، با مهارت و حرفه‌ای بودنش حسابی معروف شده؛
+
+تا جایی که پسرها از سراسر دنیا فقط برای کوتاه کردن موهاشون پیشش بلیط هواپیما می‌گیرن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11155
+
+<div align="center"><img src="files/post_11155_tasiyanc_11155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سوراج چاوان که تو هند بهش لقب جاستین بیبر هند رو دادن به عنوان خوشتیپ ترین و جذاب ترین مرد هند تو سال 2026 انتخاب شد:
+
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11154
+
+<div align="center"><img src="files/post_11154_tasiyanc_11154.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵از پرچم جدید آمریکا بعد از تغییر رژیم در این کشور رونمایی شد :
+
+مسلمانانی که در انتخابات میان دوره‌ای آمریکا، پیروز شدن:
+
+۱- عبدال السید
+۲- رشیده طلیب
+۳- ایلهان عمر
+۴- آدام حماوی
+۵- داریالیزا آویلا شوالیه
+۶- عایشه وهاب
+۷- آبر کاواس
+۸- نبیله سید
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11153
+
+<div align="center"><img src="files/post_11153_tasiyanc_11153.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بلوای سیاسی در واشنگتن؛ دموکرات‌ها کنگره را قبضه کردند
+
+دموکرات‌ها در انتخابات آمریکا 🇺🇸 هم مجلس نمایندگان و هم سنا را گرفتند و کنترل کل کنگره را به دست آوردند؛ حتی در ایالت‌های جمهوری‌خواه مثل تگزاس و کانزاس هم پیروز شدند.
+
+مهم » این بزرگ‌ترین ضربه به ترامپ است؛ تصویب قوانین و بودجه و تأیید کابینه و قضات برایش سخت‌تر می‌شود. مهم‌تر برای ایران: تأمین بودجه برای ادامه تنش/جنگ با ایران خیلی دشوارتر می‌شود، هرچند لزوماً به معنای پایان تنش نیست.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11151
+
+<div align="center"><video src="files/post_11151_tasiyanc_11151.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11151_tasiyanc_11151.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه همه چی برعکس شده، این پسر فکر می‌کرد رابطه‌شون با دختره جدیه. درباره پلن رابطه حرف زده بودن. اما، یه شب دختر باهاش سکس داشته یا همون «وان نایت» و بعد ترکش کرده.
+پسر الان درگیر افسردگی شده 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r13
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11149
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+
+🆕 معرفی سایت و اپلیکیشن مل‌بت
+✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11148
+
+<div align="center"><video src="files/post_11148_tasiyanc_11148.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11148_tasiyanc_11148.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 کنگره به دموکرات‌ها رسید , شکست جمهوری‌خواهان (حزب ترامپ) در انتخابات میان‌دوره‌ای
+
+•بر اساس پیش‌بینی رسانه‌های آمریکایی، دموکرات‌ها در انتخابات میان‌دوره‌ای ۲۰۲۶ هم مجلس نمایندگان و هم سنا را فتح کرده‌اند. این یک شکست سنگین برای ترامپ در دو سال پایانی دوره‌اش محسوب می‌شود و قدرت قانون‌گذاری و نظارت بر کاخ سفید را به طرف مخالف منتقل می‌کند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11147
 
@@ -23,260 +303,5 @@
 فرصت محدود رفقا زود عضو شین 🆗
 اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
 https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11145
-
-<div align="center"><img src="files/post_11145_tasiyanc_11145.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰12
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11144
-
-<div align="center"><video src="files/post_11144_tasiyanc_11144.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11144_tasiyanc_11144.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵برخورد مرگبار در مستطیل سبز؛ فوتبالیست ۳۰ ساله جان باخت!
-
-خسوس دِ میگل، مهاجم ۳۰ ساله باشگاه تنریف اسپانیا، در جریان دیدار مقابل اف‌سی آندورا (FC Andorra) پس از برخورد شدید با خسوس اوونو (Jesús Owono)، دروازه‌بان تیم آندورا که با لگد به قفسه سینه خسوس ضربه ای وارد کرد دچار ایست قلبی شد.
-این برخورد در دقایق پایانی مسابقه و هنگام تلاش دروازه‌بان برای دفع توپ رخ داد. اوونو با کارت قرمز مستقیم اخراج شد و بازی نیمه‌تمام ماند.
-دِ میگل پس از انتقال به بیمارستان و با وجود تلاش کادر پزشکی، درگذشت.
-فوتبال امروز یکی از تلخ‌ترین روزهای خود را تجربه کرد.
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11143
-
-<div align="center"><img src="files/post_11143_tasiyanc_11143.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ترند جدید عاشقانه بین پسرا حسابی وایرال شده!
-
-پسرا با کمک بازوهاشون شکل قلب درست می‌کنن و اینجوری عشقشون رو به دوست‌دختر یا کسی که دوستش دارن ابراز می‌کنن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11142
-
-<div align="center"><video src="files/post_11142_tasiyanc_11142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11142_tasiyanc_11142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حمیده راسخی، بلاگر ایرانی ساکن خارج از کشور، تمامی ویدیو هایی که توشون اکثرا میمی های ۸۵ش رو به نمایش میزاشت رو از پیجش پاک کرد و با انتشار یک ویدیو اعلام کرد که به ایران اومده، توبه کرده ...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد بارسلونا⚽️
-+ برد منچستریونایتد⚽️
-
-برنده 3.000.000 میلیون شوید ✔
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11140
-
-<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
-</div>
-
-## tasiyanc — post 11139
-
-<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11138
-
-<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
-ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11137
-
-<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11136
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔖 اپلیکیشن MelBet ✅
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11135
-
-<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 🔗
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11133
-
-<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
-
-یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
-این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
-</div>
-
-## tasiyanc — post 11131
-
-<div align="center"><img src="files/post_11131_tasiyanc_11131.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+R2nwb5FUo0RjYTVk
-https://t.me/+R2nwb5FUo0RjYTVk
-
-🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
-</div>
-
-## tasiyanc — post 11130
-
-<div align="center"><img src="files/post_11130_tasiyanc_11130.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری توییت فرماندهی تفنگداران ویژه دریایی ارتش ایالات متحده
-«آماده اعزام»
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام و درود رفقا ، عزیزای دلم «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد» مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️ نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید…
-</div>
-
-## tasiyanc — post 11127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام و درود رفقا ، عزیزای دلم
-«درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد»
-مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️
-نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید .
 </div>
 

@@ -1,8 +1,247 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 10836
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10835
+
+<div align="center"><img src="files/post_10835_tasiyanc_10835.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰21
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10834
+
+<div align="center"><video src="files/post_10834_tasiyanc_10834.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10834_tasiyanc_10834.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدئوی وایرال شده از‌ مراسم جشن فارغ التحصیلی دانشگاه چمران اهواز
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10833
+
+<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10830
+
+<div align="center"><img src="files/post_10830_tasiyanc_10830.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰
+
+https://t.me/+zhWRXOtmyEE5ZjVk
+https://t.me/+zhWRXOtmyEE5ZjVk
+
+🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
+
+## tasiyanc — post 10829
+
+<div align="center"><video src="files/post_10829_tasiyanc_10829.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10829_tasiyanc_10829.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵جدیدا هرکی میخواد وایرال شه دسـت به دامان فـوتــ‌فتـیش‌ها یا کون فـتیشا میشه؛ از پا ، رون سفید ، باسن برای دیدن شدن استفاده می‌کنه ، مثل این کلوچه فروشی رشتی که تونسته ویو میلیونی بگیره :
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10828
+
+<div align="center"><video src="files/post_10828_tasiyanc_10828.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10828_tasiyanc_10828.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پارت سوم / ویدیو های وایرال شده از حـال و هـوای ویـلاهای شـمـال در پاییـز
+
+📍خزرشـهر
+
+اگر اینا زندگی میکنن قطعا زندگی مارو می‌کنه .
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. R21🅰
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 10826
+
+<div align="center"><img src="files/post_10826_tasiyanc_10826.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حساااااس منچستر یونایتد و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌✅ Link 🔜 MelBet1.net
+✅‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 10825
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجموعه 30 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها 🛜🛜🛜🛜
+
+با وارد کردن این فایل داخل نپستر 30 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+
+آموزش اتصال :
+https://t.me/TasiyanVpn/24
+برنامه اندروید:
+https://play.google.com/store/apps/details?id=com.napsternetlabs.napsternetv
+برنامه آیفون :
+https://apps.apple.com/us/app/npv-tunnel/id162946547
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10824
+
+<div align="center"><video src="files/post_10824_tasiyanc_10824.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10824_tasiyanc_10824.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده یه پیج اینستاگرامی که تو حوزه آرایشگری فعالیت داره، اخیرا ویدیوهایی از دخترهای جوان منتشر میکنه که به خاطر مشکل مالی مجبور شدن موهاشون رو کوتاه و بفروشن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10823
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂 💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵 ⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
+
+## tasiyanc — post 10822
+
+<div align="center"><img src="files/post_10822_tasiyanc_10822.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰20
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10821
+
+<div align="center"><img src="files/post_10821_tasiyanc_10821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵قتل ناموسی این‌بار در قشم
+
+یه دختر ۲۸ ساله به اسم مریم یارمحمدی توی قشم زندگی می‌کرده که!!!
+شوهر چند مدتی بود بهش مشکوک میشه و به برادر زنش ماجرارو میگه که ، برادر زن میگه نه همچین چیزی ممکن نیست ، بعد مدتی به طرف ثابت میشه
+بعد اینکه مطمئن شدن باهم همدست میشن سینه ها و واژن زن رو تیکه تیکه میکنن با چاقو و میزارن تا بمیره
+هردو متهم دستگیر شدن ولی طبق گزارشات برادر مقتول تو کمتر از ۶ ساعت آزاد شده !!!!
+جسد بی‌جان مریم روز پنج‌شنبه هفته پیش به خاک سپرده شد
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10820
+
+<div align="center"><img src="files/post_10820_tasiyanc_10820.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 برداشت ریالی از صرافی های (نوبیتکس، بیت‌پین، ارزاینجا، تترلند و رمزینکس ) متوقف شده؛
+
+خبرگزاری فارس اعلام کرد از ساعت ۱۶ امروز، خدمات بانکی و واریز و برداشت وجه برای ۵ پلتفرم رمزارزی محدود شده است.
+نوبیتکس اعلام کرده این تصمیم به خاطر خودداری صرافی‌ها از ارائه اطلاعات کاربران و دفاع از حریم خصوصی آن‌ها اتخاذ شده است.
+⚡@Tasiyanc
+</div>
+
+## tasiyanc — post 10819
+
+<div align="center"><img src="files/post_10819_tasiyanc_10819.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آمار جدید رده‌بندی بهترین شهرهای جهان تهران در جایگاه 459
+
+از اخر اول شدیم 🗿
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10818
 
@@ -20,258 +259,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g20 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10816
-
-<div align="center"><video src="files/post_10816_tasiyanc_10816.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10816_tasiyanc_10816.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-🅰g20
-https://t.me/+A6R70wBCKApkYTRk
-https://t.me/+A6R70wBCKApkYTRk
-
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10815
-
-<div align="center"><video src="files/post_10815_tasiyanc_10815.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10815_tasiyanc_10815.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 تو تجمعات شبانه دیشبِ تبریز؛
-یه دختربچه تو 20 ثانیه یه کلاشینکف رو باز و سرهم کرد که تو رسانه‌های ترکیه هم مورد توجه قرار گرفته
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10814
-
-<div align="center"><video src="files/post_10814_tasiyanc_10814.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10814_tasiyanc_10814.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا کانفیگ OPEN VPN 🌟
-
-سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
-
-دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10810
-
-<div align="center"><video src="files/post_10810_tasiyanc_10810.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10810_tasiyanc_10810.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه خانومی زنگ زده که شوهرم ۲ ساله سکته مغزی کرده و توانایی جنسی نداره، آیا انصافه من با مردی دیگه رابطه نداشته باشم؟! و پاسخ شنیدنیِ دکتر هلاکویی...
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10809
-
-<div align="center"><img src="files/post_10809_tasiyanc_10809.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این دختر که می‌بينيد اولین زنی بود که یه حرمسرای مردونه داشت.
-
-پرنسس شانیین توی قرن پنجم به برادرش اعتراض کرد و گفت چطوری تو یه عالمه زن داری و من فقط یک شوهر، برادرش امپراطور چیانفی هم دید منطقیه و حدود ۳۰ مرد جوان خوشگل رو برای او فراهم کرد.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10808
-
-<div align="center"><video src="files/post_10808_tasiyanc_10808.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10808_tasiyanc_10808.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده یه راننده تاکسی 70 ساله و معلم بازنشسته دو تا توریست لهستانی سوار ماشینش میشن 70 هزار یورو معادل 21 میلیارد تومان تو ماشینش جا میزارن ، راننده تاکسی تمام پول توریست هارو می‌بره سفارت و تحویلشون میده
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂 
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵 
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
-</div>
-
-## tasiyanc — post 10806
-
-<div align="center"><video src="files/post_10806_tasiyanc_10806.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10806_tasiyanc_10806.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
-😂
-
-
-💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
-💵
-💵
-
-
-⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی
-✅
-
-🅰19
-
-💎ادرس عضویت کانال vip:
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-
-🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10805
-
-<div align="center"><video src="files/post_10805_tasiyanc_10805.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10805_tasiyanc_10805.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم پشم افکن از برخورد سوپر نفتکش با مین دریایی سپاه در تنگه هرمز امروز
-
-سپاه اعلام کرده این سومین ابرنفتکش در دو روزه گذشته هست که به مین دریایی برخورد کرده
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10802
-
-<div align="center"><video src="files/post_10802_tasiyanc_10802.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10802_tasiyanc_10802.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون فرررر بخوره ، یه پسر ۳۰ ساله وقتی به نامزدش که یه دختر ۲۶ ساله بوده و بعد دو سال نامزدی قرار داشتن چند ماه دیگه ازدواج کنن مشکوک میشه و تعقیبش میکنه؛
-
-میبینه دختره با یه مرد ۶۰ ساله وارد خونه ای میشن که این پسر داشته برای ازدواجشون اماده میکرده.
-وبعد گشتن وسایل دختر متوجه میشه این دختر همزمان صیغه سه تا مرد میانسال دیگه بوده.
-
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10801
-
-<div align="center"><video src="files/post_10801_tasiyanc_10801.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10801_tasiyanc_10801.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو ‌وایرال شده از تلاش یه موش برای نجات خودش وسط سیل گرگان:
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g19 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10799
-
-<div align="center"><video src="files/post_10799_tasiyanc_10799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10799_tasiyanc_10799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-🅰g19
-https://t.me/+A6R70wBCKApkYTRk
-https://t.me/+A6R70wBCKApkYTRk
-
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10798
-
-<div align="center"><img src="files/post_10798_tasiyanc_10798.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مثل اینکه بانو جنیفر لوپز، ۵۷ ساله، تو ازدواجش با بن افلک یه بند تو قرار داد ازدواجش داشته اونم این بوده که «حداقل ۴ روز در هفته رابطه جنسی داشته باشن»
-
-بن افلک هم بعد اینکه دید داره کمر نابود میشه فرار رو بر قرار ترجیح داد....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10797
-
-<div align="center"><video src="files/post_10797_tasiyanc_10797.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10797_tasiyanc_10797.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال شده از یک مدرسه پسرونه که معلم داره درس میده و دانش آموزان دور هم جمع شدن کله‌پاچه میزنن :
-
-
-💋 @Tasiyanc
 </div>
 

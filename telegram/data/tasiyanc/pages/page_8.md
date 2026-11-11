@@ -1,8 +1,250 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/20 11:00
+📅 آخرین بروزرسانی: 1405/08/21 02:06
 
 ---
+
+## tasiyanc — post 11124
+
+<div align="center"><img src="files/post_11124_tasiyanc_11124.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جنایت هولناک در ارومیه؛ مانی زینالی پسر ۱۹ ساله به قتل رسید
+
+مانی دو روز پیش برای تفریح با دوستانش از خانه خارج شده بود که قربانی یک حادثه خشونت‌بار شد.
+گفته می‌شود دو مرد او را به خارج شهر برده‌اند و پس از مقاومت مانی در برابر تعرض، به او حمله کرده‌اند. مانی حتی موفق شده بود برای درخواست کمک با مادرش تماس بگیرد، اما مهاجمان دوباره به او دسترسی پیدا کردند و در نهایت جانش را گرفتند.
+حالا یک خانواده داغدار شده و یک مادر باید با جای خالی فرزند ۱۹ ساله‌اش زندگی کند...
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11123
+
+<div align="center"><video src="files/post_11123_tasiyanc_11123.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11123_tasiyanc_11123.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال‌شده احساسی از لحظه تولد یک نوزاد !
+
+نوزادی که هنوز چشم به دنیا باز نکرده، اما اولین واکنشش به ورود به این دنیا گریه است...
+انگار از همان لحظه اول فهمیده قرار نیست زندگی همیشه به کام آدم باشد؛
+گاهی اولین صدای ما در این دنیا، گریه‌ای برای تمام سختی‌های پیش روست...
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11122
+
+<div align="center"><img src="files/post_11122_tasiyanc_11122.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵خراطیان؛ تحلیلگر نزدیک به حکومت :
+
+وقتی تاکر کارلسون «مجری مشهور نزدیک به ترامپ» میگه میخوان به ایران حمله اتمی کنن و «کوه کلنگ» رو با سلاح هسته ای بزن؛
+یعنی واقعا هدفشون همینه و اینکار رو میکنن چون همین آدم ده روز قبل از جنگ ۱۲ روزه گفت اسرائیل به زودی به ایران حمله میکنه ولی کسی جدی نگرفت اون از پشت پرده ها مطلعه....
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11120
+
+<div align="center"><img src="files/post_11120_tasiyanc_11120.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰g11
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11119
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سقوط هولناک جت شخصی در نزدیکی اقامتگاه ترامپ؛ 9 نفر پودر شدند!
+
+یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11118
+
+<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وینیسیوس هم بدجوری ضایع شد!
+
+وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11116
+
+<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
+از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11114
+
+<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چالش جدید وایرال شده دخترای دبیرستانی
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11113
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r11
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11112
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💛 هنوز توی MelBet با این همه آپشن خفن و ضرایب فوق العاده ثبتنام نکردی ⁉️
+
+بعد میاید سوال میکنید کدوم سایت معتبره ❗️
+
+👀 اگه میخواید توی شرطبندی موفق باشید و درآمد کسب کنید در اولین قدم باید سایتی با آپشن های بی نظیر و ضرایب استاندارد و امنیت مالی بالا داشته باشید ✔️
+
+🎚️ همین حالا از طریق لینک زیر ثبتنام کنید و وارد دنیای جدیدی از شرطبندی بشید 🆕
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+✅ معرفی سایت و اپلیکیشن مل‌بت
+💛 ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11111
+
+## tasiyanc — post 11110
+
+<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
+
+امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
+
+توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11109
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💬 ترکیب‌ها، آمار و فرم‌های پیشنهادی رو قبل بازی با هم بررسی می‌کنیم. برای همفکری و تبادل نظر، وارد گروه شو:
+
+🔗 [ورود به گروه]
+https://t.me/+M_YAiGu22l05YzM0
+
+برای دریافت فرم‌های روزانه، وارد کانال VIP شو.
+</div>
+
+## tasiyanc — post 11108
+
+<div align="center"><video src="files/post_11108_tasiyanc_11108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11108_tasiyanc_11108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 چرا «تیپستر پرشین»؟
+آنالیز دقیق و منطقی: بررسی آماری، فرم اخیر تیم‌ها، وضعیت مصدومیت‌ها و اخبار پشت پرده مسابقات (از دیدارهای ملی و جام جهانی تا جذاب‌ترین لیگ‌ها و دوستانه باشگاهی).
+فرم‌های پیشنهادی با ارزش بالا (Value Bets): معرفی گزینه‌های هوشمندانه با بالاترین ضریب اطمینان.
+بدون هیجان کاذب: پیشنهادهای کاملاً اکشن‌پذیر، اصولی و مدیریت‌شده برای سرمایه‌گذاری امن.
+💬 فقط یک کانال نیستیم؛ یک خانواده‌ایم!
+با عضویت در گروه همفکری اختصاصی تیپستر پرشین، در کنار سایر تحلیل‌گران و علاقه‌مندان به پیش‌بینی، نظرات‌تان را به اشتراک بگذارید، از تبادل نظرها استفاده کنید و بهترین فرم‌های روز را با هم بچینید.
+🚀 همین امروز به جمع حرفه‌ای‌ها بپیوندید و بازی را به نفع خودتان تمام کنید!🅰10
+👉 [لینک ورود به کانال تلگرام / لینک گروه همفکری]
+</div>
+
+## tasiyanc — post 11107
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨قیمت‌های پشم ریزون جدید موتورسیکلت شرکت کویر که برای خرید ارزون‌ترین مدلش باید ۳۰ ماه کار کنه یه ایرانی
+
+ارزون‌ترین مدل همون هندای خودمون 428 میلیون تومان !!!!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11106
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد رئال مادرید ⚽️
++ گل زدن لیورپول⚽️+ آرسنال ⚽️
+
+برنده 2.000.000 میلیون شوید ✔
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11105
+
+<div align="center"><img src="files/post_11105_tasiyanc_11105.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدار فوق حساااااس لیورپول⚽️و آرسنال ⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g9
+</div>
 
 ## tasiyanc — post 11104
 
@@ -26,314 +268,5 @@
 طباطبایی، مدیرعامل دیجی‌کالا، ادعای نگران‌کننده‌ای مطرح کرده و گفته میزان تخلیه چشم در کشور ۱۰ برابر شده؛ به گفته او، استفاده از مداد چشم‌های تقلبی و فاسد موجود در بازار می‌تونه باعث عفونت‌های شدید چشمی و در موارد حاد، تخلیه چشم بشه!
 ⚠️ موقع خرید لوازم آرایشی، سلامتتون رو فدای قیمت پایین نکنید. هر محصول ارزونی ارزش خرید نداره!
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11102
-
-<div align="center"><video src="files/post_11102_tasiyanc_11102.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11102_tasiyanc_11102.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو جدید انفجار هولناک در خیابان فردوسی تهران؛ که مردم در حال رفت آمد بودن
-
-ویدیویی از لحظه انفجار در جریان جنگ ۴۰ روزه منتشر شده که شدت حادثه و حضور مردم در خیابان رو به تصویر می‌کشه.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11101
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r10🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11100
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ خیلیا نمیدونن که اگه ثبت‌نامشون رو با لینک زیر انجام بدن... ⁉️
-
-💥 بونوس خوش‌آمد گویی تا %220 بیشتر میگیرن!
-فقط کافیه به لینک زیر مراجعه کنید و وارد ملبت بشید و به راحتی ثبتنام کنید! 👌
-
-🌐 لینک بدون فیلتر سایت معتبر ملبت 👇
-🌐 www.MelBet1.com
-
-🎁 بعد از ثبتنام، وارد حسابت شو و توی بخش "بونوس‌ها" فعالش کن 🎚️
-
-نکته: فقط این هفته فعاله، پس از دستش نده 🙂
-
-🎁 کد هدیه 100 دلاری فراموش نشه: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11099
-
-<div align="center"><video src="files/post_11099_tasiyanc_11099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11099_tasiyanc_11099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه نفر رفته تو تجمعات حکومتیا و ازشون می پرسه به نظرتون اگه کوروش کبیر بین مردم بود، چی میگفت بهشون؟!
-
-ـ حالا جواباشون جوالبه:
-به نظرم رهبر ما از کوروش هم بالاتر بود. کوروش بزرگ اگه الان بود، میگفت که پشت ولایت فقیه و خامنه ای باشید.
-خودش آستین بالا میزد و زیر پرچم جمهوری اسلامی میومد همینطور که ما الان رفتیم زیر یه خم صدام رو گرفتیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11098
-
-<div align="center"><video src="files/post_11098_tasiyanc_11098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11098_tasiyanc_11098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اتفاق عجیب و تلخ در کلمبیا
-
-پسری به نام خولیو برای شاشیدن ازخودروی خانواده پیاده شد.
-چند ثانیه بعد، تریلی به دلیل بریدن ترمز خودروشون رو زیر گرفت و پدر و مادرش همونجا جان باختند. برادر کوچک‌ترش نیز از داخل خودرو بیرون پرت شد و نجات پیدا کرد
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11097
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑 رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀 با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم. 📊 آمار فرم‌های امروز: ▪️ تعداد کل فرم‌ها: ۷ فرم ▪️ فرم‌های برنده: ۶ برد طلایی ✅ ▪️ فرم‌های…
-</div>
-
-## tasiyanc — post 11096
-
-<div align="center"><img src="files/post_11096_tasiyanc_11096.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑
-
-رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀
-با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم.
-
-📊 آمار فرم‌های امروز:
-▪️ تعداد کل فرم‌ها: ۷ فرم
-▪️ فرم‌های برنده: ۶ برد طلایی ✅
-▪️ فرم‌های بازنده: ۱ باخت ❌
-▪️ مبلغ استیک (روی هر فرم): ۱۰,۰۰۰,۰۰۰ تومان
-
-💰 سود خالص امروز:
-✨ ۳۳,۶۱۰,۰۰۰ تومان پول تمیز به جیب رف
-
-تبریک به همه دوستانی که امروز پا به پای ما جلو اومدن و سود کردن. این روند تازه شروع راهه...
-🅰9
-🔥 اگه می‌خوای فرم‌های فردای ما رو از دست ندی و مثل حرفه‌ای‌ها سود کنی همین الان به دوستانت کانال رو معرفی کن و اعلان‌ها رو روشن بذار👇
-
-🔗 @Tipster_Persians
-</div>
-
-## tasiyanc — post 11095
-
-<div align="center"><video src="files/post_11095_tasiyanc_11095.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11095_tasiyanc_11095.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بیلی آیلیش با انتشار تصویری از خودش و دوس‌پسر جدیدش در حال بوسیدن همدیگه، رابطه‌شون رو علنی کرد.
-
-اما حاشیه اصلی به ماجرای عمل کوچک کردن سینه‌هاش برمی‌گرده؛ گفته می‌شه دلیل این تصمیم، خواسته پارتنرش بوده که نمی‌خواسته سینه‌های بیلی در معرض دید مردم و طرفدارها باشه!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11093
-
-<div align="center"><img src="files/post_11093_tasiyanc_11093.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-آریا استارک بازیگر گیم آف ترونز طی یک حرکت کاملا پشم‌افکن اومد توی اینستا عکس و فیلم لختی خودشو و دوستاش رو پست کرد.
-ولی متاسفانه کمی بعد حذف شد،معلوم نیست خودش حذف کرد یا اینستا حذف کرد
-اما خوشبختانه ما ذخیره کردیم نشونتون بدیم 🤣
-مشاهده بدون سانسور ❤️‍🔥 👉
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11092
-
-<div align="center"><video src="files/post_11092_tasiyanc_11092.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11092_tasiyanc_11092.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حقیقت تکان‌دهنده درباره قرص برنج؛ از مرگبارترین قرص‌های دنیا!
-
-با خوردن این قرص مرگ شما حتمی و یکی از دردناکترین مرگ‌ها در جهان خواهد بود !
-با آزاد کردن گاز فسفین، در فاصله زمانی مشخص وقتی که کاملا به هوش هستید و درد رو حس میکنید تک به تک اعضای بدن‌تون مثل معده ، روده ، قلب ، کلیه ، کبد تجزیه میشه و باعث درد و رنج شدیدتون میشه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11091
-
-<div align="center"><video src="files/post_11091_tasiyanc_11091.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11091_tasiyanc_11091.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وقتی مسافرای اسنپ، راننده رو هم به مقصد می‌رسونن!
-این دو رفیق از ساری به مقصد رشت اسنپ می‌گیرن، اما وسط راه راننده خوابش می‌گیره و ماجرا یه‌جور دیگه پیش می‌ره!
-در نهایت این دوتا مسافر مجبور می‌شن خودشون پشت فرمون بشینن و راننده رو از ساری تا رشت برسونن!
-ایرانی جماعت واقعاً از هر موقعیتی یه خاطره می‌سازه!
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11090
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 
-🥇
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد بایرن مونیخ 
-⚽️
-+ گلزنی میلان
-⚽️و اینتر 
-⚽️
-
-برنده 2.000.000 میلیون شوید 
-🔹
-
-
-✍️ ورود به کانال اطلاع رسانی وی پاری 
-✈️
-</div>
-
-## tasiyanc — post 11089
-
-<div align="center"><video src="files/post_11089_tasiyanc_11089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11089_tasiyanc_11089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دربی فوق حساااااس میلان
-⚽️و اینتر 
-⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 
-🔥
-
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید
-🎁
-
-
-🔥شنبه بونوس 100%
-
-🔥 دوشنبه بونوس 50%
-
-
-🤖دانلود اپلیکیشن بدون فیلتر 
-🚀
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
-💸🅰g9
-</div>
-
-## tasiyanc — post 11088
-
-<div align="center"><img src="files/post_11088_tasiyanc_11088.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بیانیه جدید و مهم سیدمجتبی خامنه‌ای🇮🇷:
-
-هر لحظه آمادگی کامل رو برای جنگ داریم، به محض شروع جنگ، پاسخ کوبنده‌ای خواهیم داد.
-این سری بدون هیچ محدودیت جغرافیایی پاسخ خواهیم داد! (اشاره به موشکای قاره پیما!)
-ایندفعه اگه آمریکا و اسرائیل دست به ترور بزنه، دیگه پایان جنگ دست خودشون نیست و ولشون نمی‌کنیم.
-در جنگ بعدی دارایی‌های مادی و غیرمادی آمریکا رو مورد حمله قرار میدیم!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11087
-
-<div align="center"><video src="files/post_11087_tasiyanc_11087.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11087_tasiyanc_11087.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کانال 14 اسرائیل🇮🇱: همه تو بالاترین سطح آماده‌باش هستن و خودشون رو برای 4 نوامبر (۱۳ آبان)، یعنی روز بعد از انتخابات میان‌دوره‌ای آمریکا، آماده می‌کنن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11085
-
-<div align="center"><video src="files/post_11085_tasiyanc_11085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11085_tasiyanc_11085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز 31 October، روز هالووینه! 🎃
-
-هالووین یکی از جشن‌های قدیمی و محبوب جهانه که هر سال در شب ۳۱ اکتبر برگزار می‌شه. مردم با لباس‌های ترسناک و عجیب، ماسک‌های خاص و تزئین کدوحلوایی، این شب رو جشن می‌گیرن.
-از رسم‌های معروفش هم خونه‌های ترسناک، قصه‌های وحشتناک و جمله معروف «شیرینی یا شیطنت؟» (Trick or Treat) هست!
-پی‌نوشت: چند تا ویدیو وایرال شده از هالووین تهران در ۲۴ ساعت گذشته 🎃
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11084
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11083
-
-<div align="center"><img src="files/post_11083_tasiyanc_11083.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوق حسااااس بایرن مونیخ و دورتموند رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
 </div>
 
