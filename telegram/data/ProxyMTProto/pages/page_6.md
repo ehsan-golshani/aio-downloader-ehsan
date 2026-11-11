@@ -1,8 +1,29 @@
 # آرشیو کانال ProxyMTProto - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52888
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd920e6f73e0bff548ad5cced411ae044d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52887
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: — YOUR PROXY HERE —
+Port: 443
+Secret: reserve your spot ↓
+@ProxyMTProto
+
+👆 This is where your proxy could sit — a dedicated post at the time you pick.
+🎁 First slot 50% off.
+</div>
 
 ## ProxyMTProto — post 52886
 
@@ -158,24 +179,6 @@ Secret: ddbc74fd552716633770fb4dd765c1ef7f
 </div>
 
 ## ProxyMTProto — post 52868
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52867
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdn3.badwinkvn.site
-Port: 443
-Secret: ddb01bf1b45304d19a89ab0346c50649c4
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52866
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Unknown

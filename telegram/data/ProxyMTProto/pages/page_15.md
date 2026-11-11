@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52707
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52706
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: neka57.mossharbor.xyz
+Port: 443
+Secret: eefd9a9e2ac2851ddc327fe5971e25a87d6e656b6135372e6d6f7373686172626f722e78797a
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52705
 
@@ -163,24 +181,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: ir.strawberrybarn.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52687
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tgwv1.badwin.win
-Port: 443
-Secret: ddf3f727407f6339621be00cc9b393e4c0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52686
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: haji.estabonita.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

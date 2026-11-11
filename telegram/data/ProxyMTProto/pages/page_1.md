@@ -1,8 +1,29 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52988
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: — YOUR PROXY HERE —
+Port: 443
+Secret: reserve your spot ↓
+@ProxyMTProto
+
+👆 This is where your proxy could sit — a dedicated post at the time you pick.
+🎁 First slot 50% off.
+</div>
+
+## ProxyMTProto — post 52987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: warp.webproxy.lol
+Port: 443
+Secret: eecdd352e63c109299dc978b4e94fc4897776172702e77656270726f78792e6c6f6c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52986
 
@@ -163,24 +184,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: Unknown
 Port: 443
 Secret: ee1111222233334444555566667777888874342e6d79726b612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.227.250
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: turbo.webproxy.lol
-Port: 443
-Secret: ee51fa3aadf3d9849a914784a8de1ff7e0747572626f2e77656270726f78792e6c6f6c
 @ProxyMTProto
 </div>
 

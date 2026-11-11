@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 207
 
-📅 آخرین بروزرسانی: 1405/08/19 23:43
+📅 آخرین بروزرسانی: 1405/08/20 04:21
 
 ---
+
+## tasiyanc — post 5494
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دانلودی چیزی داری بزنید
+</div>
+
+## tasiyanc — post 5493
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ع کانفیگای ک گذاشتیم پینگ بگیرید 😁✅
+</div>
 
 ## tasiyanc — post 5492
 

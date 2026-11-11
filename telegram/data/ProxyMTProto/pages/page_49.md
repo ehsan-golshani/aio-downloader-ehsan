@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 49
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: nov.webvirt.cloud
+Port: 443
+Secret: dd2cb152167b45c9a010c8109fef2d8fd6
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52025
 
@@ -163,24 +181,6 @@ Secret: ee94989d74ad055391384d92c3c773c8d264726976652e676f6f676c652e636f6d
 Server: 77.42.56.66
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.topproxt.asia
-Port: 443
-Secret: dd535832419a84f29b6e2c00e20687f9d9
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

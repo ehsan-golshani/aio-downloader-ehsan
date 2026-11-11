@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52827
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dns.speed-benz.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52826
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: tolera44.copperwren.click
+Port: 8443
+Secret: ee24c8636b7e946779a023ee708370719b64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52825
 
@@ -161,28 +179,6 @@ Secret: ee05cf8e164f926f4a664b2404d276a1d670726f78792e6e697a79612e636c7562
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: darya.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52807
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 Got a working proxy? Share it 🚀
-Есть рабочий прокси? Поделись 🚀
-
-Start @SProxyRobot, send it in — we’ll test & post it for everyone.
-Запусти @SProxyRobot, отправь — проверим и выложим для всех.
-
-⚡ New time slots are now open for the next days, grab yours before they fill up!
-⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
-</div>
-
-## ProxyMTProto — post 52806
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto

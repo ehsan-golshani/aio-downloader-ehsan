@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: boost.webproxy.lol
+Port: 443
+Secret: ee61a214279f303f07c536ce7a8228e4c5626f6f73742e77656270726f78792e6c6f6c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52907
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52906
 
@@ -164,26 +182,5 @@ Server: Best.IRAN.ir.awedsj.info.
 Port: 7443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52888
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd920e6f73e0bff548ad5cced411ae044d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52887
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: — YOUR PROXY HERE —
-Port: 443
-Secret: reserve your spot ↓
-@ProxyMTProto
-
-👆 This is where your proxy could sit — a dedicated post at the time you pick.
-🎁 First slot 50% off.
 </div>
 

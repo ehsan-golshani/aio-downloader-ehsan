@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/19 23:43
+📅 آخرین بروزرسانی: 1405/08/20 04:21
 
 ---
+
+## tasiyanc — post 11146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11145
+
+<div align="center"><img src="files/post_11145_tasiyanc_11145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰12
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11144
 
@@ -244,30 +271,5 @@ https://t.me/+R2nwb5FUo0RjYTVk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
-</div>
-
-## tasiyanc — post 11125
-
-<div align="center"><video src="files/post_11125_tasiyanc_11125.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11125_tasiyanc_11125.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵رسانه های آمریکایی اعلام کردن اون بمب هسته ای که ترامپ میخواد در حمله احتمالی به ایران ازش استفاده کنه این هست :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11124
-
-<div align="center"><img src="files/post_11124_tasiyanc_11124.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جنایت هولناک در ارومیه؛ مانی زینالی پسر ۱۹ ساله به قتل رسید
-
-مانی دو روز پیش برای تفریح با دوستانش از خانه خارج شده بود که قربانی یک حادثه خشونت‌بار شد.
-گفته می‌شود دو مرد او را به خارج شهر برده‌اند و پس از مقاومت مانی در برابر تعرض، به او حمله کرده‌اند. مانی حتی موفق شده بود برای درخواست کمک با مادرش تماس بگیرد، اما مهاجمان دوباره به او دسترسی پیدا کردند و در نهایت جانش را گرفتند.
-حالا یک خانواده داغدار شده و یک مادر باید با جای خالی فرزند ۱۹ ساله‌اش زندگی کند...
-💋 @Tasiyanc
 </div>
 

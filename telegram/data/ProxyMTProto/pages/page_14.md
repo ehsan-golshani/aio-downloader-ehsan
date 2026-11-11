@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52727
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.shentaichiacademy.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: xxmatrixx.top
+Port: 853
+Secret: eee4508d288bf81791177a2f5e73ac06cf6d617472697878782e746f70
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52725
 
@@ -163,24 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: surima18.quietfjord.click
 Port: 443
 Secret: ee920a4026fcc79354d87c30db9280e578737572696d6131382e7175696574666a6f72642e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52707
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52706
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: neka57.mossharbor.xyz
-Port: 443
-Secret: eefd9a9e2ac2851ddc327fe5971e25a87d6e656b6135372e6d6f7373686172626f722e78797a
 @ProxyMTProto
 </div>
 

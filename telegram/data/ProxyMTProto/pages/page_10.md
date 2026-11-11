@@ -1,8 +1,30 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/19 23:41
+📅 آخرین بروزرسانی: 1405/08/20 04:19
 
 ---
+
+## ProxyMTProto — post 52807
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🤖 Got a working proxy? Share it 🚀
+Есть рабочий прокси? Поделись 🚀
+
+Start @SProxyRobot, send it in — we’ll test & post it for everyone.
+Запусти @SProxyRobot, отправь — проверим и выложим для всех.
+
+⚡ New time slots are now open for the next days, grab yours before they fill up!
+⚡ Новые слоты на ближайшие дни уже открыты, успей занять, пока не разобрали!
+</div>
+
+## ProxyMTProto — post 52806
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52805
 
@@ -164,24 +186,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: turbo-speed.ir.bcsadwtgd.info.
 Port: 7443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52787
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52786
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd91f6dd74b79cc72f81f1bf17a96b91fb
 @ProxyMTProto
 </div>
 
