@@ -1,12 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/20 04:21
+📅 آخرین بروزرسانی: 1405/08/20 11:00
 
 ---
 
-## tasiyanc — post 11312
+## tasiyanc — post 11313
 
-<div align="center"><a href="files/post_11312_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+<div align="center"><img src="files/post_11313_tasiyanc_11313.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵طبق تحقیقات زوج‌هایی که با هم شوخی می‌کنن و کل‌کل دارن، رابطه شادتر و موندگارتری رو تجربه می‌کنن!
+
+تحقیقات نشون می‌ده شوخی و خنده بین زوج‌ها فقط برای سرگرمی نیست؛ بلکه باعث افزایش صمیمیت، تقویت پیوند عاطفی و کاهش تنش‌های رابطه می‌شه.
+زوج‌هایی که کنار هم می‌خندن، حتی تو روزهای سخت هم راحت‌تر از پس مشکلات برمیان.
+البته یه نکته مهم داره؛ شوخی باید دوطرفه باشه، نه بهونه‌ای برای تحقیر و ناراحت کردن طرف مقابل!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11312
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -289,20 +302,6 @@ Fill this room with what you know about me
 
 ++ نکته تلخ ماجرا اینجاست که به‌جای کارتن، انگار کلی پول مملکت رو انداختن توی سطل زباله!
 
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11288
-
-<div align="center"><video src="files/post_11288_tasiyanc_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11288_tasiyanc_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یکی به ما بگه چخبره تو این مملکت هر کسشری داره عادی سازی میشه!! از رابطه‌های بی‌قیدوشرط تا بارداری‌های عمدی؛ پدیده مادران مجرد!
-
-دکتر امیری می‌گه تعداد زنانی که با دوست‌پسرشون وارد رابطه می‌شن، به‌صورت خودخواسته باردار می‌شن و تصمیم می‌گیرن بچه رو بدون ازدواج و حضور پدر بزرگ کنن، به‌شدت افزایش پیدا کرده.
-یعنی بچه از همون اول قراره بدون پدر بزرگ بشه! موضوعی که بحث‌های زیادی درباره روابط، مسئولیت‌پذیری و آینده فرزندان به راه انداخته.
 💋@Tasiyanc
 </div>
 

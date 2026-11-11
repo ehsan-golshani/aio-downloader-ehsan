@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/20 04:21
+📅 آخرین بروزرسانی: 1405/08/20 11:00
 
 ---
+
+## tasiyanc — post 11147
+
+<div align="center"><video src="files/post_11147_tasiyanc_11147.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11147_tasiyanc_11147.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵علی دایی، اسطوره فوتبال ایران، در جریان مراسم خاکسپاری حمید علیدوستی، پیشکسوت فوتبال، هنگام پخش سرود جمهوری اسلامی از جای خود برنخاست.
+پی‌نوشت : برخی چهره های شناخته شده و محبوب مثل عادل فردوسی‌پور و جعفر پناهی هم بلند نشدن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11146
 
@@ -265,11 +278,5 @@ https://t.me/+R2nwb5FUo0RjYTVk
 «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد»
 مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️
 نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید .
-</div>
-
-## tasiyanc — post 11126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
 </div>
 
