@@ -1,8 +1,139 @@
 # آرشیو کانال tasiyanc - صفحه 21
 
-📅 آخرین بروزرسانی: 1405/08/21 06:53
+📅 آخرین بروزرسانی: 1405/08/21 15:11
 
 ---
+
+## tasiyanc — post 10864
+
+<div align="center"><video src="files/post_10864_tasiyanc_10864.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10864_tasiyanc_10864.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همین حالا ثبت‌ نام کنید و از بونوس های جدید ما لذت ببرید
+💵
+🛍
+👆
+</div>
+
+## tasiyanc — post 10863
+
+<div align="center"><img src="files/post_10863_tasiyanc_10863.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet
+
+
+🔥 مسابقات امروز 
+👍
+
+⚽️ اینتراخت فرانکفورت - کلن
+
+🌎 ساعت ۲۲:۰۰
+⚽️ دپورتیوولاکرونیا - لوانته
+
+🌎 ساعت ۲۲:۳۰
+
+﻿
+
+💸 ضرایب ویژه و رقابتی
+
+⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات
+
+
+🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن!
+
+
+✅۱۰٪ شارژ بیشتر برای روش‌های رمزارز
+
+🤙 ورود سریع | شارژ آنی | پشتیبانی ۲۴ ساعت
+
+کانال سایت:
+
+✅ https://t.me/BerryBetOfficial
+آدرس سایت:🅰r24
+
+🔗 https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10862
+
+<div align="center"><video src="files/post_10862_tasiyanc_10862.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10862_tasiyanc_10862.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بنابر اعلام ترامپ مادر تمام بمب‌ها یا GBU-43 غیر هسته ای رو قراره در حمله به ایران استفاده کنن
+
+از صبح رسانه‌های بین‌المللی، خبری مبنی بر این منتشر کردن که آمریکا قصد داره توی جنگ پیش رو با ایران، از این بمب استفاده کنه!
+این بمب، سنگین ترین بمبه غیر هسته‌ای و شامل ۸.۵ تُن مواد منفجره‌اس! در دو جنگ اخیر، آمریکا معمولا با بمب‌های یک تنی مراکز نظامی رو مورد هدف قرار می‌داد!
+این یعنی شدت و انفجار چندین برابری نسبت به بمب‌های قبلی که تا حالا مثلش رو ندیدید!
+توی سال ۲۰۱۷، آمریکابا این بمب افغانستان رو مورد حمله قرار داد که میتونین شدت انفجار وحشتناکش رو ببینین!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10861
+
+<div align="center"><video src="files/post_10861_tasiyanc_10861.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10861_tasiyanc_10861.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مراسم های ختم پشم‌افکن با سبک‌های جدید در بالاشهر تهران!!
+
+مراسم سوگواری در ایران، به‌ویژه در تهران، در حال تجربه تغییراتی در شیوه برگزاری و پوشش شرکت‌کنندگانِ.!!!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10860
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
+</div>
+
+## tasiyanc — post 10859
+
+<div align="center"><img src="files/post_10859_tasiyanc_10859.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
+
+🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
+
+🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
+
+🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
+⏰ ۱ تا ۱۵ اکتبر
+🏆 جایزه برای 0️⃣5️⃣ نفر برتر
+👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
+
+🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
+
+🏢 ورود به سایت 👇
+⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
+
+✈️ کانال رسمی ما در تلگرام 👇
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10858
+
+<div align="center"><video src="files/post_10858_tasiyanc_10858.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10858_tasiyanc_10858.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دیروز یه کشتی تو تنگه هرمز که پر از کانتینر موبایل آیفون و ادکلن بود رفت روی مین سپاه و منفجر شد.
+
+حالا مردم ایران ریختن اونجا و هر چی آیفون و ادکلن هست رو دارن غنیمت برمیدارن و با خودشون میارن داخل کشور.
+طبق گفته برخی منابع، یه ایرانی با خودش 300 تا آیفون و 1000 تا ادکلن آورده!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10857
 
@@ -152,114 +283,5 @@ Odd:1.98
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇 https://t.me/+EADakrBU74wyOGVk https://t.me/+EADakrBU74wyOGVk تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10844
-
-<div align="center"><img src="files/post_10844_tasiyanc_10844.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-به باخت تو دنیای بزرگ شرط‌بندی پایان بده 🇪🇺👇
-
-https://t.me/+EADakrBU74wyOGVk
-https://t.me/+EADakrBU74wyOGVk
-
-تیم سیاوش رسماً 5 هزار نفری شد ...😲🅰g22
-</div>
-
-## tasiyanc — post 10843
-
-<div align="center"><img src="files/post_10843_tasiyanc_10843.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امروز تولد 88 سالگیه فرح دیبا، سومین همسر محمدرضا شاه پهلویه ...
-
-ـ شهبانو فرح پهلوی در آبان ۱۳۳۸ با محمد رضا شاه پهلوی ازدواج کرد. حاصل این ازدواج چهار فرزند به نامهای رضا، فرحناز، علیرضا و لیلا بود.
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10842
-
-<div align="center"><video src="files/post_10842_tasiyanc_10842.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10842_tasiyanc_10842.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اولین امدادگری که ۹ اسفند بعد بمبارون وارد بیت رهبری شد:
-
-تو لحظات اولیه من آقا سید مجتبی خامنه ای رو دیدم که آوار ضعیفی روش ریخته بود و آسیب شدیدی نداشت و خودش رو پای خودش راه میرفت....
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10841
-
-<div align="center"><video src="files/post_10841_tasiyanc_10841.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10841_tasiyanc_10841.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵جاده مرگ ایران بشناسید ؛
-اینجا یکی از ترسناک‌ترین جاده‌های ایران است؛ جاده‌ای که وسط کویر لوت کشیده شده!
-
-جاده نهبندان به شهداد مسیری طولانی و کم‌تردد است که از دل یکی از خشن‌ترین و در عین حال زیباترین مناطق ایران عبور می‌کند؛ ...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10840
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 26 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-
-با وارد کردن این فایل داخل نپستر 26 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 💖
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10839
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r22🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10838
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 بانس‌های فوق خفن مل‌بت 🔺
-
-🫴 100 درصد پاداش اولین واریز
-😀 100 درصد بانس یکشنبه ها
-🎁 100 درصد بانس چهارشنبه ها
-🔹 هر روز 1 چرخش گردونه 1 یورویی
-😀 3 درصد باز پرداخت نقدی
-😀 بانس شرط رایگان 30 دلاری
-🎩 10 درصد باز پرداخت نقدی کازینو
-🎆 بانس هدیه روز تولد
-💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
-
-💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
 </div>
 

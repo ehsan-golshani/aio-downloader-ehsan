@@ -1,8 +1,130 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/21 06:53
+📅 آخرین بروزرسانی: 1405/08/21 15:11
 
 ---
+
+## tasiyanc — post 11342
+
+<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
+
+چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
+مرد ایرانی وقتی متوجه ملیت او شد، گفت:
+«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
+این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
+نظر شما چیه؟
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11341
+
+<div align="center"><video src="files/post_11341_tasiyanc_11341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11341_tasiyanc_11341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 عجیب‌ترین مسابقه‌ای که تا حالا دیدیم!
+
+قانونش خیلی ساده‌ست؛ هر شرکت‌کننده‌ای که بتونه باسن حریفش رو قرمزتر کنه، برنده مسابقه می‌شه! 😂
+
+از بهترین ورزشهای جهان 👍🏻
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11340
+
+<div align="center"><a href="files/post_11340_@Tasiyanc 🇩🇪 Vip.ovpn" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @Tasiyanc 🇩🇪 Vip.ovpn</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+در صورت ارور دو سه بار بزنید
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 11339
+
+<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
+
+دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
+دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11338
+
+<div align="center"><img src="files/post_11338_tasiyanc_11338.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پست جدید پاول دروف، مالک تلگرام:
+
+واقعاً بی‌انصافیه! سازمان‌های جاسوسی فقط دخترای آسیایی رو برای به دام انداختن مدیرعامل‌ها می‌فرستن؛ پس تکلیف اون مدیرعامل‌هایی که از دخترای آسیایی خوششون نمیاد چی می‌شه؟!
+
+پس جاسوس‌های خوشگل فرانسوی🇫🇷، روسی🇷🇺 و ایرانی🇮🇷 کجان؟
+حتی یه دختر جاسوس هم سراغ من نفرستادن! اصلاً دارن تلاش می‌کنن یا نه؟
+البته فرانسه معافه، چون تصمیم‌ گیرنده‌هاشون اصلاً به دخترا علاقه ندارن🏳️‍🌈! ولی بقیه کشورها باید بیشتر تلاش کنن...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11337
+
+<div align="center"><a href="files/post_11337_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11336
+
+<div align="center"><img src="files/post_11336_tasiyanc_11336.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ تکرار نبرد تگزاس اینبار در ومبلی لندن ، چهارچوب لیگ ملت های اروپا
+
+🏴󠁧󠁢󠁥󠁮󠁧󠁿 انگلستان 👊 🇭🇷 کرواسی
+
+☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
+
+1️⃣ضرایب رقابتی با سایت های جهانی
+2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
+3️⃣ 100% بونوس اولین واریز
+4️⃣ هدیه پروموکد هفتگی
+
+💳 درگاه کارت فعال برای کاربران ایرانی
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰r21
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11335
 
@@ -188,102 +310,6 @@
 🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
 
 دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11319
-
-<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
-حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11318
-
-<div align="center"><img src="files/post_11318_tasiyanc_11318.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ماریسا برنسون، مدل و بازیگر آمریکایی جلوی امامزاده هارونیه اصفهان، در حال ژست گرفتن برای پروژه عکاسی برای مجله مد Vogue، پنجاه سال پیش!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11317
-
-<div align="center"><video src="files/post_11317_tasiyanc_11317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11317_tasiyanc_11317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرار خنده‌دار یک پنگوئن از محل نگهداری‌اش در پارک قطبی شهر هاربین چین
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11316
-
-<div align="center"><img src="files/post_11316_tasiyanc_11316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵زودتر خوابیدن چه ارتباطی با کاهش وزن دارد؟
-
-نتایج یک پژوهش جدید در دانشگاه نیویورک نشان می‌دهد زمان به خواب رفتن ممکن است در کاهش وزن نقش داشته باشد. محققان دریافتند افرادی که زودتر می‌خوابیدند، طی یک دوره هشت‌هفته‌ای کاهش وزن بیشتری را تجربه کردند؛ به‌طوری‌که هر ساعت با حدود ۱.۳ پوند (۰.۶ کیلوگرم) کاهش وزن در طول هشت هفته مرتبط بود. این ارتباط مستقل از مدت زمان خواب شبانه مشاهده شد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11314
-
-<div align="center"><img src="files/post_11314_tasiyanc_11314.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰r20
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11313
-
-<div align="center"><img src="files/post_11313_tasiyanc_11313.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵طبق تحقیقات زوج‌هایی که با هم شوخی می‌کنن و کل‌کل دارن، رابطه شادتر و موندگارتری رو تجربه می‌کنن!
-
-تحقیقات نشون می‌ده شوخی و خنده بین زوج‌ها فقط برای سرگرمی نیست؛ بلکه باعث افزایش صمیمیت، تقویت پیوند عاطفی و کاهش تنش‌های رابطه می‌شه.
-زوج‌هایی که کنار هم می‌خندن، حتی تو روزهای سخت هم راحت‌تر از پس مشکلات برمیان.
-البته یه نکته مهم داره؛ شوخی باید دوطرفه باشه، نه بهونه‌ای برای تحقیر و ناراحت کردن طرف مقابل!
-
 
 💋 @Tasiyanc
 </div>
