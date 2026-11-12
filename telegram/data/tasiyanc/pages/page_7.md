@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/21 02:06
+📅 آخرین بروزرسانی: 1405/08/21 06:53
 
 ---
+
+## tasiyanc — post 11146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11145
 
@@ -263,17 +271,5 @@ https://t.me/+R2nwb5FUo0RjYTVk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
-</div>
-
-## tasiyanc — post 11125
-
-<div align="center"><video src="files/post_11125_tasiyanc_11125.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11125_tasiyanc_11125.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵رسانه های آمریکایی اعلام کردن اون بمب هسته ای که ترامپ میخواد در حمله احتمالی به ایران ازش استفاده کنه این هست :
-
-💋 @Tasiyanc
 </div>
 

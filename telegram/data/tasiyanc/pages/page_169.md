@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 169
 
-📅 آخرین بروزرسانی: 1405/08/21 02:06
+📅 آخرین بروزرسانی: 1405/08/21 06:53
 
 ---
+
+## tasiyanc — post 6533
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+[24]🚀♂️@Tasiyanc.conf
+</div>
 
 ## tasiyanc — post 6532
 
@@ -194,17 +200,5 @@ https://t.me/+RTGtcYWb8HdkNjdk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 از عصر دارم بمب براتون آماده میکنم عشق کنین الان آماده شده
-</div>
-
-## tasiyanc — post 6503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اخبار رو از اینجا دنبال کنین + پروکسی
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
-@Tasiyanproxy 
-✅
 </div>
 

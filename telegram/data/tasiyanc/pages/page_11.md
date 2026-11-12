@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/21 02:06
+📅 آخرین بروزرسانی: 1405/08/21 06:53
 
 ---
+
+## tasiyanc — post 11061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
 
 ## tasiyanc — post 11060
 
@@ -287,16 +293,5 @@ https://t.me/+VmekrTukXnphNmU0
 https://t.me/+VmekrTukXnphNmU0
 
 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11041
-
-<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
-
-
-💋 @Tasiyanc
 </div>
 

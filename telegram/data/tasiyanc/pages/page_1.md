@@ -1,12 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/21 02:06
+📅 آخرین بروزرسانی: 1405/08/21 06:53
 
 ---
 
-## tasiyanc — post 11333
+## tasiyanc — post 11335
 
-<div align="center"><a href="files/post_11333_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+<div align="center"><img src="files/post_11335_tasiyanc_11335.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یکی از عجیب‌ترین رفتارهای اسب‌های آبی برای جلب توجه ماده‌ها 😕
+
+اسب‌های آبی موقع مدفوع کردن، دمشون رو مثل ملخ هلیکوپتر می‌چرخونن و مدفوع رو تا فاصله ۱۰ متری به اطراف می‌پاشن تا توجه ماده‌ها رو جلب کنن!
+عجیب‌تر اینکه ماده‌ها هم عاشق این کارن! 😁
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11333
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -110,8 +121,6 @@
 </div>
 
 ## tasiyanc — post 11324
-
-<div align="center"><a href="files/post_11324_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -232,8 +241,6 @@
 
 ## tasiyanc — post 11315
 
-<div align="center"><a href="files/post_11315_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
-
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
 
@@ -279,16 +286,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11312
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

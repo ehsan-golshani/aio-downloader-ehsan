@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/21 02:06
+📅 آخرین بروزرسانی: 1405/08/21 06:53
 
 ---
+
+## tasiyanc — post 11001
+
+<div align="center"><img src="files/post_11001_tasiyanc_11001.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51
+
+@NBA2kBet
+</div>
 
 ## tasiyanc — post 11000
 
@@ -295,20 +305,5 @@
 📱@lenzbet_official
 
 📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 10981
-
-<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
-
-وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
-
-
-💋 @Tasiyanc
 </div>
 
