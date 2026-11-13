@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 87
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 51323
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd1924acaec2bb63dac896a6d02a382f38
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51322
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51321
 
@@ -163,24 +181,6 @@ Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 Server: cdn8.cdnwave.org
 Port: 443
 Secret: eeaf794bcc20f70b1436b6b92b01b207e26d61676e69742e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51302
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: shahi.shambelile.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 208.87.242.223
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

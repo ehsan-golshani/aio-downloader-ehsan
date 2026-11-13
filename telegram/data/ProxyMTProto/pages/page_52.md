@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 52
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 52024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: usb.neo-duo.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ultra.mishutkin.click
+Port: 443
+Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52022
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: Unknown
 Port: 443
 Secret: ddbb0e45caf3bbce0d8d995cfb919fa9d6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: iran.bingi.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: go.ultraproxy.shop
-Port: 443
-Secret: dd7781b85253bbbf6c34447d0201c30b60
 @ProxyMTProto
 </div>
 

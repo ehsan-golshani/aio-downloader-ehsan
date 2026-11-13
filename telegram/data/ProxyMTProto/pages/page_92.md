@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 92
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 51222
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 69
+Secret: eebde76db082bb05e04cb5c63a32b5853d6472696c6c2e67697a616d6f66662e7472616465
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51221
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: best.ir.agrescjarkahdgs.info.
+Port: 88
+Secret: ee0000f00f0f775555fffffff5006e2e697374617469632e666172616b61762e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51220
 
@@ -163,24 +181,6 @@ Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51202
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: HI.PIGLIO.ONLINE
-Port: 69
-Secret: ee90070792574663c0f6bd34279078aa5b68692e7069676c696f2e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51201
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
 @ProxyMTProto
 </div>
 

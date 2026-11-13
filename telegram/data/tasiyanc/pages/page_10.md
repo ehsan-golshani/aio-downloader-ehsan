@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/21 22:53
+📅 آخرین بروزرسانی: 1405/08/22 04:17
 
 ---
+
+## tasiyanc — post 11097
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑 رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀 با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم. 📊 آمار فرم‌های امروز: ▪️ تعداد کل فرم‌ها: ۷ فرم ▪️ فرم‌های برنده: ۶ برد طلایی ✅ ▪️ فرم‌های…
+</div>
+
+## tasiyanc — post 11096
+
+<div align="center"><img src="files/post_11096_tasiyanc_11096.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 گزارش عملکرد فوق‌العاده‌ی امروز «تیپستر پرشین» 👑
+
+رفقا سلام امروز بازار شرط‌بندی رو ترکوندیم 🚀
+با مدیریت سرمایه دقیق و آنالیزهای تونستیم یک روز رویایی رو رقم بزنیم.
+
+📊 آمار فرم‌های امروز:
+▪️ تعداد کل فرم‌ها: ۷ فرم
+▪️ فرم‌های برنده: ۶ برد طلایی ✅
+▪️ فرم‌های بازنده: ۱ باخت ❌
+▪️ مبلغ استیک (روی هر فرم): ۱۰,۰۰۰,۰۰۰ تومان
+
+💰 سود خالص امروز:
+✨ ۳۳,۶۱۰,۰۰۰ تومان پول تمیز به جیب رف
+
+تبریک به همه دوستانی که امروز پا به پای ما جلو اومدن و سود کردن. این روند تازه شروع راهه...
+🅰9
+🔥 اگه می‌خوای فرم‌های فردای ما رو از دست ندی و مثل حرفه‌ای‌ها سود کنی همین الان به دوستانت کانال رو معرفی کن و اعلان‌ها رو روشن بذار👇
+
+🔗 @Tipster_Persians
+</div>
 
 ## tasiyanc — post 11095
 
@@ -296,44 +328,5 @@ Tasiyan | تاسیان pinned «⭕️ ⭕️ دوستانی ک میپرسن د�
 ﻿
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11075
-
-<div align="center"><video src="files/post_11075_tasiyanc_11075.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11075_tasiyanc_11075.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
-⭐
-👇 https://t.me/+RwajvZ55XSo5OWM0 https://t.me/+RwajvZ55XSo5OWM0 🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
-⚽️
-💵🅰g8
-</div>
-
-## tasiyanc — post 11074
-
-<div align="center"><video src="files/post_11074_tasiyanc_11074.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11074_tasiyanc_11074.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-
-💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
-⭐
-👇
-
-https://t.me/+RwajvZ55XSo5OWM0
-https://t.me/+RwajvZ55XSo5OWM0
-
-🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
-⚽️
-💵🅰g8
 </div>
 

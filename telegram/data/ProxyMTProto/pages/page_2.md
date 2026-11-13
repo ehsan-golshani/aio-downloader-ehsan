@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 53033
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53032
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: love.piglio.online/c1c7b0001f2c
+Port: 443
+Secret: dd8fbaa0a0124101a02dde083cd3613e09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53031
 
@@ -162,24 +180,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: Ariobarzanes.ir.igakwvwa.info.
 Port: 7443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53012
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee54701e1686de96a44721501a7bee9e4c6c796e657474652e6d79726b612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53011
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>

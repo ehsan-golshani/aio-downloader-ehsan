@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/21 22:53
+📅 آخرین بروزرسانی: 1405/08/22 04:17
 
 ---
+
+## tasiyanc — post 10995
+
+<div align="center"><img src="files/post_10995_tasiyanc_10995.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 هشدار درباره لینک‌های مخرب تلگرام؛ مراقب باشید اکانتتون دیلیت نخوره!
+
+گزارش‌هایی تایید نشده درباره لینک‌های مشکوک تلگرام منتشر شده که ادعا می‌شود با کلیک روی آن‌ها، حساب کاربری حذف می‌شود. همچنین ممکن است لینک مخرب پشت لینک های شیشه ای یا لینک ظاهراً سالم پنهان شده باشد.
+
+⚠️ روی لینک‌های ناشناس که بارها گفتیم از حساب‌های شخصی و کانال‌های نامعتبر کلیک نکنید و قبل از باز کردن هر لینک، آدرس واقعی آن را بررسی کنید.
+اطلاع رسانی کنید
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10994
+
+<div align="center"><video src="files/post_10994_tasiyanc_10994.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10994_tasiyanc_10994.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 فقط چند ساعت پس از افتتاح؛ مجموعه تفریحی کاشان پلمب شد!
+هنوز چند ساعت از افتتاح این مجموعه نگذشته بود که به‌دلیل مسائل مرتبط با حجاب و رقص زنان، دستور پلمب آن از سوی دادستانی کاشان صادر شد!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10993
 
@@ -296,34 +324,5 @@
 🌐 آدرس ورود به سایت پیش بینی وی پاری
 
 بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g2
-</div>
-
-## tasiyanc — post 10975
-
-<div align="center"><video src="files/post_10975_tasiyanc_10975.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10975_tasiyanc_10975.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده رقص دخترها و پسرها تو نمایشگاه بین المللی فیتنس تهران
-
-ویدئویی از رقص دخترها و پسرها کنار هم در نمایشگاه بین‌المللی فیتنس تهران منتشر شده که حسابی حاشیه‌ساز شده و اعتراض شدید حامیان حکومت رو به دنبال داشته!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10974
-
-<div align="center"><video src="files/post_10974_tasiyanc_10974.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10974_tasiyanc_10974.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از سورپرایز جذاب برای بازیگر سریال «بازی تاج‌وتخت , GOT » توی استانبول🇹🇷
-
-+ «اوون تیل» وسط بازدید از آب‌انبار شرفیه استانبول، با اجرای موسیقی معروف سریال «بازی تاج‌وتخت» با سازهای سنتی غافلگیر شد؛ یه اجرای خفن توی فضایی تاریخی که حسابی حال‌وهوای وستروس رو زنده کرد!
-
-
-💋 @Tasiyanc
 </div>
 

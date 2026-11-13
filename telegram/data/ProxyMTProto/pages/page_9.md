@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 52885
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: persian.gulf.ir.bcsadwtgd.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52883
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 7443
+Secret: AAAAAAAAAAAAAAAAAAAAABQ=
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52882
 
@@ -164,22 +182,5 @@ Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52864
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: panir.begir.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52863
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🌐 Have a Telegram Web Proxy and want to share it? Submit via @SProxyRobot and get featured on @ProxyMTProto 🚀
-
-🌐 Есть Telegram Web Proxy? Добавьте его через @SProxyRobot и разместите в @ProxyMTProto 🚀
 </div>
 

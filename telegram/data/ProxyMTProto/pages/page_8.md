@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 52905
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52904
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: warp.webproxy.lol
+Port: 443
+Secret: eecdd352e63c109299dc978b4e94fc4897776172702e77656270726f78792e6c6f6c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52903
 
@@ -166,24 +184,6 @@ Secret: reserve your spot ↓
 Server: Unknown
 Port: 443
 Secret: dd920e6f73e0bff548ad5cced411ae044d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: persian.gulf.ir.bcsadwtgd.info.
-Port: 7443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52883
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 7443
-Secret: AAAAAAAAAAAAAAAAAAAAABQ=
 @ProxyMTProto
 </div>
 

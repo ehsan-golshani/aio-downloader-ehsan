@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 36
 
-📅 آخرین بروزرسانی: 1405/08/21 22:53
+📅 آخرین بروزرسانی: 1405/08/22 04:17
 
 ---
+
+## tasiyanc — post 10551
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 10550
+
+<div align="center"><img src="files/post_10550_tasiyanc_10550.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!r4🅰
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 10549
 
@@ -256,41 +289,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 حالا پلیس پیگیر شده و فهمیده اون حرومزاده خوشبختانه اصلا سرطان نداشته، همه اون ظاهر هم گریم بوده!
 الانم پبجش رو به علت تشویش اذهان عمومی و بازی با احساسات مردم، توقیف کردن...
 
-@Tasiyanc
-</div>
-
-## tasiyanc — post 10530
-
-<div align="center"><img src="files/post_10530_tasiyanc_10530.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پرامپت وایرال شده
-
-غروب، پاییزی .
-🍃
-
-
-A high-fashion editorial collage of a stylish East Asian woman at a scenic park during a golden hour sunset, lifestyle aesthetic. Outfit: She is wearing an elegant sage green wrap blouse with rolled-up sleeves, high-waisted wide-leg white trousers, white sneakers, and a tan leather crossbody bag. Visuals & Poses: A multi-panel grid showcasing different angles; a full-body shot walking gracefully by a riverbank, a medium shot sitting cross-legged on the lush green grass, a back-view showing the silhouette against the sunset, and a close-up mirror selfie capturing her soft makeup and wavy light-brown hair illuminated by warm sunlight. Lighting & Atmosphere: Soft chiaroscuro effect, dreamy golden hour glow, cinematic warm backlighting, serene and candid mood. Camera Specs: Shot on an 85mm f/1.8 lens, high-fidelity, photorealistic, Vogue magazine aesthetic, intricate details, 8k resolution --ar 2:3 --stylize 250
-
-
-وارد ChatGPT یا Gemini شوید، عکس مورد نظر را آپلود کنین و پرامپت بالا رو جای‌گذاری کنین.
-
-#N @Tasiyanc
-</div>
-
-## tasiyanc — post 10529
-
-<div align="center"><video src="files/post_10529_tasiyanc_10529.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10529_tasiyanc_10529.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴نتانیاهو:
-می‌خوام یه خبر خوب بهتون بدم، با وجود سکوتتون و با وجود این همه دورویی، فقط مسئله زمانه تا یه اتفاق باورنکردنی تو ایران بیفته!
-قدرت مردم، بالاخره بر آدم‌هایی که الان قدرت دستشونه غلبه می‌کنه.
-می‌خوام با دقت به حرفام گوش کنید؛ یه روزی، که شاید خیلی هم دور نباشه، مردم ایران آزاد خواهند شد.
-این حکومتِ آدم‌کش، به‌خاطر دروغ‌هاش، فسادش و ظلم و بی‌رحمیش سرنگون می‌شه.
-این حکومت شرور سقوط می‌کنه و اون روز همه‌مون جشن می‌گیریم.
 @Tasiyanc
 </div>
 

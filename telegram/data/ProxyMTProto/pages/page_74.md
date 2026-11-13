@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 51584
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.surfvpn.app
+Port: 443
+Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51583
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 22
+Secret: dd79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51582
 
@@ -162,24 +180,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ==
 Server: ultra.mishutkin.click
 Port: 443
 Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51563
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.macauley.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media7.happtg.org
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e686f66662e7275
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 113
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 50802
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: portal.mtproxy.cc
+Port: 443
+Secret: eeef7017f26c9ecb71ed8d760999294318786170692e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50801
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: web.connectina.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50800
 
@@ -163,24 +181,6 @@ Secret: ee4cb2cfd29281dde11c93397476f9f26a7374726d2e79616e6465782e6e6574
 Server: help.meow0.co.uk
 Port: 22
 Secret: dd79e344818749bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50782
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tetstts.mtproto.baby
-Port: 443
-Secret: eed1e7032e95a038c7e68c0877026d1d847374726d2e79616e6465782e6e6574
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50781
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 @ProxyMTProto
 </div>
 

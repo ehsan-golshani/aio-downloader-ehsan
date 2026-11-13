@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 52664
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd29f1b13ae871328bb68c23eb3192999b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52663
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: usb.neo-duo.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52662
 
@@ -163,24 +181,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52644
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: loga85.tidelark.cc
-Port: 443
-Secret: ee899032aa75159cc1d735f15e7a0e3a6e6c6f676138352e746964656c61726b2e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52643
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddbf577fd72962985b371963ac4ef53a5f
 @ProxyMTProto
 </div>
 

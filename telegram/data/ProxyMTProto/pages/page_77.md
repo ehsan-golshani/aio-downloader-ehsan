@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 51523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51522
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51521
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: cdn6.cdnwave.org
 Port: 443
 Secret: ee7391242569590e01416101927d38b565686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51503
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media7.happtg.org
-Port: 443
-Secret: ee6ec9f7e082baf2397b450727ce78447e686f66662e7275
 @ProxyMTProto
 </div>
 

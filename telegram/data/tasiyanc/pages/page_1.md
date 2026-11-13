@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/21 22:53
+📅 آخرین بروزرسانی: 1405/08/22 04:17
 
 ---
+
+## tasiyanc — post 11351
+
+<div align="center"><a href="files/post_11351_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11350
+
+<div align="center"><img src="files/post_11350_tasiyanc_11350.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ هیجان فوتبال رو با پیش‌بینی در یک پلتفرم حرفه ای جهانی چند برابر کن
+
+🇩🇪 آلمان 👊 🇷🇸 صربستان
+
+
+☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
+
+1️⃣ضرایب رقابتی با سایت های جهانی
+2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
+3️⃣ 100% بونوس اولین واریز
+4️⃣ هدیه پروموکد هفتگی
+
+💳 درگاه کارت فعال برای کاربران ایرانی
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰21
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11347
 
@@ -46,8 +88,6 @@
 </div>
 
 ## tasiyanc — post 11344
-
-<div align="center"><a href="files/post_11344_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -285,35 +325,6 @@
 قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
 البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
 ﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11326
-
-<div align="center"><video src="files/post_11326_tasiyanc_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11326_tasiyanc_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما هم وارد فاز جدیدی شده!
-یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11325
-
-<div align="center"><video src="files/post_11325_tasiyanc_11325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11325_tasiyanc_11325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این ویدیو ببینید که مصرف ودکا چه بلایی سر سلول‌های بدن انسان میاره که فراتر از مستیُ سرخوشیه!!!
-
-ودکا معمولاً حدود ۴۰ درصد اتانول داره؛ ماده‌ای که می‌تونه به سلول‌های بدن آسیب بزنه. مصرف الکل به‌خصوص در طولانی‌مدت، به پوشش داخلی دستگاه گوارش آسیب می‌رسونه، التهاب ایجاد می‌کنه و عملکرد طبیعی سلول‌ها رو مختل می‌کنه.
-اما ماجرا فقط به روده ختم نمی‌شه؛ کبد، مغز، قلب و حتی سیستم ایمنی هم از عوارض مصرف الکل در امان نیستن.
- چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
-
 💋 @Tasiyanc
 </div>
 

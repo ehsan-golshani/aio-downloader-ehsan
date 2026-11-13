@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 109
 
-📅 آخرین بروزرسانی: 1405/08/21 22:51
+📅 آخرین بروزرسانی: 1405/08/22 04:15
 
 ---
+
+## ProxyMTProto — post 50882
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.esdata.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 50881
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s13.assetflux.org
+Port: 443
+Secret: ee3afc68787d0be6268346b66a3563001b686f66662e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 50880
 
@@ -163,24 +181,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 Server: Unknown
 Port: 8443
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50862
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: anchor.lovely.lat
-Port: 443
-Secret: eeaadd88aa9facd454936d0c42dc128e776d2e6265626f6f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 50861
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 25565
-Secret: ee1603010200010001fc030386e24c3add617669746f2e7275
 @ProxyMTProto
 </div>
 
