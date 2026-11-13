@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 10957
+
+<div align="center"><video src="files/post_10957_tasiyanc_10957.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10957_tasiyanc_10957.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آبشاری خیره‌کننده در دل یک غار در برزیل!
+
+ویدیویی از غار «کازا د پدرا» در ایالت سائوپائولوی برزیل منتشر شده که آبشاری تماشایی از ارتفاع حیرت انگیز سرازیر میشود منظره‌ای طبیعی که از عجایب طبیعت جهانه !
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10956
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ چادر ملو اردکان - استقلال 🌎 ساعت ۱۶:۰۰ ⚽️ الومینیوم اراک - ذوب اهن 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر…
+</div>
 
 ## tasiyanc — post 10955
 
@@ -285,33 +307,5 @@ G30🅰
 
 🌐 کانال رسمی ما در تلگرام 👇
 ⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10936
-
-<div align="center"><video src="files/post_10936_tasiyanc_10936.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10936_tasiyanc_10936.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو از پاستیل خوردن نهال خانم خوشگل وایرال شده :
-
-این ویدیو رو ببینی،شاید دلت بخواد ازدواج کنی و دختر دار بشی
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10935
-
-<div align="center"><video src="files/post_10935_tasiyanc_10935.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10935_tasiyanc_10935.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تهران ، میدان تجریش و ترامپی که در وسط زمین و هوا زندانی شده است:
-
-دیشب توی میدون تجریش، یه نفر رو گذاشتن توی قفس و ماسک ترامپ زدن به صورتش تا بگن زندانیش کردیم
-
-⚡ @Tasiyanc
 </div>
 

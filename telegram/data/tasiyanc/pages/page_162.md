@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 162
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 6791
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩 @Tasiyanc ✅ | تاسیان
+</div>
+
+## tasiyanc — post 6790
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+امروز June 13، روز جهانیِ پیام دادن به کراشه 🤩
+
+@Tasiyanc ✅ | تاسیان
+</div>
 
 ## tasiyanc — post 6789
 
@@ -183,17 +197,5 @@ VİP - ⛓️OMEGA ⚡.npvt
 آموزش اتصال ⛓
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6767
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شرمنده ادمین تبادل پستهارو اشتباهی زده ❤️
-</div>
-
-## tasiyanc — post 6762
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تاسیان ( خانواده بزرگ من) ❤️
 </div>
 

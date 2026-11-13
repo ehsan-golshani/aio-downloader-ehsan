@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 11057
+
+<div align="center"><img src="files/post_11057_tasiyanc_11057.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یکی از عجیب‌ترین پدیده‌های طبیعی ایران ؛ جزیره‌ای که جابه‌جا می‌شه!
+
+یکی از عجیب‌ترین جاذبه‌های طبیعی ایران، چمن متحرک چملی توی شهر تکاب استان آذربایجان غربیه؛ یه برکه که وسطش جزیره‌ای از چمن و گیاهان شناوره و با وزش باد جابه‌جا می‌شه!
+
+این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11056
+
+<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11055
 
@@ -262,30 +290,5 @@ https://t.me/+VmekrTukXnphNmU0
 نیکا، دختر نقی معمولی تو سریال «پایتخت»، با یه غول وارد رابطه شده؛ حالا هم دستشو گرفته برده کلینیک زیبایی که ممه های پسرو لیفت کنه و شکمشو کوچیک‌تر کنه!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11037
-
-<div align="center"><img src="files/post_11037_tasiyanc_11037.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵  کانال 14 اسرائیل:
-
-نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

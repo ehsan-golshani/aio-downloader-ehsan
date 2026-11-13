@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 208
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 5514
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
+
+## tasiyanc — post 5513
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📶اختصاصی تاسیان تست شده 📶
+
+برای اتصال پایدار زمان بدید 🚀
+
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5512
 

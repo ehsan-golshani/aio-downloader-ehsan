@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 10833
+
+<div align="center"><img src="files/post_10833_tasiyanc_10833.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه گلاده دانشجوی پاکستانی تو آدلاید استرالیا زده به سرش رفته وسط جاده نماز بخونه راننده کامیونه هم فکر کرده لاشه کانگوروئه، صاف از روش رد شده و طرف درجا مرده
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10831
 
@@ -244,23 +268,5 @@ https://t.me/+A6R70wBCKApkYTRk
 🔵 اینستاگرام پر شده شده از پلنگ های خودشیفته و سادیستیک که در حال مالوندن گچ و ملات و آب و رنگ به صورتشونن و دارن به دخترهای دیگه توصیه میکنن چطور پسرها رو تیغ بزنن و عاقبت تیغ زنی چقدر پرفکت و عالیه و اگه پسری رو تیغ نزنن و دنبال بند کیف پسرها نباشن چه عواقب شومی در انتظارشونه!
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10813
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
 </div>
 

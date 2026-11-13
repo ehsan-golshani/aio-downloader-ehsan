@@ -1,12 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
 
-## tasiyanc — post 11351
+## tasiyanc — post 11353
 
-<div align="center"><a href="files/post_11351_ritzobet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 ritzobet.apk</a></div>
+<div align="center"><video src="files/post_11353_tasiyanc_11353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11353_tasiyanc_11353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو پربازدید از مزاحمت یک مرد ایرانی برای گردشگر خانم روسی در استانبول!
+
+ویدیویی از تعقیب و آزار یک زن گردشگر روس توسط مردی با تابعیت ایرانی در خیابان‌های استانبول منتشر شده که حسابی در فضای مجازی و شبکه های ترکیه خبرساز شده و واکنش‌های زیادی به دنبال داشته است.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11352
+
+<div align="center"><video src="files/post_11352_tasiyanc_11352.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11352_tasiyanc_11352.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی پربازدید یک بلاگر و مدل سوئدی درباره رابطه دختران ایرانی با مردان اروپایی!
+
+او معتقد است بسیاری از دختران ایرانی انتظار دارند مرد تمام هزینه‌های رابطه را پرداخت کند و نقش حامی مالی را داشته باشد؛ در حالی که مردان اروپایی بیشتر به رابطه برابر و تقسیم هزینه‌ها به‌صورت ۵۰/۵۰ اعتقاد دارند.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11351
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
@@ -300,31 +328,6 @@
 
 کمپانی BYD با ابرخودروی تمام‌برقی Yangwang U9 Xtreme تونست در جاده‌ای در ابوظبی به سرعت باورنکردنی ۵۰۳ کیلومتر بر ساعت برسه و رکورد گینس سریع‌ترین خودروی تولیدی جهان رو بشکنه!
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11328
-
-<div align="center"><video src="files/post_11328_tasiyanc_11328.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11328_tasiyanc_11328.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جوادی آملی: معجزه می‌خواستید؟ اینم معجزه!
-
-میگه کی فکرشو می‌کرد یه روزی برسه که دو ابرقدرت دنیا رو مچاله کنیم؟! اگه این معجزه نیست، پس چیه؟!
-از کجا به کجا رسیدیم...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قیمت بنزین سوپر داخلی اعلام شد
-
-قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
-البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
-﻿
 💋 @Tasiyanc
 </div>
 

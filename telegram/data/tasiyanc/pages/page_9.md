@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 11121
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11120
+
+<div align="center"><img src="files/post_11120_tasiyanc_11120.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰g11
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 11119
 
@@ -244,35 +277,5 @@ https://t.me/+M_YAiGu22l05YzM0
 
 ✅ معرفی سایت و اپلیکیشن مل‌بت
 💯 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11099
-
-<div align="center"><video src="files/post_11099_tasiyanc_11099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11099_tasiyanc_11099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه نفر رفته تو تجمعات حکومتیا و ازشون می پرسه به نظرتون اگه کوروش کبیر بین مردم بود، چی میگفت بهشون؟!
-
-ـ حالا جواباشون جوالبه:
-به نظرم رهبر ما از کوروش هم بالاتر بود. کوروش بزرگ اگه الان بود، میگفت که پشت ولایت فقیه و خامنه ای باشید.
-خودش آستین بالا میزد و زیر پرچم جمهوری اسلامی میومد همینطور که ما الان رفتیم زیر یه خم صدام رو گرفتیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11098
-
-<div align="center"><video src="files/post_11098_tasiyanc_11098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11098_tasiyanc_11098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اتفاق عجیب و تلخ در کلمبیا
-
-پسری به نام خولیو برای شاشیدن ازخودروی خانواده پیاده شد.
-چند ثانیه بعد، تریلی به دلیل بریدن ترمز خودروشون رو زیر گرفت و پدر و مادرش همونجا جان باختند. برادر کوچک‌ترش نیز از داخل خودرو بیرون پرت شد و نجات پیدا کرد
-💋 @Tasiyanc
 </div>
 

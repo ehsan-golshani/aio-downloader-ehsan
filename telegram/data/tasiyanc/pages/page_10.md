@@ -1,8 +1,38 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/22 04:17
+📅 آخرین بروزرسانی: 1405/08/22 10:59
 
 ---
+
+## tasiyanc — post 11099
+
+<div align="center"><video src="files/post_11099_tasiyanc_11099.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11099_tasiyanc_11099.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 یه نفر رفته تو تجمعات حکومتیا و ازشون می پرسه به نظرتون اگه کوروش کبیر بین مردم بود، چی میگفت بهشون؟!
+
+ـ حالا جواباشون جوالبه:
+به نظرم رهبر ما از کوروش هم بالاتر بود. کوروش بزرگ اگه الان بود، میگفت که پشت ولایت فقیه و خامنه ای باشید.
+خودش آستین بالا میزد و زیر پرچم جمهوری اسلامی میومد همینطور که ما الان رفتیم زیر یه خم صدام رو گرفتیم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11098
+
+<div align="center"><video src="files/post_11098_tasiyanc_11098.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11098_tasiyanc_11098.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اتفاق عجیب و تلخ در کلمبیا
+
+پسری به نام خولیو برای شاشیدن ازخودروی خانواده پیاده شد.
+چند ثانیه بعد، تریلی به دلیل بریدن ترمز خودروشون رو زیر گرفت و پدر و مادرش همونجا جان باختند. برادر کوچک‌ترش نیز از داخل خودرو بیرون پرت شد و نجات پیدا کرد
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11097
 
@@ -296,37 +326,5 @@ Tasiyan | تاسیان pinned «⭕️ ⭕️ دوستانی ک میپرسن د�
 
 کانفیگای رایگان در قطعی و جنگ در این کانالهای تلگرامی بصورت رایگان منتشر خواهد شد :
 ➡️ @Tasiyanc - @TasiyanProxy
-</div>
-
-## tasiyanc — post 11077
-
-<div align="center"><video src="files/post_11077_tasiyanc_11077.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11077_tasiyanc_11077.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وفاداری‌ای که حتی مرگ هم نتونست از بین ببره، سگ مومیایی ۳۳۰۰ ساله پادشاه مصر پیدا شد!
-
-بیش از ۳۳۰۰ سال پیش، در آرامگاه سلطنتی فرعون آمنهوتپ دوم، مومیایی یک سگ کشف شد؛ سگی که ظاهراً جایگاهی ویژه در زندگی پادشاه داشته و حتی پس از مرگ هم در کنار او آرام گرفته است.
-انگار بعضی پیوندها، حتی با گذشت هزاران سال هم فراموش نمی‌شن...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11076
-
-<div align="center"><img src="files/post_11076_tasiyanc_11076.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مخدری که بدن انسان رو از درون نابود می‌کنه؛ اسمش کروکودیله! 🐊
-
-«کروکودیل» یکی از مخدرهای بسیار خطرناکه که مصرفش می‌تونه باعث تخریب شدید بافت‌های بدن، عفونت و حتی از بین رفتن بخش‌هایی از پوست و گوشت بشه!
-آسیب‌های این ماده به‌قدری وحشتناکه که در موارد شدید، ظاهر بدن مصرف‌کننده تغییر می‌کنه و زخم‌های عمیقی روی پوستش به وجود میاد.
-این مخدر به‌خاطر عوارض مخربش به اسم کروکودیل معروف شده؛ هشداری جدی درباره اینکه بعضی مواد چطور می‌تونن زندگی انسان رو به نابودی بکشن.
-⚠️ کروکودیل؛ فقط یک اسم ترسناک نیست، یک خطر جدی برای جان انسانه.
-﻿
-
-💋 @Tasiyanc
 </div>
 
