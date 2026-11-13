@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/08/22 19:18
+📅 آخرین بروزرسانی: 1405/08/23 01:22
 
 ---
+
+## tasiyanc — post 11049
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+
+🆕 معرفی سایت و اپلیکیشن مل‌بت
+✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11048
+
+<div align="center"><video src="files/post_11048_tasiyanc_11048.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11048_tasiyanc_11048.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑7 آبان؛ روز بزرگداشت کوروش بزرگ👑
+
+از دل تاریخ، از میان قرن‌ها، نامی برخاسته که هنوز در رگ‌های این سرزمین جاری‌ست؛ کوروش بزرگ، نماد شکوه، آزادگی و عظمت ایران.
+ایران، سرزمین شیران و وارثان تمدنی کهن؛ خاکی که هر وجبش روایتگر هزاران سال افتخار است و نامش تا همیشه در قلب فرزندانش زنده خواهد ماند.
+7 آبان، بر تمام ایرانیان راستین و پاسداران هویت و تاریخ ایران‌زمین خجسته باد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11047
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
 
 ## tasiyanc — post 11046
 
@@ -226,37 +274,5 @@ https://t.me/+VmekrTukXnphNmU0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 طبق برخی گزارشات رسانه های اسراییل بی‌بی نتانیاهو از آیزنکوت پیشی گرفته
-</div>
-
-## tasiyanc — post 11029
-
-<div align="center"><img src="files/post_11029_tasiyanc_11029.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵تصویر منتشر شده از شبکه ۱۴ اسراییل هم‌اکنون از شمارش آرا :
-
-جناح راست که لیکود (نتانياهو) : 60
-
-جناح چپ (آیزنکوت) : 43
-
-+نتانیاهو فعلا پیشتازه
-</div>
-
-## tasiyanc — post 11028
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-نظرتون درباره انتخابات اسراییل چیه؟ زیر کامنتا بگید کی برنده میشه و جنگ میشه یا نه
-</div>
-
-## tasiyanc — post 11027
-
-<div align="center"><video src="files/post_11027_tasiyanc_11027.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11027_tasiyanc_11027.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵بی‌بی نتانیاهو پاشده رفته تو یه کاباره میکروفون گرفته دستش میگه الان وقت کصکلک بازی نیست پاشید برید رای بدید
-
-💋 @Tasiyanc
 </div>
 

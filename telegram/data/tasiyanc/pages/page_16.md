@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/22 19:18
+📅 آخرین بروزرسانی: 1405/08/23 01:22
 
 ---
+
+## tasiyanc — post 10989
+
+<div align="center"><video src="files/post_10989_tasiyanc_10989.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10989_tasiyanc_10989.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیوی چند دختر بدنساز با استقبال گسترده کاربران وایرال شد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10988
+
+<div align="center"><img src="files/post_10988_tasiyanc_10988.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 میگن بیلی آیلیش ممه‌هاشو با جراحی کوچیک کرده! این خبر تو رسانه‌های خارجی پیچیده، ولی هنوز تأیید رسمی نشده. 💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10987
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید. 🅰r3
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 10986
 
@@ -267,63 +300,5 @@
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌💯 Link 🔜 MelBet1.net
 🆕‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 10969
-
-<div align="center"><video src="files/post_10969_tasiyanc_10969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10969_tasiyanc_10969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 خبر امیدوارکننده از یوزپلنگ‌های ایرانی! 🐆
-
-یه خانواده جدید از یوزپلنگ‌های ایرانی در پارک ملی توران مشاهده شدن؛ خبری امیدبخش برای یکی از در معرض انقراض‌ترین گونه‌های حیات‌وحش ایران.
-
-گزارش‌ها می‌گن برای اولین‌بار، طی یک سال چهار مورد زادآوری موفق یوز ایرانی ثبت شده؛ اتفاقی مهم برای امید به بقای این گونه ارزشمند. 🌱
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10968
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💙با نصب اپلیکیشن، بدون نیاز به فیلترشکن به تمامی قسمت‌های سایت دسترسی داشته باشید🌇
-
-▪️اموزش ثبت نام و شارژ و برداشت
-
-1️⃣2️⃣3️⃣
-8️⃣ کد هدیه بونوس 100% برای اولین واریز 💰💰💰👇
-Mn85m
-1️⃣کانال فارسی 1Xbet👇
-📱 @one_Mn85m_xbet
-</div>
-
-## tasiyanc — post 10967
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😖 و باز هم در مورد هری کین
-
-⚽️ این بازیکن انگلیسی در ۱۰ بازی متوالی لیگ قهرمانان اروپا گل زده است
-
-💛 رکورد رونالدو ۱۱ بازی متوالی است
-
-📆 ۳ نوامبر بایرن مونیخ به مصاف اتلتیکو می‌رود و کین فرصت دارد تا رکورد کریستیانو را تکرار کند
-
-💬 آیا کین رکورد رونالدو را تکرار می‌کند؟
-
-کانال رسمی وانیکس
-
-لینک دانلود اپلیکیشن بدون فیلتر
-
-کد هدیه بونوس 100% : Mn85m👍
-
-LINK:1XBET.COM
-
-برای دریافت سرور های تست اسیایی  میتونید از ربات زیر : 🅰1
-سرور کشور ترکیه یا ارمنستان بگیرید👇
-VPN FREE
 </div>
 

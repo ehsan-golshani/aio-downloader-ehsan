@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/22 19:18
+📅 آخرین بروزرسانی: 1405/08/23 01:22
 
 ---
+
+## tasiyanc — post 11155
+
+<div align="center"><img src="files/post_11155_tasiyanc_11155.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 سوراج چاوان که تو هند بهش لقب جاستین بیبر هند رو دادن به عنوان خوشتیپ ترین و جذاب ترین مرد هند تو سال 2026 انتخاب شد:
+
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11154
+
+<div align="center"><img src="files/post_11154_tasiyanc_11154.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵از پرچم جدید آمریکا بعد از تغییر رژیم در این کشور رونمایی شد :
+
+مسلمانانی که در انتخابات میان دوره‌ای آمریکا، پیروز شدن:
+
+۱- عبدال السید
+۲- رشیده طلیب
+۳- ایلهان عمر
+۴- آدام حماوی
+۵- داریالیزا آویلا شوالیه
+۶- عایشه وهاب
+۷- آبر کاواس
+۸- نبیله سید
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11153
+
+<div align="center"><img src="files/post_11153_tasiyanc_11153.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵بلوای سیاسی در واشنگتن؛ دموکرات‌ها کنگره را قبضه کردند
+
+دموکرات‌ها در انتخابات آمریکا 🇺🇸 هم مجلس نمایندگان و هم سنا را گرفتند و کنترل کل کنگره را به دست آوردند؛ حتی در ایالت‌های جمهوری‌خواه مثل تگزاس و کانزاس هم پیروز شدند.
+
+مهم » این بزرگ‌ترین ضربه به ترامپ است؛ تصویب قوانین و بودجه و تأیید کابینه و قضات برایش سخت‌تر می‌شود. مهم‌تر برای ایران: تأمین بودجه برای ادامه تنش/جنگ با ایران خیلی دشوارتر می‌شود، هرچند لزوماً به معنای پایان تنش نیست.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11151
 
@@ -260,42 +308,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 برای ورود به سایت فیلترشکن خود را خاموش کنید!
 ‌🌐 Link 🔜 MelBet1.net
 🌐‌ Link 🔜 MelBet1.net
-</div>
-
-## tasiyanc — post 11134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها 🛜🛜🛜🛜
-با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال 🔗
-
-برنامه اندروید 🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11133
-
-<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
-
-یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
-این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11132
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
 </div>
 

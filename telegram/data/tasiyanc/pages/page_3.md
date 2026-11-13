@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/22 19:18
+📅 آخرین بروزرسانی: 1405/08/23 01:22
 
 ---
+
+## tasiyanc — post 11320
+
+<div align="center"><img src="files/post_11320_tasiyanc_11320.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
+
+دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11319
+
+<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
+حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11318
+
+<div align="center"><img src="files/post_11318_tasiyanc_11318.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ماریسا برنسون، مدل و بازیگر آمریکایی جلوی امامزاده هارونیه اصفهان، در حال ژست گرفتن برای پروژه عکاسی برای مجله مد Vogue، پنجاه سال پیش!
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11317
 
@@ -234,53 +269,6 @@ Fill this room with what you know about me
 </div>
 
 ## tasiyanc — post 11296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11295
-
-<div align="center"><img src="files/post_11295_tasiyanc_11295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
-
-🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
-
-⚡️ واریز آنی با کریپتو
-⚡️ تسویه‌حساب سریع و مطمئن
-⚡️ دسترسی آسان و بدون دردسر
-⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰r19
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11294
-
-<div align="center"><video src="files/post_11294_tasiyanc_11294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11294_tasiyanc_11294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه دانش‌آموز اصفهانی خطاب به دانش‌آموزای فرانسوی که اعتراض میکردن از شرایط مدرسه‌شون میگه و دوربین رو می‌چرخونه تا کلاسشون رو هم نشون بده 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11293
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکیشن اندروید سایت ریتزوبت 🔥

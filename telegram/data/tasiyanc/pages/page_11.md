@@ -1,8 +1,85 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/22 19:18
+📅 آخرین بروزرسانی: 1405/08/23 01:22
 
 ---
+
+## tasiyanc — post 11090
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 
+🥇
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد بایرن مونیخ 
+⚽️
++ گلزنی میلان
+⚽️و اینتر 
+⚽️
+
+برنده 2.000.000 میلیون شوید 
+🔹
+
+
+✍️ ورود به کانال اطلاع رسانی وی پاری 
+✈️
+</div>
+
+## tasiyanc — post 11089
+
+<div align="center"><video src="files/post_11089_tasiyanc_11089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11089_tasiyanc_11089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دربی فوق حساااااس میلان
+⚽️و اینتر 
+⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 
+🔥
+
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید
+🎁
+
+
+🔥شنبه بونوس 100%
+
+🔥 دوشنبه بونوس 50%
+
+
+🤖دانلود اپلیکیشن بدون فیلتر 
+🚀
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
+💸🅰g9
+</div>
+
+## tasiyanc — post 11088
+
+<div align="center"><img src="files/post_11088_tasiyanc_11088.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بیانیه جدید و مهم سیدمجتبی خامنه‌ای🇮🇷:
+
+هر لحظه آمادگی کامل رو برای جنگ داریم، به محض شروع جنگ، پاسخ کوبنده‌ای خواهیم داد.
+این سری بدون هیچ محدودیت جغرافیایی پاسخ خواهیم داد! (اشاره به موشکای قاره پیما!)
+ایندفعه اگه آمریکا و اسرائیل دست به ترور بزنه، دیگه پایان جنگ دست خودشون نیست و ولشون نمی‌کنیم.
+در جنگ بعدی دارایی‌های مادی و غیرمادی آمریکا رو مورد حمله قرار میدیم!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11087
 
@@ -254,56 +331,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 🔵 ویدیو وایرال شده ۲۴ ساعت اخیر با ۱۱ میلیون ویو از دانشگاه آزاد مشهد
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11069
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11068
-
-<div align="center"><img src="files/post_11068_tasiyanc_11068.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎰 تورنومنت های هفتگی در لنز بت
-💥 متنوع ترین آپشنهای پیشبینی
-
-🔣0️⃣0️⃣2️⃣ بونوس خوش آمدگویی
-🔣0️⃣0️⃣1️⃣بونوس برای هر واریز
-🔤0️⃣0️⃣1️⃣ بونوس کازینو
-
-💳شارژ کارت به کارت آنلاین و درگاه 🔠🔠🔠
-🔣0️⃣3️⃣ کش بک هفتگی
-🧑‍💻با انواع دیلرهای فارسی زبان
-
-🪙واریز و برداشت انواع رمز ارزها 💵
-
-💻همین الان وارد لنزبت شو و از جوایز ویژه ما لذت ببر🅰r8
-🔠🔠🔠🔠🔠🔠🔠
-
-📱 @Lenzbet_official
-
-📱 https://www.lenz7bet.online
-</div>
-
-## tasiyanc — post 11067
-
-<div align="center"><video src="files/post_11067_tasiyanc_11067.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11067_tasiyanc_11067.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه آمریکا به «کوه کلنگ» حمله کنه، چطور از تشعشعات هسته‌ای جون سالم به در ببریم؟!
-
-این ویدئو رو ببینید تا بدونید تو چنین شرایطی چطور از خودتون محافظت کنید. ذخیره‌ش کنید و بفرستید واسه اشناهاتون .
-
-💋 @Tasiyanc
 </div>
 
