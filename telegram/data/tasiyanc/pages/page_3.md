@@ -1,8 +1,68 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/23 01:22
+📅 آخرین بروزرسانی: 1405/08/23 12:38
 
 ---
+
+## tasiyanc — post 11324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11323
+
+<div align="center"><video src="files/post_11323_tasiyanc_11323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11323_tasiyanc_11323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g20
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11322
+
+<div align="center"><video src="files/post_11322_tasiyanc_11322.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11322_tasiyanc_11322.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از فائزه مرادنسب «بلاگر» با انتشار ویدیویی مدعی شد چادر هیچ محدودیتی برای فعالیت‌های روزمره ایجاد نمی‌کنه؛ بعد هم با چادر شیرجه زد توی دریا و شروع به غواصی کرد!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11321
+
+<div align="center"><video src="files/post_11321_tasiyanc_11321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11321_tasiyanc_11321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از اعتراضات فرانسه یه معترض با ماشین آب‌پاش یه طوری آبکش شد که احتمالاً تا چند دقیقه یادش نبود اصلاً برای چی اومده بود اعتراض کنه! 🤣
+اما نکته جالب‌تر اینکه اکانت رسمی ترامپ هم این ویدیو رو لایک کرده؛ ظاهراً این صحنه توجه ترامپ رو هم جلب کرده!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11320
 
@@ -226,56 +286,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g19
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11299
-
-<div align="center"><img src="files/post_11299_tasiyanc_11299.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵دوست داری ببینی ChatGPT چقدر تو رو می‌شناسه؟
-کافیه عکس این اتاق خالی رو براش بفرستی و این پرامپت رو بنویسی:
-
-Fill this room with what you know about me
-
-هوش مصنوعی با توجه به شناختی که ازت داره، علایق و شخصیتت، اتاقت رو به شکلی اختصاصی طراحی می‌کنه!
-امتحانش کن، نتیجه می‌تونه غافلگیرت کنه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کری خوندن بوکسور آذربایجانی تو استانبول، آخرش به کتک‌کاری دسته‌جمعی ختم شد!
-
-مراد علیف بعد از تمسخر بوکسور محبوب ترکیه، با اشاره‌ای جنجالی به سمت تماشاگران کری خوند؛
-اما ظاهراً نمی‌دونست قراره چه بلایی سرش بیاد!
-چند لحظه بعد، هوادارها ریختن وسط رینگ و تا رختکن حسابی از خجالتش دراومدن!
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11297
-
-<div align="center"><video src="files/post_11297_tasiyanc_11297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11297_tasiyanc_11297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی زیبا از برف پاییزی در سوباتانِ تالش، گیلان🌨️
-
-سوباتان یکی از زیباترین ییلاقات شمال ایران که با دشت‌های سرسبز، کلبه‌های چوبی و چشم‌اندازهای کوهستانی‌اش به بهشت طبیعت‌گردها معروفه.
-💋﻿@Tasiyanc
-</div>
-
-## tasiyanc — post 11296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 
