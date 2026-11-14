@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 39
 
-📅 آخرین بروزرسانی: 1405/08/23 19:29
+📅 آخرین بروزرسانی: 1405/08/23 23:55
 
 ---
+
+## tasiyanc — post 10519
+
+<div align="center"><img src="files/post_10519_tasiyanc_10519.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G2🅰
+🛒 ورود به سایت 👇
+✅ https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10518
+
+<div align="center"><video src="files/post_10518_tasiyanc_10518.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10518_tasiyanc_10518.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 این دو تا گربه رو بخاطر اینکه مدام باهم دعوا میکردن، توی بخش‌های جداگونه گذاشتن، اما بازم جلودارشون نبود و این شاهکارو خلق کردن:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10517
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+•کانفیگ اختصاصی نامحدود نپسترنت📱
+
+•سرور سرعتی تست شده تمام اپراتور ها ⚡️
+
+
+•آموزش اتصال ⚡️
+
+
+
+•اتصال امن برای همه 🇮🇷
+
+ @TASIYANC
+</div>
+
+## tasiyanc — post 10516
+
+<div align="center"><img src="files/post_10516_tasiyanc_10516.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨زامیاد Z25 به عنوان جایگزین نیسان آبی رونمایی شد
+‌
+امروز با حضور وزیر صمت زامیاد Z25 در شرکت سایپا رونمایی شد.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10515
 
@@ -280,44 +347,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 درس زندگی : به هر مادر*نده ای نباید محبت کرد
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10491
-
-<div align="center"><video src="files/post_10491_tasiyanc_10491.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10491_tasiyanc_10491.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اولین روز مدرسه در ایران :
-
-لباساتونو اتو کردید؟🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10490
-
-<div align="center"><img src="files/post_10490_tasiyanc_10490.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-به زیباترین فصل سال خوش اومدید. 🍁🧡
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨بعد از گرمای شدید هفته اول مهر ماه، اواخر هفته دوم سرمای شدید داریم و به عنوان مثال هوای مشهد بیشتر از ۲۰ درجه سرد میشه و سیستم‌های گرمایشی و بخاری‌ ها باید روشن بشه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀 📆 بلژیک - اسلوونی ⏰ ساعت ۱۷:۳۰ 🌎 📲 ایتالیا - فنلاند 😀 ساعت ۲۲:۳۰ 🌎   📺بونوس خوش آمدگویی ورزشی🎁 🎁 بالاترین حد مبلغ شرط🎁 🏆واریز جوایز در کمتر از 24 ساعت⭐️ 👩‍💻پشتیبانی از طریق چت زنده⌨️ ✈️ https://t.me/BerryBetOfficial…
 </div>
 

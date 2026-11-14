@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/23 19:29
+📅 آخرین بروزرسانی: 1405/08/23 23:55
 
 ---
+
+## tasiyanc — post 11173
+
+<div align="center"><video src="files/post_11173_tasiyanc_11173.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11173_tasiyanc_11173.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی که از مهریه متفاوت و به‌اصطلاح «سبک» یک زوج در فضای مجازی وایرال شده، حسابی مورد توجه قرار گرفته:
+۶۹ سکه تمام بهار آزادی
+۴ عدد نیم‌سکه
+۱۲ عدد ربع‌سکه
+۳۶ گرم طلای ۲۴ عیار
+یک سرویس طلای ۱۸ عیار با فیروزه نیشابور
+کاشت ۱۸ اصله درخت سرو
+کاشت ۱۹ اصله درخت بلوط ایرانی
+هزینه سفر به جام جهانی
+۱۳۳۹ شاخه گل مریم طبیعی
+اما قسمت جالب ماجرا کجاست؟
+نحوه پرداخت مهریه: عندالمطالبه! یعنی طبق توافق، هر زمان عروس خانم مطالبه کند، داماد موظف به پرداخت آن خواهد بود.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11172
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11171
+
+<div align="center"><video src="files/post_11171_tasiyanc_11171.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11171_tasiyanc_11171.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g14
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11169
+
+<div align="center"><video src="files/post_11169_tasiyanc_11169.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11169_tasiyanc_11169.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یک فصل بزرگ از تاریخ فوتبال به پایان رسید...
+
+کریستیانو رونالدو با یک ویدئوی پنج‌دقیقه‌ای، پایانی احساسی بر دوران حضورش در تیم ملی🇵🇹 گذاشت.
+
+با خداحافظی کریستیانو رونالدو از تیم ملی پرتغال، یکی دیگه از فصل‌های طلایی فوتبال به پایان رسید 💔
+پی‌نوشت: ویدیو زیرنویس داره
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11168
 
@@ -245,67 +320,6 @@
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵پشماتون بریزه همه چی برعکس شده، این پسر فکر می‌کرد رابطه‌شون با دختره جدیه. درباره پلن رابطه حرف زده بودن. اما، یه شب دختر باهاش سکس داشته یا همون «وان نایت» و بعد ترکش کرده.
 پسر الان درگیر افسردگی شده 😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11150
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r13
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11149
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔺 بانس‌های فوق خفن مل‌بت 🔺
-
-🫴 100 درصد پاداش اولین واریز
-😀 100 درصد بانس یکشنبه ها
-🎁 100 درصد بانس چهارشنبه ها
-🔹 هر روز 1 چرخش گردونه 1 یورویی
-😀 3 درصد باز پرداخت نقدی
-😀 بانس شرط رایگان 30 دلاری
-🎩 10 درصد باز پرداخت نقدی کازینو
-🎆 بانس هدیه روز تولد
-💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
-
-💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
-
-🆕 معرفی سایت و اپلیکیشن مل‌بت
-✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11148
-
-<div align="center"><video src="files/post_11148_tasiyanc_11148.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11148_tasiyanc_11148.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 کنگره به دموکرات‌ها رسید , شکست جمهوری‌خواهان (حزب ترامپ) در انتخابات میان‌دوره‌ای
-
-•بر اساس پیش‌بینی رسانه‌های آمریکایی، دموکرات‌ها در انتخابات میان‌دوره‌ای ۲۰۲۶ هم مجلس نمایندگان و هم سنا را فتح کرده‌اند. این یک شکست سنگین برای ترامپ در دو سال پایانی دوره‌اش محسوب می‌شود و قدرت قانون‌گذاری و نظارت بر کاخ سفید را به طرف مخالف منتقل می‌کند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11147
-
-<div align="center"><video src="files/post_11147_tasiyanc_11147.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11147_tasiyanc_11147.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵علی دایی، اسطوره فوتبال ایران، در جریان مراسم خاکسپاری حمید علیدوستی، پیشکسوت فوتبال، هنگام پخش سرود جمهوری اسلامی از جای خود برنخاست.
-پی‌نوشت : برخی چهره های شناخته شده و محبوب مثل عادل فردوسی‌پور و جعفر پناهی هم بلند نشدن
 
 💋 @Tasiyanc
 </div>

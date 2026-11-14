@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/23 19:29
+📅 آخرین بروزرسانی: 1405/08/23 23:55
 
 ---
+
+## tasiyanc — post 11025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+
+برد مساوی استقلال 🔵
+
+برنده 2.000.000 میلیون شوید 🔹
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11024
+
+<div align="center"><img src="files/post_11024_tasiyanc_11024.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدار فوق حساااااس شباب الاهلی🇰🇼 و استقلال 🔵رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g5
+</div>
+
+## tasiyanc — post 11023
+
+<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
+
+قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
+بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
+</div>
 
 ## tasiyanc — post 11021
 
@@ -245,48 +304,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11005
-
-<div align="center"><img src="files/post_11005_tasiyanc_11005.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اگه یه کشور دیگه به دنیا می‌اومدی، زندگیت چه شکلی می‌شد؟
-با این سایت می‌تونی یه زندگی فرضی توی کشور دیگه رو تجربه کنی و ببینی چقدر ممکن بود سرنوشتت متفاوت باشه! امتحانش کن، ببین توی یه دنیای دیگه چه زندگی‌ای داشتی!
-
-⛓ https://1in8b.life/en/
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد! ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است. 🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری…
-</div>
-
-## tasiyanc — post 11003
-
-<div align="center"><video src="files/post_11003_tasiyanc_11003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11003_tasiyanc_11003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد!
-
-ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است.
-
-🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری قرار گرفت.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51 @NBA2kBet
 </div>
 

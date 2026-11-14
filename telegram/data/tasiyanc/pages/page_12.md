@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 12
 
-📅 آخرین بروزرسانی: 1405/08/23 19:29
+📅 آخرین بروزرسانی: 1405/08/23 23:55
 
 ---
+
+## tasiyanc — post 11085
+
+<div align="center"><video src="files/post_11085_tasiyanc_11085.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11085_tasiyanc_11085.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امروز 31 October، روز هالووینه! 🎃
+
+هالووین یکی از جشن‌های قدیمی و محبوب جهانه که هر سال در شب ۳۱ اکتبر برگزار می‌شه. مردم با لباس‌های ترسناک و عجیب، ماسک‌های خاص و تزئین کدوحلوایی، این شب رو جشن می‌گیرن.
+از رسم‌های معروفش هم خونه‌های ترسناک، قصه‌های وحشتناک و جمله معروف «شیرینی یا شیطنت؟» (Trick or Treat) هست!
+پی‌نوشت: چند تا ویدیو وایرال شده از هالووین تهران در ۲۴ ساعت گذشته 🎃
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11083
+
+<div align="center"><img src="files/post_11083_tasiyanc_11083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حسااااس بایرن مونیخ و دورتموند رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11082
+
+<div align="center"><video src="files/post_11082_tasiyanc_11082.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11082_tasiyanc_11082.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 اگه تلگرامتون رو آپدیت نکردین، حواستون باشه! یه حفره امنیتی خطرناک توی نسخه اندروید تلگرام کشف شده!
+
+طبق گزارش یه شرکت امنیت سایبری، این آسیب‌پذیری به هکرها اجازه می‌داده با یه اکانت معمولی تلگرام با قربانی تماس بگیرن و بعد از پاسخ دادن به تماس، کد مخرب رو داخل محیط برنامه اجرا کنن!
+البته تلگرام حدود یک ماه پیش این مشکل امنیتی رو برطرف کرده و نسخه‌های جدید دیگه در برابر این آسیب‌پذیری مشکلی ندارن.
+﻿
+🔴 اگه هنوز تلگرامتون رو آپدیت نکردین، همین الان برید سراغ آخرین نسخه؛ امنیت اکانتتون رو شوخی نگیرید!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11081
 
@@ -231,42 +299,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥 میکس سری‌آ وین شد ✅ آاس رم 🆚 کالیاری — برد رم ✅ ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅ 📈 ضریب میکس: 1.808 🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳 نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7 @…
-</div>
-
-## tasiyanc — post 11065
-
-<div align="center"><img src="files/post_11065_tasiyanc_11065.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 میکس سری‌آ وین شد ✅
-
-آاس رم 🆚 کالیاری — برد رم ✅
-ساسولو 🆚 لاتزیو — لاتزیو یا مساوی (X2) ✅
-
-📈 ضریب میکس: 1.808
-🎉 هر دو انتخاب درست از آب درآمد؛ تبریک به همراهانی که با ما بودند🥳
-
-نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7
-@Tipster_Persians
-</div>
-
-## tasiyanc — post 11064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
-</div>
-
-## tasiyanc — post 11063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
-</div>
-
-## tasiyanc — post 11062
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨🚨🚨🚨 فوری
-
-گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
 </div>
 
