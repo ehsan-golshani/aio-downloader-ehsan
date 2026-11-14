@@ -1,8 +1,143 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/23 12:38
+📅 آخرین بروزرسانی: 1405/08/23 19:29
 
 ---
+
+## tasiyanc — post 11358
+
+<div align="center"><video src="files/post_11358_tasiyanc_11358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11358_tasiyanc_11358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵هر وقت احساس کردی زندگیت بی‌معنی شده، یادت باشه...
+
+یه پروتئین کوچیک به اسم «کینزین» هر روز بدون وقفه توی سلول‌های بدنت کار می‌کنه تا مولکول‌های شادی رو به مقصد برسونه🥹
+
+حتی وقتی تو خسته‌ای و انگیزه‌ای برای ادامه دادن نداری، توی بدنت میلیون‌ها اتفاق شگفت‌انگیز در جریانه! ❤️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11356
+
+<div align="center"><video src="files/post_11356_tasiyanc_11356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11356_tasiyanc_11356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه توریست خانم هلندی اومده شیراز، صبح زود با صحنه‌ای روبه‌رو شده که اصلاً انتظارشو نداشته!
+
+چند تا از هموطنا مشغول کفتر‌بازی بودن😂 و حسابی پشمای بانو ریخته !
+ویدیوش رو تو پیجش منتشر کرده و تا الان بیشتر از ۵ میلیون بازدید گرفته!
+فقط کامنت هموطنان:|
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11355
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11354
+
+<div align="center"><img src="files/post_11354_tasiyanc_11354.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰r22
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11353
+
+<div align="center"><video src="files/post_11353_tasiyanc_11353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11353_tasiyanc_11353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو پربازدید از مزاحمت یک مرد ایرانی برای گردشگر خانم روسی در استانبول!
+
+ویدیویی از تعقیب و آزار یک زن گردشگر روس توسط مردی با تابعیت ایرانی در خیابان‌های استانبول منتشر شده که حسابی در فضای مجازی و شبکه های ترکیه خبرساز شده و واکنش‌های زیادی به دنبال داشته است.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11352
+
+<div align="center"><video src="files/post_11352_tasiyanc_11352.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11352_tasiyanc_11352.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی پربازدید یک بلاگر و مدل سوئدی درباره رابطه دختران ایرانی با مردان اروپایی!
+
+او معتقد است بسیاری از دختران ایرانی انتظار دارند مرد تمام هزینه‌های رابطه را پرداخت کند و نقش حامی مالی را داشته باشد؛ در حالی که مردان اروپایی بیشتر به رابطه برابر و تقسیم هزینه‌ها به‌صورت ۵۰/۵۰ اعتقاد دارند.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11350
+
+<div align="center"><img src="files/post_11350_tasiyanc_11350.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ هیجان فوتبال رو با پیش‌بینی در یک پلتفرم حرفه ای جهانی چند برابر کن
+
+🇩🇪 آلمان 👊 🇷🇸 صربستان
+
+
+☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
+
+1️⃣ضرایب رقابتی با سایت های جهانی
+2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
+3️⃣ 100% بونوس اولین واریز
+4️⃣ هدیه پروموکد هفتگی
+
+💳 درگاه کارت فعال برای کاربران ایرانی
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰21
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11347
 
@@ -197,121 +332,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰r21
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11335
-
-<div align="center"><img src="files/post_11335_tasiyanc_11335.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یکی از عجیب‌ترین رفتارهای اسب‌های آبی برای جلب توجه ماده‌ها 😕
-
-اسب‌های آبی موقع مدفوع کردن، دمشون رو مثل ملخ هلیکوپتر می‌چرخونن و مدفوع رو تا فاصله ۱۰ متری به اطراف می‌پاشن تا توجه ماده‌ها رو جلب کنن!
-عجیب‌تر اینکه ماده‌ها هم عاشق این کارن! 😁
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11333
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11332
-
-<div align="center"><img src="files/post_11332_tasiyanc_11332.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️ تکرار نبرد تگزاس اینبار در ومبلی لندن ، چهارچوب لیگ ملت های اروپا
-
-🏴󠁧󠁢󠁥󠁮󠁧󠁿 انگلستان 👊 🇭🇷 کرواسی
-
-☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
-
-1️⃣ضرایب رقابتی با سایت های جهانی
-2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
-3️⃣ 100% بونوس اولین واریز
-4️⃣ هدیه پروموکد هفتگی
-
-💳 درگاه کارت فعال برای کاربران ایرانی
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰20
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11329
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 چینی‌ها رکورد سرعت جهان رو جابه‌جا کردن!
-
-کمپانی BYD با ابرخودروی تمام‌برقی Yangwang U9 Xtreme تونست در جاده‌ای در ابوظبی به سرعت باورنکردنی ۵۰۳ کیلومتر بر ساعت برسه و رکورد گینس سریع‌ترین خودروی تولیدی جهان رو بشکنه!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11328
-
-<div align="center"><video src="files/post_11328_tasiyanc_11328.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11328_tasiyanc_11328.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جوادی آملی: معجزه می‌خواستید؟ اینم معجزه!
-
-میگه کی فکرشو می‌کرد یه روزی برسه که دو ابرقدرت دنیا رو مچاله کنیم؟! اگه این معجزه نیست، پس چیه؟!
-از کجا به کجا رسیدیم...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قیمت بنزین سوپر داخلی اعلام شد
-
-قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
-البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11326
-
-<div align="center"><video src="files/post_11326_tasiyanc_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11326_tasiyanc_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما هم وارد فاز جدیدی شده!
-یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11325
-
-<div align="center"><video src="files/post_11325_tasiyanc_11325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11325_tasiyanc_11325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این ویدیو ببینید که مصرف ودکا چه بلایی سر سلول‌های بدن انسان میاره که فراتر از مستیُ سرخوشیه!!!
-
-ودکا معمولاً حدود ۴۰ درصد اتانول داره؛ ماده‌ای که می‌تونه به سلول‌های بدن آسیب بزنه. مصرف الکل به‌خصوص در طولانی‌مدت، به پوشش داخلی دستگاه گوارش آسیب می‌رسونه، التهاب ایجاد می‌کنه و عملکرد طبیعی سلول‌ها رو مختل می‌کنه.
-اما ماجرا فقط به روده ختم نمی‌شه؛ کبد، مغز، قلب و حتی سیستم ایمنی هم از عوارض مصرف الکل در امان نیستن.
- چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
-
-💋 @Tasiyanc
 </div>
 
