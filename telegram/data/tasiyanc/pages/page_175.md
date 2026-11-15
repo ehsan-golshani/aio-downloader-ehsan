@@ -1,8 +1,15 @@
 # آرشیو کانال tasiyanc - صفحه 175
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 6425
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه مقدار نقض نمک آتش بسه
+@Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 6424
 
@@ -198,21 +205,5 @@ https://rubika.ir/joinc/FAGFDFFH0CMSNDBGMBDNZCXRGAZFRGGA
 
 
 ✔️ T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 6402
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡️اختصاصی وایرگارد   👑
-
-حجم و کاربر نامحدود 🟢
-
-دانلود  Wg tunnel 🕹
-
-دانلود iOS 📱
-
-آموزش اتصال ⛓
-
-🔺@Tasiyanc ✅
 </div>
 

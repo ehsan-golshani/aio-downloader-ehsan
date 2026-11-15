@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11342
+
+<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
+
+چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
+مرد ایرانی وقتی متوجه ملیت او شد، گفت:
+«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
+این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
+نظر شما چیه؟
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11341
 
@@ -289,19 +306,6 @@
 🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
 
 دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11319
-
-<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
-حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
 
 💋 @Tasiyanc
 </div>

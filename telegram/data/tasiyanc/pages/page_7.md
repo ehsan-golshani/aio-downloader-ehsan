@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11201
+
+<div align="center"><video src="files/post_11201_tasiyanc_11201.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11201_tasiyanc_11201.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵114 سنگ قلبی‌شکل؛ نمادی از یک جنایت بی‌رحمانه!
+
+
+مارس ۲۰۲۳، الکسیس، خواهر بزرگ‌تر «تریستین بیلی» با یه شیشه خالی و ۱۱۴ سنگ قلبی‌شکل وارد جایگاه شهود شد. بعد جلوی چشم قاضی، سنگ‌ها رو یکی‌یکی داخل شیشه انداخت. هر سنگ نماد یکی از ۱۱۴ ضربه چاقویی بود که به خواهر کوچکش وارد شده بود. این کار نزدیک به دو دقیقه طول کشید و دادگاه توی سکوت کامل فرو رفت.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11197
 
@@ -311,16 +326,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 تحولات مهم سیاسی اسرائیل 🇮🇱 ؛ کنار رفتن نتانیاهو از قدرت! رسانه‌های اسرائیلی : گادی آیزنکوت با حمایت ۶۷ کرسی، در برابر ۴۶ کرسی حامیان نتانیاهو، مأمور تشکیل کابینه جدید اسرائیل خواهد شد 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11176
-
-<div align="center"><img src="files/post_11176_tasiyanc_11176.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-همه چیز در حال سقوط است از بورس آمریکا و طلا تا بازار کریپتو !
-- ریزش 1.4 تریلیون دلاری در کمتر از 30 دقیقه
-
-⚡ @Tasiyanc
 </div>
 

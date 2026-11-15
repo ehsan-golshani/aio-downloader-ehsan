@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11294
+
+<div align="center"><video src="files/post_11294_tasiyanc_11294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11294_tasiyanc_11294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه دانش‌آموز اصفهانی خطاب به دانش‌آموزای فرانسوی که اعتراض میکردن از شرایط مدرسه‌شون میگه و دوربین رو می‌چرخونه تا کلاسشون رو هم نشون بده 😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11293
 
@@ -289,19 +301,5 @@
 ترامپ افزود آمریکا می‌تواند 38 پل ایرانی را در عرض یک ساعت نابود کند.
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11222
-
-<div align="center"><img src="files/post_11222_tasiyanc_11222.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این کودن تاریخ رو ذوب کرد تا پیکان بخره!
-
-نصرالله معتمدی؛ شخصی که گفته می‌شه پس از انقلاب، طلای یک لوح هخامنشیِ کشف‌شده پس از چند قرن مدفون‌بودن رو آب کرد و با پولش برای همسرش یک دستگاه پیکان خرید!
-آدم می‌مونه چی بگه؛ میراث چند هزار ساله یک ملت، در حد پول خرید یک ماشین معامله شد!
-
-
-💋 @Tasiyanc
 </div>
 

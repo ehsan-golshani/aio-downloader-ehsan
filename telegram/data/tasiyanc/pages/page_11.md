@@ -1,8 +1,23 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11110
+
+<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
+
+امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
+
+توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11109
 
@@ -296,44 +311,5 @@ https://t.me/+M_YAiGu22l05YzM0
 
 ✍️ ورود به کانال اطلاع رسانی وی پاری 
 ✈️
-</div>
-
-## tasiyanc — post 11089
-
-<div align="center"><video src="files/post_11089_tasiyanc_11089.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11089_tasiyanc_11089.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دربی فوق حساااااس میلان
-⚽️و اینتر 
-⚽️ رو با آپشن های تخصصی در wepari پیشبینی کنید! 
-🔥
-
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید
-🎁
-
-
-🔥شنبه بونوس 100%
-
-🔥 دوشنبه بونوس 50%
-
-
-🤖دانلود اپلیکیشن بدون فیلتر 
-🚀
-
-
-🎁 کد هدیه 100 دلاری: Top100
-
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
-💸🅰g9
 </div>
 

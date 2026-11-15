@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11319
+
+<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
+حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11318
 
@@ -276,17 +289,5 @@ Fill this room with what you know about me
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰r19
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11294
-
-<div align="center"><video src="files/post_11294_tasiyanc_11294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11294_tasiyanc_11294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه دانش‌آموز اصفهانی خطاب به دانش‌آموزای فرانسوی که اعتراض میکردن از شرایط مدرسه‌شون میگه و دوربین رو می‌چرخونه تا کلاسشون رو هم نشون بده 😂
-
-💋 @Tasiyanc
 </div>
 

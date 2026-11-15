@@ -1,8 +1,18 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 9480
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فوررری
+🚨سنتکام:
+گروه ضربت ناو هواپیمابر جورج واشنگتن به منطقه عملیاتی ما در خاورمیانه رسید
+@Tasiyanc 
+⭐️
+</div>
 
 ## tasiyanc — post 9479
 
@@ -391,17 +401,5 @@ https://t.me/+J_q7c-COftQzOGM0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 گروه اتکر شروع بکار کرد کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن عضو بشید به پیام پین شده توجه کنید میگم چیکار میکنیم https://t.me/+Iayni3h0j24yYzE0
-</div>
-
-## tasiyanc — post 9456
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گروه اتکر شروع بکار کرد
-
-کمپین جمع آوری نخاله هایی که عکس دختر مردمو پخش میکنن
-عضو بشید به پیام پین شده توجه کنید
-میگم چیکار میکنیم
-
-https://t.me/+Iayni3h0j24yYzE0
 </div>
 

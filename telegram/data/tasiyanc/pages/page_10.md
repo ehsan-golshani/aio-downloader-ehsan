@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11133
+
+<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
+
+یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
+این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11132
 
@@ -219,19 +233,4 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 </div>
 
 ## tasiyanc — post 11111
-
-## tasiyanc — post 11110
-
-<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
-
-امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
-
-توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
-
-
-💋 @Tasiyanc
-</div>
 

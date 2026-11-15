@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11222
+
+<div align="center"><img src="files/post_11222_tasiyanc_11222.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این کودن تاریخ رو ذوب کرد تا پیکان بخره!
+
+نصرالله معتمدی؛ شخصی که گفته می‌شه پس از انقلاب، طلای یک لوح هخامنشیِ کشف‌شده پس از چند قرن مدفون‌بودن رو آب کرد و با پولش برای همسرش یک دستگاه پیکان خرید!
+آدم می‌مونه چی بگه؛ میراث چند هزار ساله یک ملت، در حد پول خرید یک ماشین معامله شد!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11221
 
@@ -304,20 +318,5 @@
 پشتیبان فارسی سایت ریتزوبت 👇🅰g16
 
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11201
-
-<div align="center"><video src="files/post_11201_tasiyanc_11201.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11201_tasiyanc_11201.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵114 سنگ قلبی‌شکل؛ نمادی از یک جنایت بی‌رحمانه!
-
-
-مارس ۲۰۲۳، الکسیس، خواهر بزرگ‌تر «تریستین بیلی» با یه شیشه خالی و ۱۱۴ سنگ قلبی‌شکل وارد جایگاه شهود شد. بعد جلوی چشم قاضی، سنگ‌ها رو یکی‌یکی داخل شیشه انداخت. هر سنگ نماد یکی از ۱۱۴ ضربه چاقویی بود که به خواهر کوچکش وارد شده بود. این کار نزدیک به دو دقیقه طول کشید و دادگاه توی سکوت کامل فرو رفت.
-
-💋 @Tasiyanc
 </div>
 

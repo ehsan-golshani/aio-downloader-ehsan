@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/24 03:43
+📅 آخرین بروزرسانی: 1405/08/24 10:06
 
 ---
+
+## tasiyanc — post 11176
+
+<div align="center"><img src="files/post_11176_tasiyanc_11176.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چیز در حال سقوط است از بورس آمریکا و طلا تا بازار کریپتو !
+- ریزش 1.4 تریلیون دلاری در کمتر از 30 دقیقه
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11175
 
@@ -298,26 +309,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11154
-
-<div align="center"><img src="files/post_11154_tasiyanc_11154.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵از پرچم جدید آمریکا بعد از تغییر رژیم در این کشور رونمایی شد :
-
-مسلمانانی که در انتخابات میان دوره‌ای آمریکا، پیروز شدن:
-
-۱- عبدال السید
-۲- رشیده طلیب
-۳- ایلهان عمر
-۴- آدام حماوی
-۵- داریالیزا آویلا شوالیه
-۶- عایشه وهاب
-۷- آبر کاواس
-۸- نبیله سید
-
-⚡ @Tasiyanc
 </div>
 
