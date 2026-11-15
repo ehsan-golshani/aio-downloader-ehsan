@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/23 23:53
+📅 آخرین بروزرسانی: 1405/08/24 03:41
 
 ---
+
+## ProxyMTProto — post 52852
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: boberlox.site
+Port: 443
+Secret: dd9a04242727dfa0a4a7c77e7813929c01
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52851
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52850
 
@@ -164,27 +182,5 @@ Server: Unknown
 Port: 443
 Secret: dd8fbaa0a0124101a02dde083cd3613e09
 @ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52832
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nasho.poolaki.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52831
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🤖 Got a working proxy? Share it 🚀
-Есть рабочий прокси? Поделись 🚀
-
-Start @SProxyRobot, send it in, we’ll test & post it for everyone.
-Запусти @SProxyRobot, отправь, проверим и выложим для всех.
-
-🌟 Go Priority: no queue, pick your time, instant solo post.
-🌟 Приоритет: без очереди, выбираешь время, мгновенный отдельный пост.
 </div>
 
