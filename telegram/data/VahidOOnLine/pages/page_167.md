@@ -1,8 +1,117 @@
 # آرشیو کانال VahidOOnLine - صفحه 167
 
-📅 آخرین بروزرسانی: 1405/08/24 17:45
+📅 آخرین بروزرسانی: 1405/08/24 23:37
 
 ---
+
+## VahidOOnLine — post 263305
+
+<div align="center"><video src="files/post_263305_VahidOOnLine_263305.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263305_VahidOOnLine_263305.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پاسخ‌های غلامرضا جلالی، رئیس سازمان پدافند غیرعامل جمهوری اسلامی ایران، به پرسشی درباره استفاده شخصی او از ساعت هوشمند، در شبکه‌های اجتماعی خبرساز و دستمایه طنز و انتقاد کاربران شده است. انتشار تصویر جلالی با ساعت هوشمند، با توجه به هشدارهای پیشین او درباره مخاطرات امنیتی تجهیزات هوشمند، پرسش‌هایی را نیز درباره تناقض میان این هشدارها و استفاده شخصی او از چنین ابزاری مطرح کرده است.
+
+جلالی پیش‌تر درباره قابلیت‌های جمع‌آوری اطلاعات در تلفن‌های هوشمند و خطر استفاده از این تجهیزات برای مقام‌ها هشدار داده و گفته بود فعال بودن قابلیت‌هایی مانند موقعیت‌یابی می‌تواند امکان شناسایی محل افراد را فراهم کند.
+رئیس سازمان پدافند غیرعامل در دوران همه‌گیری کرونا نیز از تصمیم علی خامنه‌ای، رهبر پیشین جمهوری اسلامی، برای ممنوعیت ورود واکسن‌های آمریکایی و بریتانیایی به ایران حمایت کرده بود و این تصمیم را اقدامی «به‌جا و شجاعانه» برای صیانت از سلامت جامعه خوانده بود.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263304
+
+<div align="center"><img src="files/post_263304_VahidOOnLine_263304.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سازمان عملیات تجارت دریایی بریتانیا (UKMTO) روز جمعه، با انتشار هشداری فوری اعلام کرد گزارشی مبنی بر وقوع یک حادثه در حدود ۷.۴ کیلومتری شرق عمان دریافت کرده است. بر اساس این گزارش، ناخدای یک نفت‌کش حامل نفت خام گزارش داده که یک پرتابه ناشناس به سمت چپ بدنه این شناور اصابت کرده است. این نهاد تاکید کرد که تمامی خدمه کشتی در سلامت به سر می‌برند و تا این لحظه هیچ‌‌گونه خسارت زیست‌محیطی یا نشت نفت گزارش نشده است. به گفته این سازمان، مقام‌های مسئول در حال بررسی ابعاد و جزییات این حمله هستند و به کشتی‌های عبوری توصیه شده با احتیاط کامل تردد کنند و هرگونه تحرک مشکوک را فورا گزارش دهند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263303
+
+<div align="center"><video src="files/post_263303_VahidOOnLine_263303.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263303_VahidOOnLine_263303.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+گردوغبار شدید و کم‌سابقه عصر جمعه ۱۰ مهر بخش‌هایی از شهرستان ایرانشهر در استان سیستان و بلوچستان را فرا گرفت.
+این گردوغبار از حدود ساعت ۱۶:۰۵ آغاز شده و مناطقی از ایرانشهر، از جمله محله غریب‌آباد، را تحت تاثیر قرار داده است.
+بر اساس این ویدیوها شدت بالای گرد و غبار موجب کاهش دید و اختلال در شرایط عادی تردد شده است.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263302
+
+<div align="center"><video src="files/post_263302_VahidOOnLine_263302.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263302_VahidOOnLine_263302.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+روسیه روز جمعه ۱۰ مهر برای دومین روز پیاپی یکی از پل‌های ارتباطی کی‌یف، پایتخت اوکراین، را هدف قرار داد. این حملات بخشی از موج تشدیدشده حملات هوایی روسیه به زیرساخت‌های اوکراین است که رفت‌وآمد روزانه در پایتخت را با اختلال گسترده مواجه کرده است.
+براساس گزارش رویترز، حمله پهپادی جمعه شب به «پل جنوبی» که پیش‌تر بسته شده بود، تازه‌ترین حمله در مجموعه حملاتی بود که از روز پنجشنبه آغاز شد و به توقف کامل یا محدود شدن تردد در این پل و دو پل دیگر بر فراز رود دنیپرو انجامید. این وضعیت باعث شکل‌گیری صف‌های طولانی خودروها در بخش‌های مختلف کی‌یف شد.
+ویتالی کلیچکو، شهردار کی‌یف، پیش از حمله اخیر جلسه شورای امنیت شهر را برای بررسی خطرها برگزار کرد و وضعیت پایتخت را «بسیار بحرانی» توصیف کرد. بیش از یک‌سوم جمعیت حدود سه میلیون نفری کی‌یف پیش از آغاز جنگ در کرانه شرقی رود دنیپرو زندگی می‌کردند، در حالی که بخش عمده مراکز دولتی و شرکت‌ها در کرانه غربی قرار دارند.
+مقام‌های اوکراینی همچنین اعلام کردند که در حمله پهپادی دیگری به یک ساختمان مسکونی در کی‌یف، یک نفر کشته و دو نفر زخمی شدند. در خارکیف نیز حمله با بمب هدایت‌شونده روسیه دو کشته و ۳۲ زخمی بر جا گذاشت.
+وزارت دفاع روسیه اعلام کرد پهپادهای این کشور یک پل در کی‌یف، یک نیروگاه در اطراف پایتخت، بندر ایزمائیل و یک کشتی باری را هدف قرار داده‌اند و مدعی شد همه این اهداف کاربرد نظامی داشته‌اند. هم‌زمان، ارتش اوکراین اعلام کرد پهپادهای این کشور پالایشگاه لوک‌اویل در ولگوگراد و یک تاسیسات نفتی دیگر در منطقه سامارا در روسیه را هدف قرار داده‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263301
+
+<div align="center"><img src="files/post_263301_VahidOOnLine_263301.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دفاع مدنی عربستان سعودی، بامداد شنبه، با انتشار بیانیه‌ای اعلام کرد که در پی رهگیری و انهدام یک موشک بالستیک شلیک‌شده از سوی شبه‌نظامیان حوثی به سمت منطقه «عسیر»، ترکش‌های حاصل از این رهگیری در استان «احد رفیده» سقوط کرده است. بر اساس این گزارش، بر اثر اصابت این ترکش‌ها، یک تبعه آسیایی مقیم این کشور مجروح شده و خساراتی نیز به یک نمازخانه در داخل یک ساختمان و شماری از خودروها وارد آمده است. به گفته سخنگوی دفاع مدنی، نیروهای امدادی بلافاصله در محل حادثه حضور یافته و تدابیر و سازوکارهای لازم را به اجرا گذاشته‌اند.
+Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263300
+
+<div align="center"><video src="files/post_263300_VahidOOnLine_263300.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263300_VahidOOnLine_263300.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوهای رسیده به ایران‌اینترنشنال نشان می‌دهند گروهی از ایرانیان ساکن دانمارک جمعه ۱۰ مهر علیه اعدام‌های جمهوری اسلامی در شهر کپنهاگ تجمع کردند.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263299
+
+<div align="center"><img src="files/post_263299_VahidOOnLine_263299.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نیکی هیلی، سفیر پیشین آمریکا در سازمان ملل، در شبکه اجتماعی ایکس درباره جنگ آمریکا با جمهوری اسلامی نوشت: «نفت دوباره در حال جریان است و ارزش پول حکومت ایران با سقوط آزاد مواجه شده است. تنها راه پایان دادن به این جنگ، ادامه فشار حداکثری است.»
+
+هیلی افزود: «وقتی این حکومت شکست بخورد، از یک سو ایران دیگر تهدیدی برای اسرائیل یا متحدان ما در خلیج فارس نخواهد بود و از سوی دیگر، چین و روسیه نیز از این بابت متضرر خواهند شد.»
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 263298
+
+<div align="center"><video src="files/post_263298_VahidOOnLine_263298.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_263298_VahidOOnLine_263298.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیوی ارسال‌شده به ایران‌اینترنشنال نشان می‌دهد یک دانش‌آموز تصاویر روح‌الله خمینی را از کتاب‌های درسی خود پاره کرده و روی کتاب‌هایش «جاوید شاه» نوشته است.
+IranintlTV
+
+🤖 @VahidOOnLine
+</div>
 
 ## VahidOOnLine — post 263297
 
@@ -173,129 +282,6 @@ IranintlTV
 
 طرح امنیت اشاعه، ائتلافی بین‌المللی است که در سال ۲۰۰۳ به ابتکار آمریکا و برای جلوگیری از انتقال سلاح‌های کشتار جمعی و تجهیزات مرتبط به آن‌ها به دست «دولت‌های غیرمسئول» راه‌اندازی شد.
 Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263284
-
-<div align="center"><img src="files/post_263284_VahidOOnLine_263284.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرماندهی ائتلاف نظامی به رهبری عربستان سعودی روز جمعه ۱۰ مهر اعلام کرد که نیروهای این ائتلاف توانسته‌اند سه موشک بالستیک شلیک‌شده از سوی حوثی‌های یمن را رهگیری و منهدم کنند.
-
-به گزارش ائتلاف، این موشک‌ها شهر خمیس مشیط در جنوب عربستان سعودی را هدف قرار داده بودند که پیش از اصابت، در آسمان منطقه رهگیری و نابود شدند.
-
-این ائتلاف پیش‌تر در روز پنجشنبه نیز از انهدام چهار پهپاد و دو موشک بالستیک دیگر حوثی‌های یمن در همین منطقه خبر داده بود. همچنین حوثی‌ها در روز پنجشنبه بخشی از شبکه تامین برق شهر مدینه را هدف حمله پهپادی قرار دادند.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263283
-
-<div align="center"><video src="files/post_263283_VahidOOnLine_263283.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263283_VahidOOnLine_263283.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیویی منتشرشده در شبکه‌های اجتماعی نشان می‌دهد که فرزند جاویدنام بهرام یوسفی، از جان‌باختگان انقلاب ملی ایرانیان در دی‌ماه ۱۴۰۴، شمع تولد پدرش را فوت می‌کند.
-
-بهرام یوسفی، ۲۹ ساله، در بازار تهران در زمینه پوشاک فعالیت می‌کرد و صاحب یک واحد تولیدی لباس کودک بود. بر اساس گزارش‌های منتشرشده، او ۱۸ دی‌ماه ۱۴۰۴ در جریان انقلاب ملی ایرانیان در محله نازی‌آباد تهران با شلیک نیروهای سرکوبگر کشته شد.
-
-گزارش‌های منتشرشده به نقل از منابع آگاه حاکی است که گلوله به قلب بهرام یوسفی اصابت کرده بود.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263282
-
-<div align="center"><img src="files/post_263282_VahidOOnLine_263282.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عباس گودرزی، سخنگوی هیات‌رییسه مجلس، به خبرگزاری تسنیم گفت: «دشمن بداند ملت ایران به کمال نترسیدن از مرگ رسیده‌اند و هزینه مقاومت را به مراتب کمتر از تسلیم می‌دانند. دست نیروهای مسلح روی ماشه است و خود را برای هر وضعیتی در همه سطوح جنگ نظامی، تسلیح و تجهیز کرده است و هیچ محدودیتی در توان دفاعی ندارد.»
-
-این نماینده مجلس ادامه داد: «هر کشوری خاک خود را در اختیار آمریکا و اسرائیل برای حمله نظامی علیه ما قرار دهد، بداند که جمهوری اسلامی در مسائل دفاعی و امنیت ملی و تمامیت ارضی با احدی تعارف ندارد و هر کشوری این خطا را مرتکب شود، کاملا متفاوت از قبل مجازات خواهد شد.»
-
-گودرزی اضافه کرد که ما برای دفاع از خود «برگ‌های رو نشده» فراوانی در اختیار داریم.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263281
-
-<div align="center"><video src="files/post_263281_VahidOOnLine_263281.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263281_VahidOOnLine_263281.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یک شهروند با ارسال ویدیویی به ایران‌اینترنشنال می‌گوید یک کتاب و پاوربانک را در فهرست خرید خود گذاشته بود که با بالا رفتن نرخ ارز در عرض یک روز قیمت آنها هم زیاد شده است.
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263280
-
-<div align="center"><img src="files/post_263280_VahidOOnLine_263280.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پیت هگست، وزیر جنگ ایالات متحده با انتشار یادداشتی در شبکه اجتماعی ایکس اعلام کرد که عملیات نظامی این کشور علیه جمهوری اسلامی ایران، بار دیگر «مهارت بی‌نظیر فناورانه» ارتش آمریکا را به نمایش گذاشته است.
-
-بر اساس این یادداشت، وزیر جنگ به «امیل مایکل»، مدیر ارشد فناوری پنتاگون، دستور داده است تا پروژه‌ای تحت عنوان «نصف‌النهار: آینده جنگ‌افزار» (Meridian: The Future of Warfare) را از طریق یک سازمان همکار راه‌اندازی کند. هدف از این پروژه، شناسایی توانمندی‌های حیاتی مورد نیاز نیروهای آمریکایی و ارائه راهکار برای توسعه، آزمایش و به‌کارگیری آن‌ها اعلام شده است.
-
-این دستور با اشاره به پیشرفت‌های سریع در حوزه‌های هوش مصنوعی، سامانه‌های خودمختار، انرژی هدایت‌شده، رباتیک و بیوتکنولوژی تاکید می‌کند که وزارت جنگ نباید برتری‌های فعلی خود را امری بدیهی و دائمی تلقی کند، چرا که این فناوری‌ها ماهیت جنگ‌های آینده را به کلی دگرگون خواهند کرد.
-Indypersian
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263279
-
-<div align="center"><img src="files/post_263279_VahidOOnLine_263279.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حسین حسینی کارنامی، امام جمعه ساری، در خطبه‌های نماز جمعه این شهر گفت: «اگر بناست فرودگاه ما بسته شود، هیچ فرودگاهی در منطقه باز نخواهد بود و اگر نفت ما صادر نشود، هیچ کشتی نفتی از خلیج فارس عبور نخواهد کرد.»
-
-او ادامه داد: «تنگه هرمز با پول یا پشتیبانی قدرت‌های خارجی باز و بسته نخواهد شد، بلکه مقاومت و سربازان این سرزمین در تعیین سرنوشت آن نقش دارد.»
-
-امام جمعه ساری افزود: «برخی تصور می‌کنند طوفان‌الاقصی اشتباه بود، اما این عملیات دستاوردهای عظیمی داشت و طرح پیمان ابراهیم را که قرار بود قدس و مساله فلسطین را برای همیشه فراموش کند، از بین برد.»
-IranintlTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263278
-
-<div align="center"><video src="files/post_263278_VahidOOnLine_263278.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263278_VahidOOnLine_263278.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-In January 2026, Iran’s internet was shut down. With no foreign journalists on the ground and no independent reporting, much of what happened was recorded by the people who were there. Across the country, people filmed protests, shootings, arrests, the wounded, the dead and the aftermath. Their footage reached the outside world in fragments, often without clear dates, locations or context.
-
-This Is Our Story brings these images together with first-hand accounts from eyewitnesses, survivors and bereaved families, revealing how events unfolded and what people experienced. The documentary restores context to isolated clips, preserves testimony and creates a fuller record of what happened. English subtitles make that record accessible beyond Iran.
-All four episodes are available on Manoto’s youtube channel (bio).
-ManotoTV
-
-🤖 @VahidOOnLine
-</div>
-
-## VahidOOnLine — post 263277
-
-<div align="center"><video src="files/post_263277_VahidOOnLine_263277.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_263277_VahidOOnLine_263277.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدار مادر جاویدنام پارسا امینی با خانواده‌های جاویدنامان رامسر بر سر مزار عزیزانشان.
-او با انتشار این ویدیو نوشت که در نخستین پنج‌شنبه‌ای که بر مزار پارسا نبود، به دیدار خانواده‌های داغدار رامسر رفت: «انگار ما فامیل هم بودیم، از یک خانواده بزرگ؛ دردمان یکی بود.»
-مادر پارسا از دلتنگی بی‌پایان برای فرزندانشان گفت و نوشت که در آغوش گرفتن یکدیگر، کمی از سنگینی این درد کم می‌کرد.
-
-محمدپارسا امینی، نوجوان ۱۷ ساله اهل فردیس کرج، شامگاه ۱۸ دی‌ماه ۱۴۰۴ در محدوده فلکه پنجم فردیس، هنگام کمک به یک مجروح، هدف شلیک گلوله قرار گرفت و جان باخت. او متولد ۵ آذر ۱۳۸۷، کوچک‌ترین فرزند و تنها پسر خانواده بود؛ نوجوانی که برای رسیدن به استقلال مالی کار می‌کرد و بخشی از درآمدش را به حمایت از کودکان کار اختصاص می‌داد.
-ManotoTV
 
 🤖 @VahidOOnLine
 </div>
