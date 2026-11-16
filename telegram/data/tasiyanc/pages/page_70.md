@@ -1,8 +1,16 @@
 # آرشیو کانال tasiyanc - صفحه 70
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 9736
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 حملات موشکی از بیدگنه ، شیراز ، کرج ، خرماباد ، تبریز ، خمین
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9735
 
@@ -262,11 +270,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9702
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دلار 210.000 تومان 😐
 </div>
 

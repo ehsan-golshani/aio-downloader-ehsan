@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 184
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 6220
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+nuclear bomb 💥.npvt
+</div>
 
 ## tasiyanc — post 6219
 
@@ -164,11 +170,5 @@ tg://proxy?server=37.27.192.211&port=8443&secret=dd104462821249bd7ac519130220c25
 آموزش⏩
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 6195
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-SuperFast @Tasiyanc 🪐⚡.npvt
 </div>
 

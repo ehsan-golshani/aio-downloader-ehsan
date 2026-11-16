@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 175
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 6447
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡ Fast 🚀 💥.npvt
+</div>
 
 ## tasiyanc — post 6446
 
@@ -188,11 +194,5 @@ FAST⚡TASIYAN🚀.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭕️⭕️
-</div>
-
-## tasiyanc — post 6420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تمام کانفیگای ک گذاشتیم با قدرت وصلن 🚀
 </div>
 

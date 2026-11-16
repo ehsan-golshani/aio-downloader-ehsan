@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 11289
+
+<div align="center"><video src="files/post_11289_tasiyanc_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11289_tasiyanc_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده؛ کاسبی امروز یه مرد ضایعاتی با جمع‌آوری کارتن، قوطی نوشابه و زباله‌های قابل بازیافت!
+
+++ نکته تلخ ماجرا اینجاست که به‌جای کارتن، انگار کلی پول مملکت رو انداختن توی سطل زباله!
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11288
 
@@ -294,19 +308,5 @@
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11217
-
-<div align="center"><img src="files/post_11217_tasiyanc_11217.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵عادی‌ترین توییت ترامپ؛ ظاهراً می‌خواد کاخ سفید رو هم تبدیل به رینگ UFC کنه!
-
-به دانا وایت، رئیس UFC، پیشنهاد داده سخنگوی کاخ سفید بشه و گفته می‌خواد چهره‌هایی مثل حبیب نورماگمدوف، اسلام ماخاچف، آماندا نونس و کایلا هریسون رو هم دور خودش جمع کنه!
-جالب‌تر اینکه گفته وظیفه این تیم، دفاع از آمریکا در برابر «دیوانه‌های چپ» خواهد بود! 😐
-
-
-💋 @Tasiyanc
 </div>
 

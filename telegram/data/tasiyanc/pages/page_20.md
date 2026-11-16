@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 10942
+
+<div align="center"><video src="files/post_10942_tasiyanc_10942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10942_tasiyanc_10942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 امـروز ۳۰ مهر، روز پـسـره‍
+
+شما ثابت کردید که مردانگی به سن‌ُ سال نیست روزتون مبارک پسرای خوش‌قلب ایران‌زمین ...
+
+بفرست واسه پسر خوشگلت 🩵
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10941
 
@@ -275,28 +291,5 @@ G29🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⭐️ بونوس خوش‌آمدگویی NBA در بری بت! 🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن! 💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان ✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر 🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون…
-</div>
-
-## tasiyanc — post 10921
-
-<div align="center"><img src="files/post_10921_tasiyanc_10921.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭐️ بونوس خوش‌آمدگویی NBA در بری بت!
-
-🏆 اولین شرط ترکیبی NBA خودت رو ثبت کن و شانست رو برای دریافت شرط رایگان امتحان کن!
-
-💰 حداقل شارژ و مبلغ شرط: ۱ میلیون تومان
-✨ حداقل ۴ انتخاب با ضریب ۱.۹۲ یا بالاتر
-🎁 در صورت باخت شرط اول، ۱۰۰٪ مبلغ شرطت رو تا سقف ۱۰ میلیون تومان به‌صورت شرط رایگان دریافت کن!
-📈 شرط زنده یا پیش از شروع بازی؟ انتخاب با توئه!
-
-💬 همین حالا در بری بت ثبت‌نام کن و بونوس خوش‌آمدگویی NBA رو از دست نده!
-
-🛒 ورود به سایت 👇🅰g28
-⭐️ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
-
-🌐 کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 153
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 7191
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+SIUUUUUUUUUUUUUUUUUU! 🐐🌟
+</div>
 
 ## tasiyanc — post 7190
 
@@ -233,11 +239,5 @@ GN⚡⚡🇩🇪FST🇮🇹.npvt
 آموزش اتصال ⛓
 
 T.me/Tasiyanc ✅
-</div>
-
-## tasiyanc — post 7166
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چطوریددد؟
 </div>
 

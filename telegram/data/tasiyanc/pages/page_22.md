@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 10901
+
+<div align="center"><video src="files/post_10901_tasiyanc_10901.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10901_tasiyanc_10901.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تو اندونزی رفتن از فوران آتشفشان فیلم بگیرن، اما ماجرا به قیمت جونشون تموم شد!
+
+از 26 نفری که برای تماشای فوران آتشفشان در اندونزی رفته بودن، 23 نفر کشته شدن؛ از جمله مردی که مشغول فیلم‌برداری بود و ناگهان با سقوط گدازه بزرگ روی سرش ریگ رحمت رو سر کشید
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10900
 
@@ -277,18 +291,5 @@ G25🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10880
-
-<div align="center"><img src="files/post_10880_tasiyanc_10880.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-حرکت پشم افکن دیگر از آموزش‌پرورش
-
-🔵ظاهراً «آخوندک» هم زیادی حساسیت‌برانگیز بوده، تغییرش دادن به «راهِبَک»!
-وقتی به‌جای حل مشکلات کشور، دغدغه اینه که مبادا اسم یه حشره به کسی بربخوره!
-
-⚡ @Tasiyanc
 </div>
 

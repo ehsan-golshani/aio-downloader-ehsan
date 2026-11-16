@@ -1,8 +1,25 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 11003
+
+<div align="center"><video src="files/post_11003_tasiyanc_11003.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11003_tasiyanc_11003.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کاخ رضاشاه پهلوی در کلاردشت پس از سال‌ها به روی عموم باز شد!
+
+ویدیویی از کاخ رضاشاه در روستای اُجابیت کلاردشت مازندران منتشر شده که حالا درهای آن به روی بازدیدکنندگان باز شده است.
+
+🏛 این کاخ در سال ۱۳۱۸ ساخته شد و پس از انقلاب در اختیار نهاد ریاست‌جمهوری قرار گرفت.
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11002
 
@@ -276,16 +293,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10983
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
 </div>
 

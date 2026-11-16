@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/25 03:41
+📅 آخرین بروزرسانی: 1405/08/25 10:02
 
 ---
+
+## tasiyanc — post 10983
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
 
 ## tasiyanc — post 10982
 
@@ -304,18 +315,5 @@ VPN FREE
 🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10963
-
-<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
-
-مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
-💋 @Tasiyanc
 </div>
 
