@@ -1,8 +1,193 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/25 10:02
+📅 آخرین بروزرسانی: 1405/08/25 19:47
 
 ---
+
+## tasiyanc — post 11350
+
+<div align="center"><img src="files/post_11350_tasiyanc_11350.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ هیجان فوتبال رو با پیش‌بینی در یک پلتفرم حرفه ای جهانی چند برابر کن
+
+🇩🇪 آلمان 👊 🇷🇸 صربستان
+
+
+☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
+
+1️⃣ضرایب رقابتی با سایت های جهانی
+2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
+3️⃣ 100% بونوس اولین واریز
+4️⃣ هدیه پروموکد هفتگی
+
+💳 درگاه کارت فعال برای کاربران ایرانی
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰21
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11347
+
+<div align="center"><video src="files/post_11347_tasiyanc_11347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11347_tasiyanc_11347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شاید باورتون نشه، اما این مرد در ترکیه ۲۷ ساله که در یک مکان منتظر بازگشت دختریه که عاشقش بوده!
+ماجرا از جایی شروع شد که ۲۷ سال پیش، دختر بهش گفت: «منتظرم بمون، برمی‌گردم...»اما دیگه هیچ‌وقت برنگشت!
+با گذشت این همه سال، مرد همچنان به انتظارش ادامه می‌ده. مردم محلی هم وقتی دیدن دست از انتظار نمی‌کشه، براش آب و غذا می‌برن تا تنها نمونه...
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11346
+
+<div align="center"><video src="files/post_11346_tasiyanc_11346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11346_tasiyanc_11346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال‌شده از پلیس برزیل، لحظه بازداشت مردی را نشان می‌دهد که به ضرب‌وشتم مادرش متهم شده ...
+
+یه جوری رید به خودش که دیگه از این غلطا نکنه
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11345
+
+<div align="center"><video src="files/post_11345_tasiyanc_11345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11345_tasiyanc_11345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرار مرگبار در مسیر خلاف؛ سمند شوتی پس از برخورد با خودروی دیگر منفجر شد💥!
+
+در جریان تعقیب‌وگریز در استان هرمزگان، راننده یک دستگاه «سمند مشکی» که در حال فرار از مأموران و حرکت در خلاف جهت اتوبان بود، با یک خودروی سواری دیگر برخورد کرد.
+بر اساس ویدئوی منتشرشده از این حادثه، خودرو پس از برخورد دچار انفجار شد.
+گفته می‌شود خودروی سمند از نوع شوتی بوده است. تاکنون جزئیات بیشتری درباره علت تعقیب‌وگریز و وضعیت سرنشینان خودروها منتشر نشده است.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11343
+
+<div align="center"><img src="files/post_11343_tasiyanc_11343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g21
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11342
+
+<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
+
+چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
+مرد ایرانی وقتی متوجه ملیت او شد، گفت:
+«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
+این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
+نظر شما چیه؟
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11341
+
+<div align="center"><video src="files/post_11341_tasiyanc_11341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11341_tasiyanc_11341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 عجیب‌ترین مسابقه‌ای که تا حالا دیدیم!
+
+قانونش خیلی ساده‌ست؛ هر شرکت‌کننده‌ای که بتونه باسن حریفش رو قرمزتر کنه، برنده مسابقه می‌شه! 😂
+
+از بهترین ورزشهای جهان 👍🏻
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+در صورت ارور دو سه بار بزنید
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 11339
+
+<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
+
+دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
+دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11338
+
+<div align="center"><img src="files/post_11338_tasiyanc_11338.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پست جدید پاول دروف، مالک تلگرام:
+
+واقعاً بی‌انصافیه! سازمان‌های جاسوسی فقط دخترای آسیایی رو برای به دام انداختن مدیرعامل‌ها می‌فرستن؛ پس تکلیف اون مدیرعامل‌هایی که از دخترای آسیایی خوششون نمیاد چی می‌شه؟!
+
+پس جاسوس‌های خوشگل فرانسوی🇫🇷، روسی🇷🇺 و ایرانی🇮🇷 کجان؟
+حتی یه دختر جاسوس هم سراغ من نفرستادن! اصلاً دارن تلاش می‌کنن یا نه؟
+البته فرانسه معافه، چون تصمیم‌ گیرنده‌هاشون اصلاً به دخترا علاقه ندارن🏳️‍🌈! ولی بقیه کشورها باید بیشتر تلاش کنن...
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11337
 
@@ -141,151 +326,5 @@
 یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11325
-
-<div align="center"><video src="files/post_11325_tasiyanc_11325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11325_tasiyanc_11325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این ویدیو ببینید که مصرف ودکا چه بلایی سر سلول‌های بدن انسان میاره که فراتر از مستیُ سرخوشیه!!!
-
-ودکا معمولاً حدود ۴۰ درصد اتانول داره؛ ماده‌ای که می‌تونه به سلول‌های بدن آسیب بزنه. مصرف الکل به‌خصوص در طولانی‌مدت، به پوشش داخلی دستگاه گوارش آسیب می‌رسونه، التهاب ایجاد می‌کنه و عملکرد طبیعی سلول‌ها رو مختل می‌کنه.
-اما ماجرا فقط به روده ختم نمی‌شه؛ کبد، مغز، قلب و حتی سیستم ایمنی هم از عوارض مصرف الکل در امان نیستن.
- چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11323
-
-<div align="center"><video src="files/post_11323_tasiyanc_11323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11323_tasiyanc_11323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g20
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11322
-
-<div align="center"><video src="files/post_11322_tasiyanc_11322.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11322_tasiyanc_11322.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از فائزه مرادنسب «بلاگر» با انتشار ویدیویی مدعی شد چادر هیچ محدودیتی برای فعالیت‌های روزمره ایجاد نمی‌کنه؛ بعد هم با چادر شیرجه زد توی دریا و شروع به غواصی کرد!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11321
-
-<div align="center"><video src="files/post_11321_tasiyanc_11321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11321_tasiyanc_11321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از اعتراضات فرانسه یه معترض با ماشین آب‌پاش یه طوری آبکش شد که احتمالاً تا چند دقیقه یادش نبود اصلاً برای چی اومده بود اعتراض کنه! 🤣
-اما نکته جالب‌تر اینکه اکانت رسمی ترامپ هم این ویدیو رو لایک کرده؛ ظاهراً این صحنه توجه ترامپ رو هم جلب کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11320
-
-<div align="center"><img src="files/post_11320_tasiyanc_11320.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
-
-دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11319
-
-<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
-حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11318
-
-<div align="center"><img src="files/post_11318_tasiyanc_11318.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ماریسا برنسون، مدل و بازیگر آمریکایی جلوی امامزاده هارونیه اصفهان، در حال ژست گرفتن برای پروژه عکاسی برای مجله مد Vogue، پنجاه سال پیش!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11317
-
-<div align="center"><video src="files/post_11317_tasiyanc_11317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11317_tasiyanc_11317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرار خنده‌دار یک پنگوئن از محل نگهداری‌اش در پارک قطبی شهر هاربین چین
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11316
-
-<div align="center"><img src="files/post_11316_tasiyanc_11316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵زودتر خوابیدن چه ارتباطی با کاهش وزن دارد؟
-
-نتایج یک پژوهش جدید در دانشگاه نیویورک نشان می‌دهد زمان به خواب رفتن ممکن است در کاهش وزن نقش داشته باشد. محققان دریافتند افرادی که زودتر می‌خوابیدند، طی یک دوره هشت‌هفته‌ای کاهش وزن بیشتری را تجربه کردند؛ به‌طوری‌که هر ساعت با حدود ۱.۳ پوند (۰.۶ کیلوگرم) کاهش وزن در طول هشت هفته مرتبط بود. این ارتباط مستقل از مدت زمان خواب شبانه مشاهده شد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

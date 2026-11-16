@@ -1,8 +1,153 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/25 10:02
+📅 آخرین بروزرسانی: 1405/08/25 19:47
 
 ---
+
+## tasiyanc — post 11139
+
+<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11138
+
+<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
+ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11137
+
+<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11136
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔖 اپلیکیشن MelBet ✅
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r12
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11135
+
+<div align="center"><img src="files/post_11135_tasiyanc_11135.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حساااااس بایرن مونیخ و اتلتیکو مادرید رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
+
+## tasiyanc — post 11134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجموعه 10 سرور اختصاصی پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 10 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11133
+
+<div align="center"><video src="files/post_11133_tasiyanc_11133.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11133_tasiyanc_11133.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایت یک ایرانی از شرایط زندگی در کره شمالی 🇰🇵
+
+یک شهروند ایرانی که به کره شمالی سفر کرده، ویدئویی از مشاهدات خود در این کشور منتشر کرده است.
+این تصاویر بخش‌هایی از فضای شهری و شرایط زندگی مردم در کره شمالی را نشان می‌دهد؛ کشوری که به‌دلیل محدودیت‌های شدید رسانه‌ای و ارتباطی، اطلاعات محدودی از زندگی روزمره مردم آن در دسترس افکار عمومی جهان قرار دارد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11132
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
+
+## tasiyanc — post 11131
+
+<div align="center"><img src="files/post_11131_tasiyanc_11131.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
+
+https://t.me/+R2nwb5FUo0RjYTVk
+https://t.me/+R2nwb5FUo0RjYTVk
+
+🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
+</div>
+
+## tasiyanc — post 11130
+
+<div align="center"><img src="files/post_11130_tasiyanc_11130.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری توییت فرماندهی تفنگداران ویژه دریایی ارتش ایالات متحده
+«آماده اعزام»
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11129
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سلام و درود رفقا ، عزیزای دلم «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد» مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️ نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید…
+</div>
 
 ## tasiyanc — post 11127
 
@@ -112,141 +257,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 یک جت شخصی در ایالت فلوریدای آمریکا سقوط کرد؛ حادثه‌ای مرگبار که به کشته شدن ۹ نفر منجر شد. محل سقوط در نزدیکی اقامتگاه مارالاگو، متعلق به دونالد ترامپ بوده و حالا این سانحه خبرساز شده است!
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11118
-
-<div align="center"><img src="files/post_11118_tasiyanc_11118.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 وینیسیوس هم بدجوری ضایع شد!
-
-وینیسیوس از سیدی سینک، بازیگر معروف، دعوت کرده بازی بعدی رئال مادرید رو از جایگاه VIP ببینه؛ ولی ظاهراً جواب دندون‌شکنی گرفته و سیدی سینک با بی‌محلی کامل دعوتش رو رد کرده !
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11116
-
-<div align="center"><video src="files/post_11116_tasiyanc_11116.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11116_tasiyanc_11116.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یه جواب غیرمنتظره که مصاحبه رو وایرال کرد!
-از یه دختر می‌پرسن اگه پسر بودی اولین کاری که می‌کردی چی بود؟ می‌گه بلافاصله می‌رفتم مخ دخترا رو می‌زدم، باهاشون یه شب رابطه برقرار می‌کردم و بعدشم ولشون می‌کردم!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11114
-
-<div align="center"><video src="files/post_11114_tasiyanc_11114.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11114_tasiyanc_11114.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چالش جدید وایرال شده دخترای دبیرستانی
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r11
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11112
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💛 هنوز توی MelBet با این همه آپشن خفن و ضرایب فوق العاده ثبتنام نکردی ⁉️
-
-بعد میاید سوال میکنید کدوم سایت معتبره ❗️
-
-👀 اگه میخواید توی شرطبندی موفق باشید و درآمد کسب کنید در اولین قدم باید سایتی با آپشن های بی نظیر و ضرایب استاندارد و امنیت مالی بالا داشته باشید ✔️
-
-🎚️ همین حالا از طریق لینک زیر ثبتنام کنید و وارد دنیای جدیدی از شرطبندی بشید 🆕
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-✅ معرفی سایت و اپلیکیشن مل‌بت
-💛 ورود به سایت مل‌بت (فیلترشکن خاموش)
-</div>
-
-## tasiyanc — post 11111
-
-## tasiyanc — post 11110
-
-<div align="center"><img src="files/post_11110_tasiyanc_11110.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سال 1387 که اولین بار ایران‌ چک‌های 100هزارتومنی به بازار عرضه شد، دلار 950 تومن بود که که معادل حدودا 105 دلار میشد؛
-
-امروز همین 100 هزارتومنی، معادلِ 0.37 دلار (37 سنت) ارزش داره.
-
-توی 18 سال، 281 برابر بی‌ارزش‌تر شده..
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11109
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💬 ترکیب‌ها، آمار و فرم‌های پیشنهادی رو قبل بازی با هم بررسی می‌کنیم. برای همفکری و تبادل نظر، وارد گروه شو:
-
-🔗 [ورود به گروه]
-https://t.me/+M_YAiGu22l05YzM0
-
-برای دریافت فرم‌های روزانه، وارد کانال VIP شو.
-</div>
-
-## tasiyanc — post 11108
-
-<div align="center"><video src="files/post_11108_tasiyanc_11108.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11108_tasiyanc_11108.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎯 چرا «تیپستر پرشین»؟
-آنالیز دقیق و منطقی: بررسی آماری، فرم اخیر تیم‌ها، وضعیت مصدومیت‌ها و اخبار پشت پرده مسابقات (از دیدارهای ملی و جام جهانی تا جذاب‌ترین لیگ‌ها و دوستانه باشگاهی).
-فرم‌های پیشنهادی با ارزش بالا (Value Bets): معرفی گزینه‌های هوشمندانه با بالاترین ضریب اطمینان.
-بدون هیجان کاذب: پیشنهادهای کاملاً اکشن‌پذیر، اصولی و مدیریت‌شده برای سرمایه‌گذاری امن.
-💬 فقط یک کانال نیستیم؛ یک خانواده‌ایم!
-با عضویت در گروه همفکری اختصاصی تیپستر پرشین، در کنار سایر تحلیل‌گران و علاقه‌مندان به پیش‌بینی، نظرات‌تان را به اشتراک بگذارید، از تبادل نظرها استفاده کنید و بهترین فرم‌های روز را با هم بچینید.
-🚀 همین امروز به جمع حرفه‌ای‌ها بپیوندید و بازی را به نفع خودتان تمام کنید!🅰10
-👉 [لینک ورود به کانال تلگرام / لینک گروه همفکری]
-</div>
-
-## tasiyanc — post 11107
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨قیمت‌های پشم ریزون جدید موتورسیکلت شرکت کویر که برای خرید ارزون‌ترین مدلش باید ۳۰ ماه کار کنه یه ایرانی
-
-ارزون‌ترین مدل همون هندای خودمون 428 میلیون تومان !!!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11106
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد رئال مادرید ⚽️
-+ گل زدن لیورپول⚽️+ آرسنال ⚽️
-
-برنده 2.000.000 میلیون شوید ✔
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
 </div>
 
