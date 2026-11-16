@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 78
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 51605
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee7391242569590e01416101927d38b565646e732d73686f702e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51604
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: mofid.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51603
 
@@ -163,24 +181,6 @@ Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51585
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.detourcloak.site
-Port: 443
-Secret: dd77fa53c2b5473d4715b2493f8db21eb3
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51584
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: relay.surfvpn.app
-Port: 443
-Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
 @ProxyMTProto
 </div>
 

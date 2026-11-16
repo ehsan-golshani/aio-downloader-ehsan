@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 53134
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rade48.sorrelbay.xyz
+Port: 443
+Secret: ee8a22a2efc31d03cfe33e7dc2abb809db617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53133
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: dl.linux-orggv.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53132
 
@@ -166,24 +184,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: Unknown
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53114
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eebec6acb2a5464709485d7cbeedd8612b686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53113
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 52805
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: zov.anixart.my/ed890cfffb18
+Port: 443
+Secret: ddda1386b107b1d90b21c6c395105ef450
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52804
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52803
 
@@ -164,24 +182,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: Unknown
 Port: 443
 Secret: dd91f6dd74b79cc72f81f1bf17a96b91fb
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52785
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52784
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ultra.mishutkin.click
-Port: 443
-Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

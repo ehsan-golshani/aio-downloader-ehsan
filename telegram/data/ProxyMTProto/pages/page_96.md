@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 96
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 51243
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: media9.happtg.org
+Port: 443
+Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51242
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.makkers.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51241
 
@@ -163,24 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: Unknown
 Port: 7443
 Secret: AAAAAAAAAAAAAAAAAAAAABQ=
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51223
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51222
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 69
-Secret: eebde76db082bb05e04cb5c63a32b5853d6472696c6c2e67697a616d6f66662e7472616465
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/24 23:39
+📅 آخرین بروزرسانی: 1405/08/25 03:41
 
 ---
+
+## tasiyanc — post 11379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما هم ویروسی گرفتید خوب نمیشید؟ 😐 ۷ روزه درگیرم
+</div>
+
+## tasiyanc — post 11378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝐓.𝐦𝐞__𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 🔥.zip
+</div>
 
 ## tasiyanc — post 11377
 
@@ -297,32 +309,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g22
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11359
-
-<div align="center"><img src="files/post_11359_tasiyanc_11359.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات جدید بانو آنا دِ آرماس و پارتنرش :|
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11358
-
-<div align="center"><video src="files/post_11358_tasiyanc_11358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11358_tasiyanc_11358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵هر وقت احساس کردی زندگیت بی‌معنی شده، یادت باشه...
-
-یه پروتئین کوچیک به اسم «کینزین» هر روز بدون وقفه توی سلول‌های بدنت کار می‌کنه تا مولکول‌های شادی رو به مقصد برسونه🥹
-
-حتی وقتی تو خسته‌ای و انگیزه‌ای برای ادامه دادن نداری، توی بدنت میلیون‌ها اتفاق شگفت‌انگیز در جریانه! ❤️
-
-💋 @Tasiyanc
 </div>
 

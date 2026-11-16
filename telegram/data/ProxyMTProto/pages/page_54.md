@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 52085
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.proxynet.tech
+Port: 443
+Secret: ee08787a2b7fd3220d9d35679aab082cab666173742e70726f78796e65742e74656368
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52083
 
@@ -161,24 +179,6 @@ Secret: dd8960b9810070b6dea7e1f7e2f564b461
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: darya.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52065
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: web.arixo.shop
-Port: 443
-Secret: dd27e57f496bbf279605f0198ea6d26067
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto

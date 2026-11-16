@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 53013
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Ariobarzanes.ir.igakwvwa.info.
+Port: 7443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53012
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ee54701e1686de96a44721501a7bee9e4c6c796e657474652e6d79726b612e6469676974616c
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53011
 
@@ -166,24 +184,6 @@ Secret: reserve your spot ↓
 Server: warp.webproxy.lol
 Port: 443
 Secret: eecdd352e63c109299dc978b4e94fc4897776172702e77656270726f78792e6c6f6c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52986
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52985
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ee4a26ea6bb803e4d556b56178d75a0889786531726e2e70726f787964617a68656e617061726b6f766b652e73697465
 @ProxyMTProto
 </div>
 

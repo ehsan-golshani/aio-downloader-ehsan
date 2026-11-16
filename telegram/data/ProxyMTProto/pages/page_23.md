@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 52705
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: male61.birchquay.xyz
+Port: 443
+Secret: eeb8e5365580b9ad3c2ee355dfcbc245e56d616c6536312e6269726368717561792e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52704
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: scrooge-in-web.com
+Port: 443
+Secret: dd31a4cac60809162de27818e1c7676391
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52703
 
@@ -163,24 +181,6 @@ Secret: ddf3f727407f6339621be00cc9b393e4c0
 Server: haji.estabonita.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52685
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: max.kimt.click
-Port: 443
-Secret: ee1b153cf06dbd43c6085c359a6702eb936d61782e6b696d742e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52684
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 91.107.171.35
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 @ProxyMTProto
 </div>
 

@@ -1,8 +1,27 @@
 # آرشیو کانال ProxyMTProto - صفحه 100
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 51163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ Прокси массово блокируют и отключают, забери БЕСПЛАТНЫЙ, пока работает.
+
+⚠️ Proxies are getting blocked & disconnected fast, grab a FREE one while it works.
+
+⚠️ بیشتر پروکسی‌ها سریع قطع و فیلتر می‌شن, تا دیر نشده پروکسی رایگانت رو بگیر.
+</div>
 
 ## ProxyMTProto — post 51161
 
@@ -163,24 +182,6 @@ Secret: 3XnnAQIAAQAH8AMDhuJMOt0
 Server: freeinternet.skin
 Port: 443
 Secret: ee78437f70effbb0fd37b573d600676558617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51143
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51142
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: media9.happtg.org
-Port: 443
-Secret: ee2e7c3d85e469cb8f825f4678a716a363706574726f766963682e7275
 @ProxyMTProto
 </div>
 

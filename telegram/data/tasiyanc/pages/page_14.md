@@ -1,8 +1,22 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/08/24 23:39
+📅 آخرین بروزرسانی: 1405/08/25 03:41
 
 ---
+
+## tasiyanc — post 11062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 فوری
+
+گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
+</div>
+
+## tasiyanc — post 11061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
 
 ## tasiyanc — post 11060
 
@@ -271,32 +285,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11042
-
-<div align="center"><img src="files/post_11042_tasiyanc_11042.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6
-
-https://t.me/+VmekrTukXnphNmU0
-https://t.me/+VmekrTukXnphNmU0
-
-🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11041
-
-<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
-
-
-💋 @Tasiyanc
 </div>
 

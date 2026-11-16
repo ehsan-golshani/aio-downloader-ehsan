@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 62
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 51925
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 22
+Secret: dd79e344818749bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51924
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.mishutkin.click
+Port: 443
+Secret: eef767ebee5708dadc985d58ad6e04560664726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51923
 
@@ -163,24 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: ultra.mishutkin.click
 Port: 443
 Secret: eed02e349163d9ea4376a2ae6a94fc550b64726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51905
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Qeshm.island.ir.igakwvwa.info
-Port: 7443
-Secret: 1603010200010001fc030386e24c3add
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51904
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
 @ProxyMTProto
 </div>
 

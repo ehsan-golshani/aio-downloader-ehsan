@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 16
 
-📅 آخرین بروزرسانی: 1405/08/24 23:39
+📅 آخرین بروزرسانی: 1405/08/25 03:41
 
 ---
+
+## tasiyanc — post 11022
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از ساعت 8:30 صبح، رای گیری تو اسرائیل شروع شده و نتایج اولیه انتخابات امشب حوالی ساعت 23 کم کم منتشر میشه؛ ـ طبق نظرسنجی‌های قبل از انتخابات، شانس نتانیاهو به پایین ترین مقدار در تاریخ رسیده و بنظر میرسه گادی ایزنکوت، فرمانده سابق ارتش اسرائیل و مخالف قاطع…
+</div>
+
+## tasiyanc — post 11021
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فوری آیزنکوت رقیب انتخاباتی نتانیاهو :
+
+مردم ایران باید خودشون از داخل رژیمشون تغییر ایجاد کنن؛ اینکه ما بخوایم با حمله ی نظامی رژیم ایران رو تغییر بدیم کار درستی نیست، ما نباید دخالتی کنیم این به خود مردم ایران بستگی داره که میخوان چیکار کنن.
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11020
 
@@ -272,21 +288,5 @@
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51 @NBA2kBet
-</div>
-
-## tasiyanc — post 11001
-
-<div align="center"><img src="files/post_11001_tasiyanc_11001.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51
-
-@NBA2kBet
 </div>
 

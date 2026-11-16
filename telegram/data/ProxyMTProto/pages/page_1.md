@@ -1,8 +1,29 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 53154
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: — YOUR PROXY HERE —
+Port: 443
+Secret: reserve your spot ↓
+@ProxyMTProto
+
+👆 This is where your proxy could sit — a dedicated post at the time you pick.
+🎁 First slot 50% off.
+</div>
+
+## ProxyMTProto — post 53153
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddfa0d05a84f308c0ab512ad5e2b6bebd2
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53152
 
@@ -163,24 +184,6 @@ Secret: eecb583feec28443b065f8a1f3df502eea786170692e6f7a6f6e2e7275
 Server: ir.brettanderson.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53134
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rade48.sorrelbay.xyz
-Port: 443
-Secret: ee8a22a2efc31d03cfe33e7dc2abb809db617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53133
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dl.linux-orggv.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

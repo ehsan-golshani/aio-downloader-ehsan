@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 196
 
-📅 آخرین بروزرسانی: 1405/08/24 23:39
+📅 آخرین بروزرسانی: 1405/08/25 03:41
 
 ---
+
+## tasiyanc — post 5909
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+New⚡Fast.npvt
+</div>
+
+## tasiyanc — post 5908
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+2Vip🇩🇪.npvt
+</div>
 
 ## tasiyanc — post 5906
 
@@ -205,22 +217,5 @@ Melli shekan 🪐.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 هر کدوم بیشتر رای بیاره از اون بیشتر میزاریم
-</div>
-
-## tasiyanc — post 5885
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیشتر با ovpn تا حالا وصل شدید یا با npv ؟ زمان قطعی کدوم به دادتون رسیده یادتون رفت؟
-
-Npv ❤️
-
-Ovpn 🔥
-</div>
-
-## tasiyanc — post 5884
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بیاید قبول کنیم نپستر سرعتش بیشتره از اوپنه ، زمان اتصالش سریعه و کلی موارد دیگه
-سرور ovpn شلوغ باشه ارور متعدد روبرو میشید و و و
 </div>
 

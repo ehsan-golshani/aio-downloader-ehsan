@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 53074
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddfa0d05a84f308c0ab512ad5e2b6bebd2
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53073
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53072
 
@@ -163,24 +181,6 @@ Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 Server: dns.speed-benz.co.uk
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53054
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddfa0d05a84f308c0ab512ad5e2b6bebd2
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53053
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gram.prxtg.top
-Port: 443
-Secret: eeabde1be2accd3413ec8e8a0fa256287f64726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 

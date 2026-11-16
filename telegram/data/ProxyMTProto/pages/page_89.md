@@ -1,8 +1,26 @@
 # آرشیو کانال ProxyMTProto - صفحه 89
 
-📅 آخرین بروزرسانی: 1405/08/24 23:37
+📅 آخرین بروزرسانی: 1405/08/25 03:39
 
 ---
+
+## ProxyMTProto — post 51384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: topproxt.asia
+Port: 443
+Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51383
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.simpleelegance-us.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51382
 
@@ -162,24 +180,6 @@ Secret: eefd7ec32323aa5b4fc5cdd6b7dd28836a7777772e636c6f7564666c6172652e636f6d
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: ccc.horizon555.co.uk
 Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51364
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: freetg.mishutkin.click
-Port: 443
-Secret: 87e5ee876fc0254eed830e8029a81964
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51363
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: fasle-zivaye.ir.paeez-amad.info.
-Port: 7443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>

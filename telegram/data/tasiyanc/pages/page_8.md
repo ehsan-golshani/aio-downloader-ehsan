@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/08/24 23:39
+📅 آخرین بروزرسانی: 1405/08/25 03:41
 
 ---
+
+## tasiyanc — post 11191
+
+<div align="center"><img src="files/post_11191_tasiyanc_11191.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰15
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11189
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه 20 سرور اختصاصی مولتی لوکیشن پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 20 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید 🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11188
 
@@ -288,35 +330,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g14
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11169
-
-<div align="center"><video src="files/post_11169_tasiyanc_11169.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11169_tasiyanc_11169.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یک فصل بزرگ از تاریخ فوتبال به پایان رسید...
-
-کریستیانو رونالدو با یک ویدئوی پنج‌دقیقه‌ای، پایانی احساسی بر دوران حضورش در تیم ملی🇵🇹 گذاشت.
-
-با خداحافظی کریستیانو رونالدو از تیم ملی پرتغال، یکی دیگه از فصل‌های طلایی فوتبال به پایان رسید 💔
-پی‌نوشت: ویدیو زیرنویس داره
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11168
-
-<div align="center"><video src="files/post_11168_tasiyanc_11168.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11168_tasiyanc_11168.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کتاب تاریخ زنده آوردم براتون این خانم برزیلی ۱۲۶ سالشه!
-جنگ جهانی اول و دوم، جنگ سرد و حتی انقلاب ایران رو به چشم دیده؛ بچه و نوه و نتیجه و نبیره‌ش رو هم دیده!
-
-💋 @Tasiyanc
 </div>
 
