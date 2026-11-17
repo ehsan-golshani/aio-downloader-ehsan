@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 11352
+
+<div align="center"><video src="files/post_11352_tasiyanc_11352.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11352_tasiyanc_11352.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی پربازدید یک بلاگر و مدل سوئدی درباره رابطه دختران ایرانی با مردان اروپایی!
+
+او معتقد است بسیاری از دختران ایرانی انتظار دارند مرد تمام هزینه‌های رابطه را پرداخت کند و نقش حامی مالی را داشته باشد؛ در حالی که مردان اروپایی بیشتر به رابطه برابر و تقسیم هزینه‌ها به‌صورت ۵۰/۵۰ اعتقاد دارند.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11350
 
@@ -302,29 +328,5 @@
 میگه کی فکرشو می‌کرد یه روزی برسه که دو ابرقدرت دنیا رو مچاله کنیم؟! اگه این معجزه نیست، پس چیه؟!
 از کجا به کجا رسیدیم...
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قیمت بنزین سوپر داخلی اعلام شد
-
-قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
-البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11326
-
-<div align="center"><video src="files/post_11326_tasiyanc_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11326_tasiyanc_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما هم وارد فاز جدیدی شده!
-یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
-
-💋@Tasiyanc
 </div>
 

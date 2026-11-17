@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 11393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چشمم زدید؟!🧿🤬
+
+منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
+</div>
+
+## tasiyanc — post 11392
+
+<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
+
+تقصیر پرتغال بود یا اشتباه خودم؟👇😞
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
+</div>
 
 ## tasiyanc — post 11391
 
@@ -254,33 +283,5 @@ https://t.me/+OwxQ7mRMaxpjOTQ8
 https://t.me/+OwxQ7mRMaxpjOTQ8
 
 ⚡️ قبل از پیش‌بینی بعدیت، یه سر به داش سیاوش بزن 🐍🅰g23
-</div>
-
-## tasiyanc — post 11373
-
-<div align="center"><img src="files/post_11373_tasiyanc_11373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابک ماسک:
-فروش تتر ۲۴۹ هزار تومنی رو شروع کردم و به مدت ۱ ماه ادامه داره تا ۱ میلیارد دلار بفروشم. هرکسیم میگه اینا تترهای تحریمیه و مال پولشوییه؛ حسوده و میترسه کاسبی خودش خراب نشه.
-این درحالیه که امروز قیمت دلار نه تنها کاهش پیدا نکرده بلکه افزایش پیدا کرده و به ۲۷۴ هزار تومن رسیده.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتفاقات عجیب در ۲۴ ساعت اخیر ایالات متحده آمریکا که به وقوع پیوسته و مشخص نیست پشت داستان چیه 🇺🇸
-
-از دسترس خارج شدن سرویس ایمیل مایکروسافت!
-ورود پهپاد به دو پایگاه نظامی آمریکا در بریتانیا.
-لغو تمام پروازها در سراسر آمریکا.
-اختلال در رادارهای هواشناسی در سراسر آمریکا.
-برخورد تانکر با کشتی کروز و زخمی شدن ۳۲ نفر در رودخانه می‌سی‌سی‌پی آمریکا
-
-
-💋 @Tasiyanc
 </div>
 

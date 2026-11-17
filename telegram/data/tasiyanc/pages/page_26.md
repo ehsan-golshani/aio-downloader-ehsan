@@ -1,8 +1,28 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 10832
+
+<div align="center"><img src="files/post_10832_tasiyanc_10832.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید از بانو مگان فاکس
+
+بانو اعلام کرده از این به بعد در اونلی فنز فعالیت خواهد کرد و حسابی قراره هواداراشو سوپرایز کنه...
+
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10831
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇g21🅰 https://t.me/+zhWRXOtmyEE5ZjVk https://t.me/+zhWRXOtmyEE5ZjVk 🎯 سود 4 ملیونی از میکس لایو اروپا 💵
+</div>
 
 ## tasiyanc — post 10830
 
@@ -244,30 +264,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵 🅰r20 میگی ن ؟ بیا تو چنلمون و ببین🔥 🌐@Aron_tip @Aron_tip 🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10812
-
-<div align="center"><img src="files/post_10812_tasiyanc_10812.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فک کنم اگه هرشب با 300 هزار تومن میومدین چنل بت ما ، شبی بالای 2میلیون سود کرده بودین مثل دیشب:)😊💵
-🅰r20
-میگی ن ؟ بیا تو چنلمون و ببین🔥
-🌐@Aron_tip @Aron_tip
-🌐@Aron_tip @Aron_tip
-</div>
-
-## tasiyanc — post 10811
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-6 تا کانفیگ OPEN VPN 🌟
-
-سازگار با تمام اپراتورا ، بدون اختلال سرعتشون گاد
-
-دریافت کانفیگ ها از ربات 👉
-
-
-⚡ @Tasiyanc
 </div>
 

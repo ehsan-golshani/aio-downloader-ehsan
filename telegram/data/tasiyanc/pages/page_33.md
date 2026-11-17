@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 33
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 10682
+
+<div align="center"><img src="files/post_10682_tasiyanc_10682.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r12
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 10681
+
+<div align="center"><img src="files/post_10681_tasiyanc_10681.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+از وقتی پارتنر جدید بیلی آیلیش دیدم متوجه شدم قیافه ملاک نیست و فقط سایز مهمه :))
+
+
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10680
 
@@ -265,27 +298,5 @@ https://AmitisBet.com/
 🔴ویدیو وایرال شده از پوشش یک بانو در مترو تهران
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10661
-
-<div align="center"><img src="files/post_10661_tasiyanc_10661.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 امروز 10مهر، سالروز تولد نیکا شاکرمیه.
-
-+اگه نیکا امروز بین ما بود، تولد 21 سالگیش رو جشن می‌گرفت.
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10660
-
-<div align="center"><img src="files/post_10660_tasiyanc_10660.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴تحقیقات اخیر نشون داده قورباغه های ماده خیلی اوقات برای فرار از جفت‌گیری با نر هایی که از نظرشون جذاب نیستن خودشونو به مُردن میزنن
-
-@Tasiyanc
 </div>
 

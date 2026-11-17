@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 194
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 5971
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سرور های vip بعدی با متد جدید ساعت ۴ در حال تستشم جواب بده میزارم
+</div>
+
+## tasiyanc — post 5970
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+پینگ نگیرید ، کانکت شدید بیاید تل یا اینستا بالا میاد خودش
+</div>
 
 ## tasiyanc — post 5969
 
@@ -164,17 +176,5 @@ TS premium Servers 🌲⚡.npvt
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5947
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بمب بعدی تو راهه
-</div>
-
-## tasiyanc — post 5946
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
--FAST MCI & MTN & RighTel 🔥.npvt
 </div>
 

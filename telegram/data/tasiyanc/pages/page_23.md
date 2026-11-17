@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 10893
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشمی دیگه نمونده بریزه / دنیا داره پیشرفت می‌کنه ماشین پرنده میسازه و کلی چیز دیگه ، صداوسیمای ملی ما « خر » آورده وسط پخش زنده دارن شیرشو میدوشن!
+
+استودیو رو با طویله اشتباه گرفتن؟! بعد انتظار دارن مردمم بشینن این محتوای سسشر نگاه کنن!
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10892
+
+<div align="center"><video src="files/post_10892_tasiyanc_10892.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10892_tasiyanc_10892.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز October 18، روزِ عزیزترین آدم زندگیمونه.
+
++ بفرست واسه کسی که برات مهمه
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10891
 
@@ -298,38 +322,5 @@ G25🅰
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
-</div>
-
-## tasiyanc — post 10873
-
-<div align="center"><img src="files/post_10873_tasiyanc_10873.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
-
-🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
-
-🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
-
-🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
-⏰ ۱ تا ۱۵ اکتبر
-🏆 جایزه برای 0️⃣5️⃣ نفر برتر
-👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
-
-🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
-
-🏢 ورود به سایت 👇
-⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-✈️ کانال رسمی ما در تلگرام 👇🅰24
-⭐️ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10871
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-درود بر دوستان و همراهان همیشگی
-
-درصورت شروع جنگ و قطعی نت به احتمال زیاد ۵ ادمین بگیرم و روبیکا رو دوباره راه بندازم و رایگان وصلتون کنم بدون گرفتن یک گران پول مثل دفعات قبل ❤️ فعلا چنل اصلی تاسیان داشته باشید اطلاع رسانی میشه
 </div>
 

@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 35
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 10640
+
+<div align="center"><img src="files/post_10640_tasiyanc_10640.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴دکتر بسکابادی:
+اگه بیضـتون یهو دچار درد شدید شد ممکنه تورشن (چرخش بیضه) باشه؛
+باید فوراً به بیمارستان مراجعه کنید و عمل شید وگرنه در عرض چند ساعت بیضـه کلا از بین میره و باید تخلیه شه. حتی ممکنه توی خوابم این اتفاق بیفته.
+پسر بودنم سخته
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10639
+
+<div align="center"><video src="files/post_10639_tasiyanc_10639.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10639_tasiyanc_10639.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 آمریکا با انتشار این کلیپ و نحوه شناسایی و منفجر کردن آدما با پهپاد، ایران رو به جنگ زمینی تهدید کرد!
+
+تو این کلیپ سربازای آمریکایی وارد خاک ایران میشن، و دو نفرو با پهپاد میکشن!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10638
 
@@ -287,50 +315,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 همچنین طبق دستور دادستان، محدودیت‌های اعمال شده بر درگاه میلی رفع خواهد شد.
 ﻿
 @Tasiyanc
-</div>
-
-## tasiyanc — post 10618
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هیجان را با ما تجربه کنید
-💐
-وینگو بینگو
-👆🅰‌7
-</div>
-
-## tasiyanc — post 10617
-
-<div align="center"><video src="files/post_10617_tasiyanc_10617.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10617_tasiyanc_10617.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥 لایو بازی وینگو با اجرای سهند – جایزه ۲۰۰۰ دلاری! 
-💎
-
-
-🎉 یه لایو هیجان‌انگیز توی WingoBingo داریم و این بار شانس برنده شدن مال توئه!
-
-
-🟠بازی وینگو چیه؟
-یه بازی جذاب که توی هر بلیت باید ۶ عدد بین ۱ تا ۴۷ و یک عدد بین ۱ تا ۱۰ انتخاب کنی. هرچی اعداد بیشتری درست باشه ، جایزه بیشتری میبری!
-
-
-🎁 هدیه ویژه: کافیه کد SHND3 رو توی سایت وارد کنی تا ۲ دلار اعتبار بگیری و رایگان بازی کنی!
-
-
-📆 یکشنبه ۱۲ مهر
-
-⏰ ساعت ۲۱:۳۰ (به وقت تهران)
-
-🎙 مجری: سهند
-
-
-🎯 وارد بازی شو، شانست رو کاملاً مجانی امتحان کن. شاید این بار برنده تو باشی!
-
-لینک ورود به بازی:
-
-
-🌐 https://wingobingo.tv/fa/wingo/14640
 </div>
 

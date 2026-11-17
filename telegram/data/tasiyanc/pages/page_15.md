@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 11056
+
+<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
+
+🛡 ثبت نام آسان و سریع✔️
+
+📱 اپلیکیشن را روی موبایل اندروید خود
+نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
+</div>
 
 ## tasiyanc — post 11054
 
@@ -263,37 +288,5 @@ https://t.me/+VmekrTukXnphNmU0
 نتانیاهو به 62 کرسی رسید و پیروز انتخابات شد!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11036
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن MelBet 🥇
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r6🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 11035
-
-<div align="center"><img src="files/post_11035_tasiyanc_11035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ بازی فوووق حسااااس لیورپول و چلسی رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌🌐 Link 🔜 MelBet1.net
-🌐‌ Link 🔜 MelBet1.net
 </div>
 

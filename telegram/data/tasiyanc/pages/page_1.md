@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/25 19:47
+📅 آخرین بروزرسانی: 1405/08/26 03:57
 
 ---
+
+## tasiyanc — post 11415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11414
+
+<div align="center"><img src="files/post_11414_tasiyanc_11414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰25
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11413
 
@@ -106,8 +133,6 @@ https://t.me/+yVBxmxCAtms5ZjBk
 </div>
 
 ## tasiyanc — post 11405
-
-<div align="center"><a href="files/post_11405_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -257,34 +282,5 @@ https://jhet0n.online/fa/?btag=2786270
 شوک بزرگ‌تر زمانی بوده که متوجه شباهت‌های ظاهری خودش به دوست پدرش می‌شه و به این احتمال شک می‌کنه که شاید پدر واقعی‌اش شخص دیگه‌ای باشه!
 این نوجوان تمام ماجرا رو در دست‌نوشته‌ای خطاب به معلم پرورشی‌اش روایت کرده؛ اتفاقی تلخ که با خودکشی او همراه شده.
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چشمم زدید؟!🧿🤬
-
-منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
-</div>
-
-## tasiyanc — post 11392
-
-<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
-
-تقصیر پرتغال بود یا اشتباه خودم؟👇😞
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
 </div>
 
