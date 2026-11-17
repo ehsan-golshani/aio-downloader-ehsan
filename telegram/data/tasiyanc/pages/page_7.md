@@ -1,8 +1,78 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/26 11:50
+📅 آخرین بروزرسانی: 1405/08/26 21:24
 
 ---
+
+## tasiyanc — post 11291
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه 14 سرور اختصاصی مولتی لوکیشن پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر 14 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال 🔗
+
+برنامه اندروید🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11290
+
+<div align="center"><video src="files/post_11290_tasiyanc_11290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11290_tasiyanc_11290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از مادرای نسل جدید دیگه مادر نیستن، نینجان!
+
+این چه سرعت و چابکیه ! فکر کنم قبل از بچه‌دار شدن پارکور کار می‌کرده!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11289
+
+<div align="center"><video src="files/post_11289_tasiyanc_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11289_tasiyanc_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده؛ کاسبی امروز یه مرد ضایعاتی با جمع‌آوری کارتن، قوطی نوشابه و زباله‌های قابل بازیافت!
+
+++ نکته تلخ ماجرا اینجاست که به‌جای کارتن، انگار کلی پول مملکت رو انداختن توی سطل زباله!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11288
+
+<div align="center"><video src="files/post_11288_tasiyanc_11288.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11288_tasiyanc_11288.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یکی به ما بگه چخبره تو این مملکت هر کسشری داره عادی سازی میشه!! از رابطه‌های بی‌قیدوشرط تا بارداری‌های عمدی؛ پدیده مادران مجرد!
+
+دکتر امیری می‌گه تعداد زنانی که با دوست‌پسرشون وارد رابطه می‌شن، به‌صورت خودخواسته باردار می‌شن و تصمیم می‌گیرن بچه رو بدون ازدواج و حضور پدر بزرگ کنن، به‌شدت افزایش پیدا کرده.
+یعنی بچه از همون اول قراره بدون پدر بزرگ بشه! موضوعی که بحث‌های زیادی درباره روابط، مسئولیت‌پذیری و آینده فرزندان به راه انداخته.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11286
 
@@ -232,80 +302,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g17
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11219
-
-<div align="center"><img src="files/post_11219_tasiyanc_11219.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مذاکرات ایران و آمریکا ؛ تهران خواستار تضمین معتبر شد
-
-سفیر ایران در مسکو اعلام کرده که در گفت‌وگوهای مرتبط با پایان درگیری‌ها، تهران بر ضرورت دریافت تضمین‌های معتبر از واشنگتن تأکید کرده است.
-بر اساس این گزارش، ایران معتقد است بدون تضمین اجرای تعهدات و جلوگیری از تکرار حملات در جریان مذاکرات، دستیابی به توافق امکان‌پذیر نخواهد بود.
-اهمیت ماجرا: اختلاف بر سر تضمین‌های امنیتی و شروط مذاکره همچنان یکی از موانع اصلی مسیر دیپلماسی میان تهران و واشنگتن است.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11218
-
-<div align="center"><video src="files/post_11218_tasiyanc_11218.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11218_tasiyanc_11218.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎬 فیلم سینمایی The Odyssey | ادیسه
-
-
-🔵بالاخره یکی از موردانتظارترین فیلم‌های سینمایی اکران شد!
-
-اثر جدید کریستوفر نولان با داستانی حماسی از اساطیر یونان با درخشش بانو شارلیز ترون و مت دیمون، سفر پرماجرای اودیسئوس و نبردش برای بازگشت به خانه.
-
-⚔️ ترکیبی از ماجراجویی، اسطوره و صحنه‌های تماشایی که نباید از دست بدید.
-+ فیلم با چند کیفیت مختلف در ربات قرار گرفت؛ کیفیت دلخواهتون رو انتخاب کنید و لذت ببرید.
-
-[ دانلود فیلم بدون سانسور با دوبله ]
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11217
-
-<div align="center"><img src="files/post_11217_tasiyanc_11217.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵عادی‌ترین توییت ترامپ؛ ظاهراً می‌خواد کاخ سفید رو هم تبدیل به رینگ UFC کنه!
-
-به دانا وایت، رئیس UFC، پیشنهاد داده سخنگوی کاخ سفید بشه و گفته می‌خواد چهره‌هایی مثل حبیب نورماگمدوف، اسلام ماخاچف، آماندا نونس و کایلا هریسون رو هم دور خودش جمع کنه!
-جالب‌تر اینکه گفته وظیفه این تیم، دفاع از آمریکا در برابر «دیوانه‌های چپ» خواهد بود! 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11216
-
-<div align="center"><img src="files/post_11216_tasiyanc_11216.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 سال ۱۹۹۱، دکتر «فرناندو آیوتی»، پزشک ایتالیایی، برای اثبات اینکه ویروس HIV از طریق بوسیدن منتقل نمی‌شه، جلوی دوربین خبرنگاران زنی مبتلا به HIV رو بوسید؛ تصویری که بعدها در سراسر جهان مشهور شد.
-
-این پزشک در سال ۲۰۱۹ و در ۸۳ سالگی درگذشت؛ البته برخلاف ادعاهای منتشرشده، مرگش ارتباطی با بیماری ایدز نداشت.
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11215
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 
