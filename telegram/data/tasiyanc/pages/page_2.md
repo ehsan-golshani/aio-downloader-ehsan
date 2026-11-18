@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/27 03:39
+📅 آخرین بروزرسانی: 1405/08/27 10:53
 
 ---
+
+## tasiyanc — post 11410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
+</div>
+
+## tasiyanc — post 11409
+
+<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+yVBxmxCAtms5ZjBk
+https://t.me/+yVBxmxCAtms5ZjBk
+🅰g25
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از هوش مصنوعی خواستم با توجه به چیزایی که ازم می‌دونه، زندگیم رو به یه سریال نتفلیکس تبدیل کنه؛ نتیجه جالب‌تر از چیزی شد که فکر می‌کردم!
+
+عکس خودتون رو آپلود کنید این پرامپت رو به ChatGPT 😺 بدید 👇
+از هرچی ازم میدونی داستان زندگیمو به یه سریال کامل نتفلیکس تبدیل کن با پوستر و خلاصه داستانمو ارسال کن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11407
 
@@ -261,51 +297,5 @@ https://t.me/+hyp2m5whNPg2Y2I8
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11388
-
-<div align="center"><video src="files/post_11388_tasiyanc_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11388_tasiyanc_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این بلاگر که هر روز از روزمرگی‌های زندگیش استوری می‌ذاشت، حالا بعد از خیانت شوهرش با چشمای گریان اومده و خطاب به دخترا میگه:
-«توروخدا وارد زندگی مرد متأهل نشید...»
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11386
-
-<div align="center"><img src="files/post_11386_tasiyanc_11386.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r24
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

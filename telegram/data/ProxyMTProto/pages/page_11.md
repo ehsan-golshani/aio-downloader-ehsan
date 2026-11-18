@@ -1,8 +1,62 @@
 # آرشیو کانال ProxyMTProto - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/27 03:38
+📅 آخرین بروزرسانی: 1405/08/27 10:51
 
 ---
+
+## ProxyMTProto — post 53028
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.prxtg.top
+Port: 443
+Secret: ee2c6cbde6f1e8947d8495ea1de476fc0b64726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53027
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pofak.mikhay.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53026
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddda1386b107b1d90b21c6c395105ef450
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53025
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: darya.saheledarya.co.uk.
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53024
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: x.shmelproxy.top
+Port: 443
+Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53023
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pesar.nanaz.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53022
 
@@ -127,60 +181,6 @@ Secret: eef0eeb0bd9adc4fd4a93994ee3b2a216b63646e2e79656b74616e65742e636f6d
 Server: boost.webproxy.lol
 Port: 443
 Secret: ee61a214279f303f07c536ce7a8228e4c5626f6f73742e77656270726f78792e6c6f6c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53007
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53006
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rade61.quillmarsh.xyz
-Port: 443
-Secret: eef24fdea024acae793e6ce811aae865a5786170692e6f7a6f6e2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53005
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.227.250
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53004
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd519fde42027f143e4fc82a97e59baff8
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53003
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53002
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gagasu90.copperfinch.top
-Port: 443
-Secret: ee3dd96613c02e8e9864bc2b3fa6b4a84a786170692e6f7a6f6e2e7275
 @ProxyMTProto
 </div>
 
