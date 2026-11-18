@@ -1,8 +1,50 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/08/26 21:24
+📅 آخرین بروزرسانی: 1405/08/27 03:39
 
 ---
+
+## tasiyanc — post 11407
+
+<div align="center"><video src="files/post_11407_tasiyanc_11407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11407_tasiyanc_11407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 حادثه تلخ در ژاپن؛ مرگ دختر ۱۴ ساله هنگام لایو تیک‌تاک!
+
+یک دختر نوجوان ژاپنی که در حال برگزاری لایو در تیک‌تاک بوده، در اتفاقی تلخ از بالکن طبقه چهلم سقوط کرده و جانش رو از دست داده.
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11406
+
+<div align="center"><video src="files/post_11406_tasiyanc_11406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11406_tasiyanc_11406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پسره وسط خواستگاری، خیلی جدی به دوست‌دخترش پیام داده:
+«یه دونه بگوزم جو متشنج بشه؟»
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11404
 
@@ -265,45 +307,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r24
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11385
-
-<div align="center"><img src="files/post_11385_tasiyanc_11385.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 10 سایت پربازدید جهان در سال 2026
-
-
-گوگل با ماهانه 109.9 میلیارد بازدید رتبه اول رو داره و پورن‌هاب هم با 3.4 میلیارد بازدید ماهانه در رتبه دهم قرار گرفته!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرصت محدود رفقا زود عضو شین 🆗
-اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11383
-
-<div align="center"><img src="files/post_11383_tasiyanc_11383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰23
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
 </div>
 

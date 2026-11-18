@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/26 21:24
+📅 آخرین بروزرسانی: 1405/08/27 03:39
 
 ---
+
+## tasiyanc — post 11342
+
+<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
+
+چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
+مرد ایرانی وقتی متوجه ملیت او شد، گفت:
+«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
+این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
+نظر شما چیه؟
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11341
+
+<div align="center"><video src="files/post_11341_tasiyanc_11341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11341_tasiyanc_11341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 عجیب‌ترین مسابقه‌ای که تا حالا دیدیم!
+
+قانونش خیلی ساده‌ست؛ هر شرکت‌کننده‌ای که بتونه باسن حریفش رو قرمزتر کنه، برنده مسابقه می‌شه! 😂
+
+از بهترین ورزشهای جهان 👍🏻
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+در صورت ارور دو سه بار بزنید
+🩸 T.me/Tasiyanc
+</div>
 
 ## tasiyanc — post 11339
 
@@ -257,41 +306,6 @@
 🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
 
 دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11319
-
-<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
-حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11318
-
-<div align="center"><img src="files/post_11318_tasiyanc_11318.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ماریسا برنسون، مدل و بازیگر آمریکایی جلوی امامزاده هارونیه اصفهان، در حال ژست گرفتن برای پروژه عکاسی برای مجله مد Vogue، پنجاه سال پیش!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11317
-
-<div align="center"><video src="files/post_11317_tasiyanc_11317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11317_tasiyanc_11317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرار خنده‌دار یک پنگوئن از محل نگهداری‌اش در پارک قطبی شهر هاربین چین
 
 💋 @Tasiyanc
 </div>

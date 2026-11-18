@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/26 21:24
+📅 آخرین بروزرسانی: 1405/08/27 03:39
 
 ---
+
+## tasiyanc — post 11429
+
+<div align="center"><a href="files/post_11429_wepari.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 wepari.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد ایران 🇮🇷
++ نباختن پرتغال 🇵🇹
+برنده 2.000.000 میلیون شوید ✔
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11428
+
+<div align="center"><img src="files/post_11428_tasiyanc_11428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدارهای فوق حسااااس عراق🇾🇪 و ایران 🇮🇷 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸 🅰26
+</div>
+
+## tasiyanc — post 11427
+
+<div align="center"><img src="files/post_11427_tasiyanc_11427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کیمیا حسینی، مدل ۲۴ ساله ایرانی، عنوان «زیباترین دختر ایران در سال ۲۰۲۶» رو به خودش اختصاص داد!
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11426
 
@@ -232,47 +283,5 @@ https://t.me/+yVBxmxCAtms5ZjBk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11407
-
-<div align="center"><video src="files/post_11407_tasiyanc_11407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11407_tasiyanc_11407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حادثه تلخ در ژاپن؛ مرگ دختر ۱۴ ساله هنگام لایو تیک‌تاک!
-
-یک دختر نوجوان ژاپنی که در حال برگزاری لایو در تیک‌تاک بوده، در اتفاقی تلخ از بالکن طبقه چهلم سقوط کرده و جانش رو از دست داده.
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11406
-
-<div align="center"><video src="files/post_11406_tasiyanc_11406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11406_tasiyanc_11406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پسره وسط خواستگاری، خیلی جدی به دوست‌دخترش پیام داده:
-«یه دونه بگوزم جو متشنج بشه؟»
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
