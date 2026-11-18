@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 19
 
-📅 آخرین بروزرسانی: 1405/08/27 20:12
+📅 آخرین بروزرسانی: 1405/08/28 02:47
 
 ---
+
+## tasiyanc — post 11002
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51 @NBA2kBet
+</div>
+
+## tasiyanc — post 11001
+
+<div align="center"><img src="files/post_11001_tasiyanc_11001.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+مجیک نیمه‌ی اول و بازی را ببرد - خیر 1.51
+
+@NBA2kBet
+</div>
+
+## tasiyanc — post 11000
+
+<div align="center"><video src="files/post_11000_tasiyanc_11000.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11000_tasiyanc_11000.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز ۴ آبان؛ سالروز تولد محمدرضاشاه پهلوی هست
+
+امروز زادروز آخرین شاه ایران است؛ محمدرضاشاه پهلوی که در ۴ آبان ۱۲۹۸ در تهران متولد شد و از سال ۱۳۲۰ تا انقلاب ۱۳۵۷ بر ایران سلطنت کرد.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10999
 
@@ -258,59 +287,5 @@
 
 📱 اپلیکیشن را روی موبایل اندروید خود
 نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 10982
-
-<div align="center"><img src="files/post_10982_tasiyanc_10982.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔣از اولین شارژ تا هر واریز بعدی،
-انواع بونوس‌ها و هدایای ورود🔣
-
-🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
-
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵 🅰2
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 10981
-
-<div align="center"><video src="files/post_10981_tasiyanc_10981.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10981_tasiyanc_10981.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ببینید پشت پرده برخی غذاخوری‌های ارزان قیمت؛ از مواد اولیه گندیده تا مگس لابه‌لای مواد غذایی!
-
-وقتی قیمت‌ها هر روز بالا می‌ره،انتظار بیشتری از این نمیره که با این کیفیت افتضاح به مردم غذا رو ارزون بدن
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10980
-
-<div align="center"><video src="files/post_10980_tasiyanc_10980.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10980_tasiyanc_10980.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم وایرال شده یه نوزاد که با سیبیل به دنیا اومده !
-
-
-هنوز معلوم نیست داستان این سبیل از کجا آب می‌خوره، ولی قیافه‌ش جوریه انگار به‌جای شیرمادر، باید چایی و قلیون بدیم بهش 😂
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/27 20:12
+📅 آخرین بروزرسانی: 1405/08/28 02:47
 
 ---
+
+## tasiyanc — post 11443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰27 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
+</div>
+
+## tasiyanc — post 11442
+
+<div align="center"><img src="files/post_11442_tasiyanc_11442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+🅰27
+https://t.me/+gagcxCKK4QQzNGI8
+https://t.me/+gagcxCKK4QQzNGI8
+
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11441
+
+<div align="center"><video src="files/post_11441_tasiyanc_11441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11441_tasiyanc_11441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نجات معجزه‌آسای یک دانشجو از حادثه ریزش کمددیواری!
+
+ویدیویی از خوابگاهی در شهر «کوتا» هند وایرال شده که لحظه سقوط ناگهانی یک کمد دیواری رو درست کنار یک دانشجو نشون می‌ده. کمد در آستانه سقوط روی سرش بود، اما دانشجو با خوش‌شانسی از این حادثه جون سالم به در برد!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11440
 
@@ -88,8 +126,6 @@ https://t.me/+gYDRnUG5OX03MWJk
 </div>
 
 ## tasiyanc — post 11434
-
-<div align="center"><a href="files/post_11434_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -255,44 +291,5 @@ http://my.sanjesh.org/
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دبل وین با دوتا «گل‌گل» ✅💚 ⚽️ اسپانیا – انگلیس | هر دو تیم گل می‌زنند ✅ ⚽️ بلژیک – ایتالیا | هر دو تیم گل می‌زنند ✅ 💵 مبلغ هر شرط: ۴۰ میلیون تومان 📈 ضریب هر دو: ۱.۵۶ 💰 دریافتی مجموع: ۱۲۴.۸ میلیون تومان 🔥 سود خالص دو شرط: ۴۴.۸ میلیون تومان g26🅰 مبارک رفقایی…
-</div>
-
-## tasiyanc — post 11423
-
-<div align="center"><img src="files/post_11423_tasiyanc_11423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دبل وین با دوتا «گل‌گل» ✅💚
-⚽️ اسپانیا – انگلیس | هر دو تیم گل می‌زنند ✅
-⚽️ بلژیک – ایتالیا | هر دو تیم گل می‌زنند ✅
-💵 مبلغ هر شرط: ۴۰ میلیون تومان
-📈 ضریب هر دو: ۱.۵۶
-💰 دریافتی مجموع: ۱۲۴.۸ میلیون تومان
-🔥 سود خالص دو شرط: ۴۴.۸ میلیون تومان
-g26🅰
-مبارک رفقایی که همراه بودن 🤝💚
-🆔 @Tipster_Persians | تیپستر پرشین
-</div>
-
-## tasiyanc — post 11422
-
-<div align="center"><video src="files/post_11422_tasiyanc_11422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11422_tasiyanc_11422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵« فیلم وایرال شده » از یه دختر تهرانی که بعد از خوردن چند پیک مشروب، سر از جوی آب درآورده و دیگه توان بیرون اومدن ازش رو نداره!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11421
-
-<div align="center"><video src="files/post_11421_tasiyanc_11421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11421_tasiyanc_11421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵خبر تکمیلی از دختر کرمانشاهی که پدرش بی‌رحمانه بقتلش رساند آگهی ترحیم سوگند صیادی نکته جالب داره که اسم پدرش (قاتلش) هم روی اعلامیه هست!! همسایه خونه سوگند: تا یک ساعت بعد از اینکه بابای سوگند اونو از طبقه پنجم ساختمون پرت کرده بود پایین، اصلاً نرفت ببینه…
 </div>
 
