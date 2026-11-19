@@ -1,8 +1,157 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/28 17:10
+📅 آخرین بروزرسانی: 1405/08/29 01:29
 
 ---
+
+## tasiyanc — post 11352
+
+<div align="center"><video src="files/post_11352_tasiyanc_11352.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11352_tasiyanc_11352.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی پربازدید یک بلاگر و مدل سوئدی درباره رابطه دختران ایرانی با مردان اروپایی!
+
+او معتقد است بسیاری از دختران ایرانی انتظار دارند مرد تمام هزینه‌های رابطه را پرداخت کند و نقش حامی مالی را داشته باشد؛ در حالی که مردان اروپایی بیشتر به رابطه برابر و تقسیم هزینه‌ها به‌صورت ۵۰/۵۰ اعتقاد دارند.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11351
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11350
+
+<div align="center"><img src="files/post_11350_tasiyanc_11350.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚡️ هیجان فوتبال رو با پیش‌بینی در یک پلتفرم حرفه ای جهانی چند برابر کن
+
+🇩🇪 آلمان 👊 🇷🇸 صربستان
+
+
+☑️چرا این دیدار حساس را در ریتزوبت شرطبندی کنیم ⁉️
+
+1️⃣ضرایب رقابتی با سایت های جهانی
+2️⃣داشتن گواهی نامه های معتبر اروپایی ریتزوبت
+3️⃣ 100% بونوس اولین واریز
+4️⃣ هدیه پروموکد هفتگی
+
+💳 درگاه کارت فعال برای کاربران ایرانی
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰21
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11347
+
+<div align="center"><video src="files/post_11347_tasiyanc_11347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11347_tasiyanc_11347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شاید باورتون نشه، اما این مرد در ترکیه ۲۷ ساله که در یک مکان منتظر بازگشت دختریه که عاشقش بوده!
+ماجرا از جایی شروع شد که ۲۷ سال پیش، دختر بهش گفت: «منتظرم بمون، برمی‌گردم...»اما دیگه هیچ‌وقت برنگشت!
+با گذشت این همه سال، مرد همچنان به انتظارش ادامه می‌ده. مردم محلی هم وقتی دیدن دست از انتظار نمی‌کشه، براش آب و غذا می‌برن تا تنها نمونه...
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11346
+
+<div align="center"><video src="files/post_11346_tasiyanc_11346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11346_tasiyanc_11346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال‌شده از پلیس برزیل، لحظه بازداشت مردی را نشان می‌دهد که به ضرب‌وشتم مادرش متهم شده ...
+
+یه جوری رید به خودش که دیگه از این غلطا نکنه
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11345
+
+<div align="center"><video src="files/post_11345_tasiyanc_11345.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11345_tasiyanc_11345.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فرار مرگبار در مسیر خلاف؛ سمند شوتی پس از برخورد با خودروی دیگر منفجر شد💥!
+
+در جریان تعقیب‌وگریز در استان هرمزگان، راننده یک دستگاه «سمند مشکی» که در حال فرار از مأموران و حرکت در خلاف جهت اتوبان بود، با یک خودروی سواری دیگر برخورد کرد.
+بر اساس ویدئوی منتشرشده از این حادثه، خودرو پس از برخورد دچار انفجار شد.
+گفته می‌شود خودروی سمند از نوع شوتی بوده است. تاکنون جزئیات بیشتری درباره علت تعقیب‌وگریز و وضعیت سرنشینان خودروها منتشر نشده است.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11344
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11343
+
+<div align="center"><img src="files/post_11343_tasiyanc_11343.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g21
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11342
+
+<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
+
+چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
+مرد ایرانی وقتی متوجه ملیت او شد، گفت:
+«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
+این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
+نظر شما چیه؟
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11341
 
@@ -178,131 +327,6 @@
 
 میگه کی فکرشو می‌کرد یه روزی برسه که دو ابرقدرت دنیا رو مچاله کنیم؟! اگه این معجزه نیست، پس چیه؟!
 از کجا به کجا رسیدیم...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11327
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵قیمت بنزین سوپر داخلی اعلام شد
-
-قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
-البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
-﻿
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11326
-
-<div align="center"><video src="files/post_11326_tasiyanc_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11326_tasiyanc_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 صداوسیما هم وارد فاز جدیدی شده!
-یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11325
-
-<div align="center"><video src="files/post_11325_tasiyanc_11325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11325_tasiyanc_11325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این ویدیو ببینید که مصرف ودکا چه بلایی سر سلول‌های بدن انسان میاره که فراتر از مستیُ سرخوشیه!!!
-
-ودکا معمولاً حدود ۴۰ درصد اتانول داره؛ ماده‌ای که می‌تونه به سلول‌های بدن آسیب بزنه. مصرف الکل به‌خصوص در طولانی‌مدت، به پوشش داخلی دستگاه گوارش آسیب می‌رسونه، التهاب ایجاد می‌کنه و عملکرد طبیعی سلول‌ها رو مختل می‌کنه.
-اما ماجرا فقط به روده ختم نمی‌شه؛ کبد، مغز، قلب و حتی سیستم ایمنی هم از عوارض مصرف الکل در امان نیستن.
- چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11323
-
-<div align="center"><video src="files/post_11323_tasiyanc_11323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11323_tasiyanc_11323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g20
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11322
-
-<div align="center"><video src="files/post_11322_tasiyanc_11322.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11322_tasiyanc_11322.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از فائزه مرادنسب «بلاگر» با انتشار ویدیویی مدعی شد چادر هیچ محدودیتی برای فعالیت‌های روزمره ایجاد نمی‌کنه؛ بعد هم با چادر شیرجه زد توی دریا و شروع به غواصی کرد!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11321
-
-<div align="center"><video src="files/post_11321_tasiyanc_11321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11321_tasiyanc_11321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از اعتراضات فرانسه یه معترض با ماشین آب‌پاش یه طوری آبکش شد که احتمالاً تا چند دقیقه یادش نبود اصلاً برای چی اومده بود اعتراض کنه! 🤣
-اما نکته جالب‌تر اینکه اکانت رسمی ترامپ هم این ویدیو رو لایک کرده؛ ظاهراً این صحنه توجه ترامپ رو هم جلب کرده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11320
-
-<div align="center"><img src="files/post_11320_tasiyanc_11320.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
-
-دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11319
-
-<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
-حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
-
 💋 @Tasiyanc
 </div>
 

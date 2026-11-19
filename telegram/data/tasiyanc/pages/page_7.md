@@ -1,8 +1,133 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/28 17:10
+📅 آخرین بروزرسانی: 1405/08/29 01:29
 
 ---
+
+## tasiyanc — post 11327
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵قیمت بنزین سوپر داخلی اعلام شد
+
+قیمت هر لیتر بنزین سوپر داخلی براساس توافق جایگاه و پالایشگاه ۱۱۰ هزار تومان تعیین شده
+البته نرخ بنزین سوپر داخلی به نسبت نزدیکی به پالایشگاه‌های جنوب تا ۱۰۳ هزار تومان هم عرضه می‌شود./ فارس
+﻿
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11326
+
+<div align="center"><video src="files/post_11326_tasiyanc_11326.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11326_tasiyanc_11326.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 صداوسیما هم وارد فاز جدیدی شده!
+یه خانم آوردن جلوی دوربین که به همه بگه چطور میشه آقایون رو ارضاء کرد
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11325
+
+<div align="center"><video src="files/post_11325_tasiyanc_11325.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11325_tasiyanc_11325.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این ویدیو ببینید که مصرف ودکا چه بلایی سر سلول‌های بدن انسان میاره که فراتر از مستیُ سرخوشیه!!!
+
+ودکا معمولاً حدود ۴۰ درصد اتانول داره؛ ماده‌ای که می‌تونه به سلول‌های بدن آسیب بزنه. مصرف الکل به‌خصوص در طولانی‌مدت، به پوشش داخلی دستگاه گوارش آسیب می‌رسونه، التهاب ایجاد می‌کنه و عملکرد طبیعی سلول‌ها رو مختل می‌کنه.
+اما ماجرا فقط به روده ختم نمی‌شه؛ کبد، مغز، قلب و حتی سیستم ایمنی هم از عوارض مصرف الکل در امان نیستن.
+ چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11324
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11323
+
+<div align="center"><video src="files/post_11323_tasiyanc_11323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11323_tasiyanc_11323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰g20
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11322
+
+<div align="center"><video src="files/post_11322_tasiyanc_11322.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11322_tasiyanc_11322.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از فائزه مرادنسب «بلاگر» با انتشار ویدیویی مدعی شد چادر هیچ محدودیتی برای فعالیت‌های روزمره ایجاد نمی‌کنه؛ بعد هم با چادر شیرجه زد توی دریا و شروع به غواصی کرد!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11321
+
+<div align="center"><video src="files/post_11321_tasiyanc_11321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11321_tasiyanc_11321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از اعتراضات فرانسه یه معترض با ماشین آب‌پاش یه طوری آبکش شد که احتمالاً تا چند دقیقه یادش نبود اصلاً برای چی اومده بود اعتراض کنه! 🤣
+اما نکته جالب‌تر اینکه اکانت رسمی ترامپ هم این ویدیو رو لایک کرده؛ ظاهراً این صحنه توجه ترامپ رو هم جلب کرده!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11320
+
+<div align="center"><img src="files/post_11320_tasiyanc_11320.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ظاهراً تو تهران ایونت‌های مخصوص دخترای لزبین هم راه افتاده! 😐
+
+دخترا بعد از دریافت دعوت‌نامه توی این دورهمی‌ها شرکت می‌کنن تا با آدم‌های هم‌سلیقه خودشون آشنا بشن و شاید نیمه گمشده‌شون رو هم پیدا کنن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11319
+
+<div align="center"><video src="files/post_11319_tasiyanc_11319.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11319_tasiyanc_11319.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هر نسلی رو شاید بشه گول زد، ولی دهه نودیا انگار از همون اول با تجربه به دنیا اومدن!
+حرفش شوخی بود، ولی سنگینی‌ش تا مغز استخون رفت! 🤣
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11318
 
@@ -151,142 +276,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 دلار در یه اتفاق نادر به 206 سقوط کرد ، بعدش برگشت 250 تومن !
-</div>
-
-## tasiyanc — post 11302
-
-<div align="center"><img src="files/post_11302_tasiyanc_11302.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چه خبره تو این مملکت؟؟؟؟؟؟؟؟ یک مورد دیگر از زن‌کشی در ایران؛ و باز هم یک زندگی که قربانی خشونت خانگی شد.
-
-سپیده رئیسی، زن باردار ۲۱ ساله، از ۱۳ سالگی به ازدواج کودکانه وادار شده بود.
-او پس از سال‌ها تحمل خشونت و تهدیدهای مکرر همسرش، درخواست طلاق داده بود؛ اما سرانجام در ۱۶ آبان، در روستای زاغ جهرم، در برابر چشمان فرزند سه‌ساله، مادر و خواهرانش، با شلیک گلوله همسرش جان باخت.
-او چهارماهه باردار بود؛ جنینی که همراه مادرش جان خود را از دست داد.
-یک زن ۲۱ ساله، یک کودک سه‌ساله که مادرش را از دست داد و دو زندگی که دیگر فرصتی برای ادامه پیدا نکردند...
-این فقط یک خبر تلخ دیگر نیست؛ روایتی از سال‌ها خشونت، تهدید و پایانی است که می‌توانست اتفاق نیفتد.
-تا کی باید خبر کشته‌شدن زنان، به تیتر تکراری اخبار تبدیل شود؟
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11301
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11300
-
-<div align="center"><img src="files/post_11300_tasiyanc_11300.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g19
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11299
-
-<div align="center"><img src="files/post_11299_tasiyanc_11299.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵دوست داری ببینی ChatGPT چقدر تو رو می‌شناسه؟
-کافیه عکس این اتاق خالی رو براش بفرستی و این پرامپت رو بنویسی:
-
-Fill this room with what you know about me
-
-هوش مصنوعی با توجه به شناختی که ازت داره، علایق و شخصیتت، اتاقت رو به شکلی اختصاصی طراحی می‌کنه!
-امتحانش کن، نتیجه می‌تونه غافلگیرت کنه
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11298
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کری خوندن بوکسور آذربایجانی تو استانبول، آخرش به کتک‌کاری دسته‌جمعی ختم شد!
-
-مراد علیف بعد از تمسخر بوکسور محبوب ترکیه، با اشاره‌ای جنجالی به سمت تماشاگران کری خوند؛
-اما ظاهراً نمی‌دونست قراره چه بلایی سرش بیاد!
-چند لحظه بعد، هوادارها ریختن وسط رینگ و تا رختکن حسابی از خجالتش دراومدن!
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11297
-
-<div align="center"><video src="files/post_11297_tasiyanc_11297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11297_tasiyanc_11297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی زیبا از برف پاییزی در سوباتانِ تالش، گیلان🌨️
-
-سوباتان یکی از زیباترین ییلاقات شمال ایران که با دشت‌های سرسبز، کلبه‌های چوبی و چشم‌اندازهای کوهستانی‌اش به بهشت طبیعت‌گردها معروفه.
-💋﻿@Tasiyanc
-</div>
-
-## tasiyanc — post 11296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11295
-
-<div align="center"><img src="files/post_11295_tasiyanc_11295.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
-
-🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
-
-⚡️ واریز آنی با کریپتو
-⚡️ تسویه‌حساب سریع و مطمئن
-⚡️ دسترسی آسان و بدون دردسر
-⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰r19
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11294
-
-<div align="center"><video src="files/post_11294_tasiyanc_11294.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11294_tasiyanc_11294.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه دانش‌آموز اصفهانی خطاب به دانش‌آموزای فرانسوی که اعتراض میکردن از شرایط مدرسه‌شون میگه و دوربین رو می‌چرخونه تا کلاسشون رو هم نشون بده 😂
-
-💋 @Tasiyanc
 </div>
 

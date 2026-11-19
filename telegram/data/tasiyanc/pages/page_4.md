@@ -1,8 +1,144 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/08/28 17:10
+📅 آخرین بروزرسانی: 1405/08/29 01:29
 
 ---
+
+## tasiyanc — post 11393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چشمم زدید؟!🧿🤬
+
+منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
+</div>
+
+## tasiyanc — post 11392
+
+<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
+
+تقصیر پرتغال بود یا اشتباه خودم؟👇😞
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
+</div>
+
+## tasiyanc — post 11391
+
+<div align="center"><video src="files/post_11391_tasiyanc_11391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11391_tasiyanc_11391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز پرواز باشکوه پرنده «همای سعادت» در طالقان !
+
+امروز تصاویری از پرواز این پرنده زیبا در ارتفاعات طالقان ثبت شده که مورد توجه قرار گرفته.
+در باورهای ایران باستان، همای سعادت نماد خوش‌یمنی، بخت بلند و آمدن روزهای روشن بوده؛ پرنده‌ای افسانه‌ای که دیدنش را به فال نیک می‌گرفتند.
+این پرنده کلا سه بار دیده شده در ایران که :
+قبل جنگ ۱۲ روزه
+قبل اعتراضات دی ماه
+قبل از جنگ ۴۰ روز
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11390
+
+<div align="center"><video src="files/post_11390_tasiyanc_11390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11390_tasiyanc_11390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اگه با دخترای ۱۸ تا ۲۵ سال در رابطه‌ای یا قصد آشنایی باهاشون رو داری، یه‌سری نکته مهم هست که بهتره حتماً قبلش بدونی ؛
+ویدیو رو کامل ببینید !
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11389
+
+<div align="center"><video src="files/post_11389_tasiyanc_11389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11389_tasiyanc_11389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵گاهی واقعاً لازمه از شلوغی و دغدغه‌های زندگی فاصله بگیری، با رفیقات بزنی به دل طبیعت مثل این اکیب، بخندی و خوش بگذرونی.
+
+از لحاظ روحی دوست داشتم منم بین اینا باشم 😒 کامنتارو نگاه😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11388
+
+<div align="center"><video src="files/post_11388_tasiyanc_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11388_tasiyanc_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این بلاگر که هر روز از روزمرگی‌های زندگیش استوری می‌ذاشت، حالا بعد از خیانت شوهرش با چشمای گریان اومده و خطاب به دخترا میگه:
+«توروخدا وارد زندگی مرد متأهل نشید...»
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11386
+
+<div align="center"><img src="files/post_11386_tasiyanc_11386.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r24
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11385
+
+<div align="center"><img src="files/post_11385_tasiyanc_11385.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 10 سایت پربازدید جهان در سال 2026
+
+
+گوگل با ماهانه 109.9 میلیارد بازدید رتبه اول رو داره و پورن‌هاب هم با 3.4 میلیارد بازدید ماهانه در رتبه دهم قرار گرفته!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11384
 
@@ -147,150 +283,5 @@ https://t.me/+OwxQ7mRMaxpjOTQ8
 https://t.me/+OwxQ7mRMaxpjOTQ8
 
 ⚡️ قبل از پیش‌بینی بعدیت، یه سر به داش سیاوش بزن 🐍🅰g23
-</div>
-
-## tasiyanc — post 11373
-
-<div align="center"><img src="files/post_11373_tasiyanc_11373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابک ماسک:
-فروش تتر ۲۴۹ هزار تومنی رو شروع کردم و به مدت ۱ ماه ادامه داره تا ۱ میلیارد دلار بفروشم. هرکسیم میگه اینا تترهای تحریمیه و مال پولشوییه؛ حسوده و میترسه کاسبی خودش خراب نشه.
-این درحالیه که امروز قیمت دلار نه تنها کاهش پیدا نکرده بلکه افزایش پیدا کرده و به ۲۷۴ هزار تومن رسیده.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتفاقات عجیب در ۲۴ ساعت اخیر ایالات متحده آمریکا که به وقوع پیوسته و مشخص نیست پشت داستان چیه 🇺🇸
-
-از دسترس خارج شدن سرویس ایمیل مایکروسافت!
-ورود پهپاد به دو پایگاه نظامی آمریکا در بریتانیا.
-لغو تمام پروازها در سراسر آمریکا.
-اختلال در رادارهای هواشناسی در سراسر آمریکا.
-برخورد تانکر با کشتی کروز و زخمی شدن ۳۲ نفر در رودخانه می‌سی‌سی‌پی آمریکا
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11371
-
-<div align="center"><video src="files/post_11371_tasiyanc_11371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11371_tasiyanc_11371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو وایرال شده در توییتر یک کاربر ناشناس این فیلم رو از نمای بالا در تهران منتشر کرده و گفته :
-
-تا کمتر از یک هفته دیگه قراره جنگ آغاز شه و مخصوصا تهران بمباران شدیداً بشه!
-متاسفانه هفته دیگه تهران این شکلی نیست و تمام زیرساخت‌ها نابود میشن.
-این آخرین فیلم از برج میلاد خواهد بود و در جنگ بعدی نابود میشه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11370
-
-<div align="center"><video src="files/post_11370_tasiyanc_11370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11370_tasiyanc_11370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 شغل عجیب و رویایی در کره جنوبی؛ دوست‌پسر اجاره‌ای!
-
-ظاهراً تو کره جنوبی سرویسی وجود داره که اگه دلت یه دوست‌پسر خواست، می‌تونی از بین چند نفر انتخاب کنی و برای مدتی اجاره‌شون کنی!
-واکنش این دختر خارجی به شنیدن این موضوع دیدنیه؛ انگار هنوز باورش نشده همچین چیزی واقعاً وجود داره!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11368
-
-<div align="center"><img src="files/post_11368_tasiyanc_11368.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r23
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11367
-
-<div align="center"><video src="files/post_11367_tasiyanc_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11367_tasiyanc_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵وقتی امپراتوری روم مقابل قدرت ایران زانو زد 👑
-
-روایتی حماسی از نبرد شاپور دوم ساسانی و ژولیان امپراتور روم؛ جایی که شکوه و اقتدار ایران، تاریخ رو به لرزه درآورد!
-این ویدیو اون‌قدر باشکوه و تأثیرگذاره که بعیده فقط یک‌بار تماشاش کنید. من چندین بار دیدمش و هر بار حس غرور عجیبی وجودم رو فرا گرفت...
-ایران فقط یک سرزمین نیست؛ پشت این نام، هزاران سال تاریخ و شکوه خوابیده...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11365
-
-<div align="center"><video src="files/post_11365_tasiyanc_11365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11365_tasiyanc_11365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
-
-🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
-
-⚡️ واریز آنی با کریپتو
-⚡️ تسویه‌حساب سریع و مطمئن
-⚡️ دسترسی آسان و بدون دردسر
-⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
-
-🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰22
-⚡️@RitzoBetsupports
 </div>
 
