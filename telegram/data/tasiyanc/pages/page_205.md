@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 205
 
-📅 آخرین بروزرسانی: 1405/08/28 02:47
+📅 آخرین بروزرسانی: 1405/08/28 07:56
 
 ---
+
+## tasiyanc — post 5726
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱  سرور نامحدود اختصاصی تاسیان  📱
+
+⛈ تست شده همه اپراتور ها ⛈ 
+
+
+
+🚀 @Tasiyanc ✅
+</div>
 
 ## tasiyanc — post 5724
 
@@ -173,17 +185,5 @@ sv Country 🇬🇧
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔥 [40 ].npvt
-</div>
-
-## tasiyanc — post 5703
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اختصاصی تاسیان  نامحدود
-📱
-
-⛈ تمام اپراتورا⛈ 
-
-
-🚀 @Tasiyanc ✅
 </div>
 

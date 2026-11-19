@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/28 02:47
+📅 آخرین بروزرسانی: 1405/08/28 07:56
 
 ---
+
+## tasiyanc — post 11043
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
+</div>
 
 ## tasiyanc — post 11042
 
@@ -248,19 +254,5 @@ https://t.me/+VmekrTukXnphNmU0
 🌐 آدرس ورود به سایت پیش بینی وی پاری
 
 بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g5
-</div>
-
-## tasiyanc — post 11023
-
-<div align="center"><video src="files/post_11023_tasiyanc_11023.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11023_tasiyanc_11023.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اشتباه مرگبار اپراتور جرثقیل وسط اجرای تئاتر!
-
-قرار بود بازیگر نقش عیسی مسیح رو توی نمایش، ۳ متر از زمین بلند کنن؛ اما اپراتور جرثقیل دستورالعمل رو اشتباه خوند و به‌جای ۳ متر، اونو تا ارتفاع ۳۰ متری بالا برد!
-بازیگر همون بالا از هوش رفت و اجرای تئاتر به یه کابوس واقعی تبدیل شد!
-💋 @Tasiyanc
 </div>
 

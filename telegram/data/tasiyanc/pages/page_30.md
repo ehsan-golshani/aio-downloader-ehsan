@@ -1,8 +1,19 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/08/28 02:47
+📅 آخرین بروزرسانی: 1405/08/28 07:56
 
 ---
+
+## tasiyanc — post 10775
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده
+😂 
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک
+💵
+💵 
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50…
+</div>
 
 ## tasiyanc — post 10773
 
@@ -286,15 +297,5 @@ https://t.me/+ramzL0orpc5hMTBk
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
 
 🔗https://t.me/+fgkgTXJ8tCU5MGQ0
-</div>
-
-## tasiyanc — post 10754
-
-<div align="center"><img src="files/post_10754_tasiyanc_10754.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴 فوری، توییت جدید ترامپ : ما در حال گفتگوی سازنده‌ای با جمهوری اسلامی ایران هستیم و به هیچ عنوان قبل از انتخابات میان دوره ای به ایران حمله نخواهیم کرد.
-
-⚡ @Tasiyanc
 </div>
 

@@ -1,8 +1,14 @@
 # آرشیو کانال tasiyanc - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/08/28 02:47
+📅 آخرین بروزرسانی: 1405/08/28 07:56
 
 ---
+
+## tasiyanc — post 10625
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g8 https://t.me/+E4HUFuYfyUw1MjRk https://t.me/+E4HUFuYfyUw1MjRk 🎯 سود 4 ملیونی ما از بازی اسپانیا - بلژیک 💵
+</div>
 
 ## tasiyanc — post 10624
 
@@ -313,11 +319,5 @@ https://t.me/+E4HUFuYfyUw1MjRk
 همین حالا وارد بازی شو و شانستو رایگان امتحان کن 👇
 
 🌐 wingobingo.tv
-</div>
-
-## tasiyanc — post 10604
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Tasiyan | تاسیان pinned a file
 </div>
 

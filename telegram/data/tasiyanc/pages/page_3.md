@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/28 02:47
+📅 آخرین بروزرسانی: 1405/08/28 07:56
 
 ---
+
+## tasiyanc — post 11402
+
+<div align="center"><video src="files/post_11402_tasiyanc_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11402_tasiyanc_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی از یه زوج ایرانی وایرال شده که سال ۲۰۲۳ ازدواج کردن، سال ۲۰۲۴ صاحب اولین دخترشون شدن، سال ۲۰۲۶ هم دختر دومشون به دنیا اومده و حالا سومی‌ام تو راهه!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11401
 
@@ -285,17 +297,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 عشق گربه ای دیده بودید؟ همینه
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11380
-
-<div align="center"><img src="files/post_11380_tasiyanc_11380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺بابک زنجانی یه ویدیو از خودشو گربش گذاشت و اما کامنتای مردم دیدنیه:
-
-
-
-💋 @Tasiyanc
 </div>
 
