@@ -1,8 +1,63 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/28 07:56
+📅 آخرین بروزرسانی: 1405/08/28 17:10
 
 ---
+
+## tasiyanc — post 11364
+
+<div align="center"><video src="files/post_11364_tasiyanc_11364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11364_tasiyanc_11364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کارشناس مامایی بوی طبیعی واژن قرار نیست شبیه شکلات و نوتلا باشه!
+
+به گفته یک کارشناس مامایی، بوی طبیعی واژن معمولاً ملایم و کمی ترش‌ماننده
+اما بوی تند و شبیه ماهی، مخصوصاً اگر با علائم دیگه همراه باشه، می‌تونه نشونه عفونت باشه و نیاز به بررسی پزشکی داشته باشه.
+استفاده از عطرها و اسپری‌های مخصوص ناحیه تناسلی هم ممکنه باعث تحریک و برهم خوردن تعادل طبیعی این ناحیه بشه.
+قرار نیست بدن‌تون همیشه بوی عطر بده؛ سلامت مهم‌تر از خوشبو بودنه!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11363
+
+<div align="center"><video src="files/post_11363_tasiyanc_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11363_tasiyanc_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه دختر خانم آنلاین‌شاپ لباس زنونه راه انداخته، ولی با یه مشکل عجیب روبه‌رو شده!
+
+میگه هرچی سیبیل ریختن فالوم کردن، هنوز حتی یه دختر هم فالوم نکرده! 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11362
+
+<div align="center"><img src="files/post_11362_tasiyanc_11362.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پایان تلخ ماجرای ناپدید شدن پسر ۲۲ ساله در اسلامشهر!
+
+محمدمهدی ارجمندی از ۱۸ آبان ناپدید شده بود. آخرین تماسش با خانواده‌اش این بود که «دارم میام خونه»؛ اما بعد از اون تلفنش خاموش شد و دیگه خبری ازش نشد.
+حالا بعد از چند روز، جسد این جوان در باغ‌های اطراف اسلامشهر پیدا شده. طبق گزارش رکنا، تصاویر دوربین‌ها نشون می‌ده در آخرین مسیر بازگشتش، ظاهراً فردی داخل ماشین با اسلحه به سمتش نشونه رفته!
+گفته می‌شه دوستانش در این ماجرا دست داشتن و خودروی اون رو هم به سرقت بردن. پلیس هم از دستگیری قاتل خبر داده است.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11361
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11360
 
@@ -270,67 +325,5 @@
 این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
 نظر شما چیه؟
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11341
-
-<div align="center"><video src="files/post_11341_tasiyanc_11341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11341_tasiyanc_11341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 عجیب‌ترین مسابقه‌ای که تا حالا دیدیم!
-
-قانونش خیلی ساده‌ست؛ هر شرکت‌کننده‌ای که بتونه باسن حریفش رو قرمزتر کنه، برنده مسابقه می‌شه! 😂
-
-از بهترین ورزشهای جهان 👍🏻
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-در صورت ارور دو سه بار بزنید
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 11339
-
-<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
-
-دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
-دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11338
-
-<div align="center"><img src="files/post_11338_tasiyanc_11338.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پست جدید پاول دروف، مالک تلگرام:
-
-واقعاً بی‌انصافیه! سازمان‌های جاسوسی فقط دخترای آسیایی رو برای به دام انداختن مدیرعامل‌ها می‌فرستن؛ پس تکلیف اون مدیرعامل‌هایی که از دخترای آسیایی خوششون نمیاد چی می‌شه؟!
-
-پس جاسوس‌های خوشگل فرانسوی🇫🇷، روسی🇷🇺 و ایرانی🇮🇷 کجان؟
-حتی یه دختر جاسوس هم سراغ من نفرستادن! اصلاً دارن تلاش می‌کنن یا نه؟
-البته فرانسه معافه، چون تصمیم‌ گیرنده‌هاشون اصلاً به دخترا علاقه ندارن🏳️‍🌈! ولی بقیه کشورها باید بیشتر تلاش کنن...
-
-💋 @Tasiyanc
 </div>
 
