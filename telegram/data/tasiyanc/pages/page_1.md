@@ -1,8 +1,80 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/29 14:17
+📅 آخرین بروزرسانی: 1405/08/29 22:33
 
 ---
+
+## tasiyanc — post 11468
+
+<div align="center"><video src="files/post_11468_tasiyanc_11468.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11468_tasiyanc_11468.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از خیابون فرشته تهران که ماشین‌های کاستوم‌شده به سبک «GTA» رو کنار هم جمع کردن و یه دورهمی با حال‌وهوای گیم و ماشین راه انداختن؛ انگار لس‌سانتوس اومده وسط تهران.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11467
+
+<div align="center"><img src="files/post_11467_tasiyanc_11467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه ایده تأسیس «اسرائیل 🇮🇱» رو ناصرالدین‌شاه 👑 داده!
+
+ناصرالدین‌شاه توی سفرش به فرانسه درسال 1873 روز 12 ژوئیه میلادی با چند نفر از خانواده روتشلید که خیلی ثروتمند بودن دیدار می‌کنه.
+روتشیلد شروع می‌کنه از یهودی‌های داخل ایران حمایت کردن.
+ناصرالدین‌شاه به تمسخر می‌گه:
+«خب که هزار کرور پول داری، پنجاه کرور بده و یه کشور بخر و هر چی یهودی توی دنیا هست جمع کن و یه کشور تشکیل بده.»
+اعضای روتشلید این حرفای ناصرالدین‌شاه رو جدی می‌گیره و چند سال بعد نخستین کنگره‌ی صهیونیستی ( اسم کنگره همین می‌باشد) تشکیل میشه که بعد ها منجر به تشکیل اسرائیل در سرزمین های فلسطین شد .
+منبع :
+The Diary of H.M. the Shah of Persia
+نویسنده: ناصرالدین‌شاه قاجار
+مترجم: جیمز ویلیام ردهاوس
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11466
+
+<div align="center"><video src="files/post_11466_tasiyanc_11466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11466_tasiyanc_11466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه خانم روسی🇷🇺 که شوهرش ایرانیه ، از خصوصیات مردای ایرانی میگه؛ از تفاوت فرهنگ و رفتار مردای ایرانی گرفته تا چیزایی که بعد از ازدواج با یه ایرانی تجربه کرده
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g28 https://t.me/+gYDRnUG5OX03MWJk…
+</div>
+
+## tasiyanc — post 11464
+
+<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰g28
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11463
 
@@ -63,8 +135,6 @@
 </div>
 
 ## tasiyanc — post 11460
-
-<div align="center"><a href="files/post_11460_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -239,138 +309,5 @@ https://jhet0n.online/fa/?btag=2786270
 🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
 💖کانال اطلاع رسانی:👇
 🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 11448
-
-<div align="center"><img src="files/post_11448_tasiyanc_11448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵حادثه ی تلخی دیگر ، قتل هولناک دختر ۲۳ ساله در گیلان !
-
-صدف حق‌بین ۲۳ ساله شب گذشته در جشن تولدش هدف حمله دوست‌پسر سابقش قرار گرفت. گفته می‌شود پسر مسلح وارد مراسم شده، مهمانان را در اتاق حبس کرده و صدف را به زور به طبقه بالا برده است.
-این روایت حاکی از آن است که صدف پس از ضرب‌وشتم شدید و شکستن دست‌وپا و فک و بینی، با شلیک گلوله به قتل رسیده؛ گفته می‌شود دلیل این جنایت، فقط بخاطر مخالفت او با ازدواج بوده است.
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11447
-
-<div align="center"><video src="files/post_11447_tasiyanc_11447.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11447_tasiyanc_11447.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آپدیت جدید فیلترشکن سایفون؛ ارزش امتحان کردن داره!
-
-نسخه جدید سایفون منتشر شده و طبق تست‌هایی که انجام دادم، روی تمام اپراتورها و سرور کشورهای مختلف از جمله 
-🇩🇪 ، 
-🇸🇪 ، 
-🇺🇸 ، 
-🇮🇹 ، 
-🇳🇱 به‌ خوبی وصل می‌شه حتمااااا پیشنهاد میشه دانلود کنید .
-
-مشکل اتصال جمینای ، هوش مصنوعی هم رفع میشه با وصل شدن به کشور های اروپا و امریکا حتما تست کنید نسخه جدید رو و VPN های مخرب و ایرانی رو از گوشیتون حذف کنید
-
-▶️Android Play Store 
-🕹
-
-
-▶️iOS App Store 📱
-
-
-▶️Official Site Psiphon Team 
-📱
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11446
-
-<div align="center"><video src="files/post_11446_tasiyanc_11446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11446_tasiyanc_11446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این مرد روسی تو فضای مجازی با یه دختر اروپایی آشنا می‌شه، با کلی ذوق و امید هتل رزرو می‌کنه و برای دیدنش راهی یه کشور دیگه می‌شه؛ اما بعد از چند دقیقه ماچ و بوس، تازه می‌فهمه طرف مقابلش دختر نیست و مرده!
-
-حالا پاسپورتشو با خودش مقایسه میکنه پشماش ریخته
-😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11445
-
-<div align="center"><video src="files/post_11445_tasiyanc_11445.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11445_tasiyanc_11445.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥جمعه ۲۹ آبان ۱۴۰۵ | بوندس‌لیگا آلمان🇩🇪
-
-در فوتبال آلمان، فشار همیشه از جایگاه جدول نمی‌آید؛ گاهی از انتظاراتی می‌آید که هر هفته روی دوش مدعیان قرار دارد.
-
-بایرن مونیخ این هفته مقابل کلن قرار می‌گیرد؛ دیداری که روی کاغذ شاید اختلاف دو تیم را نشان دهد، اما بوندس‌لیگا بارها ثابت کرده که هیچ مسابقه‌ای قبل از سوت آغاز برنده ندارد.
-
-برای بایرن، هر بازی قدمی در مسیر حفظ برتری است و برای کلن، هر مسابقه فرصتی برای تغییر روایت فصل. همین تضاد اهداف است که فوتبال را غیرقابل پیش‌بینی و جذاب نگه می‌دارد.
-
-🔤
-🔤
-🔤
-🔤
-🔤
-🔤
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-📲دانلود مستقیم اپلیکیشن اندروید
-
-
-🌐 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام آمیتیس‌بت
-
-
-🚨 برای ورود به سایت، حتما از فیلترشکن با سرورهای آلمان، کانادا و سرورهای آسیایی استفاده نمایید.🅰r28
-</div>
-
-## tasiyanc — post 11444
-
-<div align="center"><img src="files/post_11444_tasiyanc_11444.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 165 هزار امضا ( در ساعت اشتراک گذاری پست در کانال ) برای اعدام پدر سوگند صیادی؛ کارزار مطالبه اجرای حکم به راه افتاد!
-
-بعد از قتل سوگند صیادی توسط پدرش، کارزاری برای مطالبه اجرای حکم اعدام او شکل گرفته که طبق اعلام سایت کارزار ، تا الان 165 هزار نفر امضاش کردن.
-
-اگه موافق این مطالبه‌اید، لینک کارزار رو توی گروه‌ها و کانال‌هاتون پخش کنید تا صدای این مطالبه بیشتر شنیده بشه و پرونده به فراموشی سپرده نشه.
-
-🔗 https://www.karzar.net/360146
-
-
-کمپین : #سوگند_تنها_نیست
-
-💋 @Tasiyanc
 </div>
 
