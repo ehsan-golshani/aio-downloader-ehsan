@@ -1,8 +1,87 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/29 01:29
+📅 آخرین بروزرسانی: 1405/08/29 14:17
 
 ---
+
+## tasiyanc — post 11379
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+شما هم ویروسی گرفتید خوب نمیشید؟ 😐 ۷ روزه درگیرم
+</div>
+
+## tasiyanc — post 11378
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+𝐓.𝐦𝐞__𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 🔥.zip
+</div>
+
+## tasiyanc — post 11377
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👼15 کانفیگ نامحدود و پرسرعت اختصاصی « وایرگارد» 👼
+
+مناسب دانلود ⬇️ گیم 🎮 اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+تست شده با تمام اپراتورها
+
+دانلود 📱Android🕹  iOS
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با فیلترشکن Windscribe ⛓
+
+
+فایل ZIP را در برنامه WG TUNNEL باز کنید
+
+اتصال امن برای همه 🇮🇷
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11376
+
+<div align="center"><video src="files/post_11376_tasiyanc_11376.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11376_tasiyanc_11376.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اگه عقلتونو بدید دست دودولتون، آخرش همچین فاجعه‌ای بزرگ به بار میاد!
+
+شاهکاری که جنسن هوانگ « مدیرعامل انویدیا» رقم زده، رسماً در حد یک بگایی تاریخی بوده؛ نه‌تنها زندگی شخصی خودش رو به فنا داده، بلکه ماجرا به ضرر و زیان 200.000.000.000 میلیارد دلاری و ضربه‌ای سنگین به انویدیا هم کشید و این شرکت نزدیک بگایی رفته !
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11375
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+عضو کانال سیاوش شید ، تیپ هاش حرف نداره 💵
+
+https://t.me/+OwxQ7mRMaxpjOTQ8
+
+ده دقیقه دیگ پاک میکنم لینکو
+</div>
+
+## tasiyanc — post 11374
+
+<div align="center"><img src="files/post_11374_tasiyanc_11374.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+❌ اگه هر هفته می‌بازی، شاید وقتشه قبول کنی روش قبلیت جواب نمی‌ده.😐
+
+⚽️ بازی‌های ملی دوبارع شروع شده و بازار پیش‌بینی و شرطبندی دوباره داغ شده 🔥
+
+
+https://t.me/+OwxQ7mRMaxpjOTQ8
+https://t.me/+OwxQ7mRMaxpjOTQ8
+
+⚡️ قبل از پیش‌بینی بعدیت، یه سر به داش سیاوش بزن 🐍🅰g23
+</div>
 
 ## tasiyanc — post 11373
 
@@ -230,96 +309,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰g22
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11359
-
-<div align="center"><img src="files/post_11359_tasiyanc_11359.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات جدید بانو آنا دِ آرماس و پارتنرش :|
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11358
-
-<div align="center"><video src="files/post_11358_tasiyanc_11358.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11358_tasiyanc_11358.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵هر وقت احساس کردی زندگیت بی‌معنی شده، یادت باشه...
-
-یه پروتئین کوچیک به اسم «کینزین» هر روز بدون وقفه توی سلول‌های بدنت کار می‌کنه تا مولکول‌های شادی رو به مقصد برسونه🥹
-
-حتی وقتی تو خسته‌ای و انگیزه‌ای برای ادامه دادن نداری، توی بدنت میلیون‌ها اتفاق شگفت‌انگیز در جریانه! ❤️
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11356
-
-<div align="center"><video src="files/post_11356_tasiyanc_11356.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11356_tasiyanc_11356.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه توریست خانم هلندی اومده شیراز، صبح زود با صحنه‌ای روبه‌رو شده که اصلاً انتظارشو نداشته!
-
-چند تا از هموطنا مشغول کفتر‌بازی بودن😂 و حسابی پشمای بانو ریخته !
-ویدیوش رو تو پیجش منتشر کرده و تا الان بیشتر از ۵ میلیون بازدید گرفته!
-فقط کامنت هموطنان:|
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11355
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11354
-
-<div align="center"><img src="files/post_11354_tasiyanc_11354.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰r22
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11353
-
-<div align="center"><video src="files/post_11353_tasiyanc_11353.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11353_tasiyanc_11353.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو پربازدید از مزاحمت یک مرد ایرانی برای گردشگر خانم روسی در استانبول!
-
-ویدیویی از تعقیب و آزار یک زن گردشگر روس توسط مردی با تابعیت ایرانی در خیابان‌های استانبول منتشر شده که حسابی در فضای مجازی و شبکه های ترکیه خبرساز شده و واکنش‌های زیادی به دنبال داشته است.
-
-
-💋 @Tasiyanc
 </div>
 
