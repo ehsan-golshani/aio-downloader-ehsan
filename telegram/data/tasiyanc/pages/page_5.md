@@ -1,8 +1,149 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/30 11:28
+📅 آخرین بروزرسانی: 1405/08/30 20:05
 
 ---
+
+## tasiyanc — post 11401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
+</div>
+
+## tasiyanc — post 11400
+
+<div align="center"><img src="files/post_11400_tasiyanc_11400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول 100% بونوس😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15%  شارژ اضافی برای شارژ ارزی
+➕100 اسپین رایگان هفتگی
+➕20% برگشت باخت روزانه برای بازی های کازینویی
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🤩دنیای هدایا بی نظیر در ژتون بت
+
+🖥️ادرس ورود به سایت:24🅰
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 11398
+
+<div align="center"><img src="files/post_11398_tasiyanc_11398.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید!
+
+سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن.
+سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی نگه، چون می‌ترسیده پدرش جونش رو بگیره؛ اما مدیر با پدرش تماس می‌گیره و ماجرا رو کامل تعریف می‌کنه.
+پدر سوگند به مدرسه میاد و دخترش رو به خونه می‌بره، بعد از کتک زدن و شکنجه سوگند، اون رو از طبقه پنجم به پایین پرت می‌کنه و این دختر ۱۶ ساله جانش رو از دست می‌ده.
+تلخ‌تر اینکه ، پدرش گفته: «این دختر من نیست، شهرداری بیاد ببرتش و خاکش کنه!»
+فقط سه روز به تولد سوگند مونده بود...🖤
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11397
+
+<div align="center"><img src="files/post_11397_tasiyanc_11397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مدال افتخار دولت لهستان🇵🇱 به زوج‌هایی که ۵۰ سال عاشق هم موندن!
+
+در لهستان، زوج‌هایی که بیش از ۵۰ سال زندگی مشترک داشته باشن، از طرف دولت با مدالی ویژه مورد تقدیر قرار می‌گیرن.
+این سنت از سال ۱۹۶۰ آغاز شده و تا امروز ادامه داره؛ نوعی قدردانی از زوج‌هایی که بیش از نیم‌قرن در کنار هم موندن و زندگی مشترکشون رو حفظ کردن.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11396
+
+<div align="center"><video src="files/post_11396_tasiyanc_11396.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11396_tasiyanc_11396.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده از پیتزا با چاشنی مورچه؛ جدیدترین غذای عجیب برزیلی‌ها! 🐜🍕
+
+یه رستوران تو برزیل با ریختن مورچه‌های برگ‌بُر روی پیتزا، ترکیب غذایی عجیبی ساخته که برخلاف انتظار، حسابی طرفدار پیدا کرده!
+ظاهراً مردم برای خوردن این پیتزای متفاوت حاضرن ساعت‌ها تپ صف منتظر بمونن😐
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11394
+
+<div align="center"><video src="files/post_11394_tasiyanc_11394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11394_tasiyanc_11394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ماجرای تکان‌دهنده خودکشی یک پسر ۱۳ ساله در تهران؛ دست‌نوشته‌ای که راز عجیب زندگی پدر و مادرش رو فاش کرد!
+
+طبق روایت منتشرشده، پدر و مادر این نوجوان با یک زوج آشنا رابطه جنسی گروهی داشتن و پسر بعداً از این ماجرا باخبر می‌شه!
+شوک بزرگ‌تر زمانی بوده که متوجه شباهت‌های ظاهری خودش به دوست پدرش می‌شه و به این احتمال شک می‌کنه که شاید پدر واقعی‌اش شخص دیگه‌ای باشه!
+این نوجوان تمام ماجرا رو در دست‌نوشته‌ای خطاب به معلم پرورشی‌اش روایت کرده؛ اتفاقی تلخ که با خودکشی او همراه شده.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چشمم زدید؟!🧿🤬
+
+منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
+</div>
+
+## tasiyanc — post 11392
+
+<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
+
+تقصیر پرتغال بود یا اشتباه خودم؟👇😞
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
+</div>
+
+## tasiyanc — post 11391
+
+<div align="center"><video src="files/post_11391_tasiyanc_11391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11391_tasiyanc_11391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز پرواز باشکوه پرنده «همای سعادت» در طالقان !
+
+امروز تصاویری از پرواز این پرنده زیبا در ارتفاعات طالقان ثبت شده که مورد توجه قرار گرفته.
+در باورهای ایران باستان، همای سعادت نماد خوش‌یمنی، بخت بلند و آمدن روزهای روشن بوده؛ پرنده‌ای افسانه‌ای که دیدنش را به فال نیک می‌گرفتند.
+این پرنده کلا سه بار دیده شده در ایران که :
+قبل جنگ ۱۲ روزه
+قبل اعتراضات دی ماه
+قبل از جنگ ۴۰ روز
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11390
 
@@ -153,130 +294,6 @@ https://t.me/+gYDRnUG5OX03MWJk
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ⏺بابک زنجانی یه ویدیو از خودشو گربش گذاشت و اما کامنتای مردم دیدنیه:
 
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما هم ویروسی گرفتید خوب نمیشید؟ 😐 ۷ روزه درگیرم
-</div>
-
-## tasiyanc — post 11378
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝐓.𝐦𝐞__𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 🔥.zip
-</div>
-
-## tasiyanc — post 11377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼15 کانفیگ نامحدود و پرسرعت اختصاصی « وایرگارد» 👼
-
-مناسب دانلود ⬇️ گیم 🎮 اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-تست شده با تمام اپراتورها
-
-دانلود 📱Android🕹  iOS
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با فیلترشکن Windscribe ⛓
-
-
-فایل ZIP را در برنامه WG TUNNEL باز کنید
-
-اتصال امن برای همه 🇮🇷
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11376
-
-<div align="center"><video src="files/post_11376_tasiyanc_11376.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11376_tasiyanc_11376.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اگه عقلتونو بدید دست دودولتون، آخرش همچین فاجعه‌ای بزرگ به بار میاد!
-
-شاهکاری که جنسن هوانگ « مدیرعامل انویدیا» رقم زده، رسماً در حد یک بگایی تاریخی بوده؛ نه‌تنها زندگی شخصی خودش رو به فنا داده، بلکه ماجرا به ضرر و زیان 200.000.000.000 میلیارد دلاری و ضربه‌ای سنگین به انویدیا هم کشید و این شرکت نزدیک بگایی رفته !
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضو کانال سیاوش شید ، تیپ هاش حرف نداره 💵
-
-https://t.me/+OwxQ7mRMaxpjOTQ8
-
-ده دقیقه دیگ پاک میکنم لینکو
-</div>
-
-## tasiyanc — post 11374
-
-<div align="center"><img src="files/post_11374_tasiyanc_11374.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ اگه هر هفته می‌بازی، شاید وقتشه قبول کنی روش قبلیت جواب نمی‌ده.😐
-
-⚽️ بازی‌های ملی دوبارع شروع شده و بازار پیش‌بینی و شرطبندی دوباره داغ شده 🔥
-
-
-https://t.me/+OwxQ7mRMaxpjOTQ8
-https://t.me/+OwxQ7mRMaxpjOTQ8
-
-⚡️ قبل از پیش‌بینی بعدیت، یه سر به داش سیاوش بزن 🐍🅰g23
-</div>
-
-## tasiyanc — post 11373
-
-<div align="center"><img src="files/post_11373_tasiyanc_11373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابک ماسک:
-فروش تتر ۲۴۹ هزار تومنی رو شروع کردم و به مدت ۱ ماه ادامه داره تا ۱ میلیارد دلار بفروشم. هرکسیم میگه اینا تترهای تحریمیه و مال پولشوییه؛ حسوده و میترسه کاسبی خودش خراب نشه.
-این درحالیه که امروز قیمت دلار نه تنها کاهش پیدا نکرده بلکه افزایش پیدا کرده و به ۲۷۴ هزار تومن رسیده.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتفاقات عجیب در ۲۴ ساعت اخیر ایالات متحده آمریکا که به وقوع پیوسته و مشخص نیست پشت داستان چیه 🇺🇸
-
-از دسترس خارج شدن سرویس ایمیل مایکروسافت!
-ورود پهپاد به دو پایگاه نظامی آمریکا در بریتانیا.
-لغو تمام پروازها در سراسر آمریکا.
-اختلال در رادارهای هواشناسی در سراسر آمریکا.
-برخورد تانکر با کشتی کروز و زخمی شدن ۳۲ نفر در رودخانه می‌سی‌سی‌پی آمریکا
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11371
-
-<div align="center"><video src="files/post_11371_tasiyanc_11371.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11371_tasiyanc_11371.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو وایرال شده در توییتر یک کاربر ناشناس این فیلم رو از نمای بالا در تهران منتشر کرده و گفته :
-
-تا کمتر از یک هفته دیگه قراره جنگ آغاز شه و مخصوصا تهران بمباران شدیداً بشه!
-متاسفانه هفته دیگه تهران این شکلی نیست و تمام زیرساخت‌ها نابود میشن.
-این آخرین فیلم از برج میلاد خواهد بود و در جنگ بعدی نابود میشه.
 
 
 💋 @Tasiyanc
