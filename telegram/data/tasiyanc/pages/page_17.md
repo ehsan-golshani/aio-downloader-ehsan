@@ -1,8 +1,43 @@
 # آرشیو کانال tasiyanc - صفحه 17
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11084
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
+
+## tasiyanc — post 11083
+
+<div align="center"><img src="files/post_11083_tasiyanc_11083.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+▶️ دیدار فوق حسااااس بایرن مونیخ و دورتموند رو با آپشن های تخصصی در MelBet پیشبینی کنید! ✅
+
+💵 امکان شارژ کارت بکارت و هات ووچر
+🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
+🌐 دانلود مستقیم اپلیکیشن اندروید
+🤝 اسپانسر رسمی لالیگا
+🇮🇷 پشتیبانی از زبان فارسی
+✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
+
+برای ورود به سایت فیلترشکن خود را خاموش کنید!
+‌🌐 Link 🔜 MelBet1.net
+🌐‌ Link 🔜 MelBet1.net
+</div>
 
 ## tasiyanc — post 11082
 
@@ -265,17 +300,5 @@ https://t.me/+RwajvZ55XSo5OWM0
 
 نتایج گذشته تضمینی برای بردهای بعدی نیست؛ مسئولانه شرط‌بندی کنید.🅰7
 @Tipster_Persians
-</div>
-
-## tasiyanc — post 11064
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
-</div>
-
-## tasiyanc — post 11063
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بوی جنگ میاد
 </div>
 

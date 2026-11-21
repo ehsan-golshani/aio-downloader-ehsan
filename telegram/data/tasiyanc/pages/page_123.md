@@ -1,8 +1,21 @@
 # آرشیو کانال tasiyanc - صفحه 123
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 8420
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🏆پخش زنده مسابقات جام جهانی 2026 https://roxiestreams.su/soccer https://streamcorner.fyi/fifa-world-cup https://totalsportek.tips/football https://www.bintv.net https://soccerstreams.sbs https://strumyk.net سایت هایی که باز نمیشه رو باید با وی پی ان…
+</div>
+
+## tasiyanc — post 8419
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همه چی به کنار خوب این عربارو گاییدن🤣
+بی خایه های کودن
+</div>
 
 ## tasiyanc — post 8418
 
@@ -196,19 +209,5 @@ IP
 
 @Tasiyanc 
 ✅
-</div>
-
-## tasiyanc — post 8388
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 گزارش انفجار شدید در بوشهر
-
-@Tasiyanc ✅
-</div>
-
-## tasiyanc — post 8387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨💪 6 انفجار شدید در قشم @Tasiyanc ✅
 </div>
 

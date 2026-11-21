@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11403
+
+<div align="center"><video src="files/post_11403_tasiyanc_11403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11403_tasiyanc_11403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵افتتاحیه‌ای که به ورشکستگی ختم شد؛ فلافلی آبادان زیر هجوم وحمله مردم به سلف سرویس دوام نیاورد!
+
+یه فلافلی تو آبادان به مناسبت افتتاح شعبه جدیدش، سلف‌سرویس رایگان راه انداخته بود؛ اما هجوم مردم به سلف سرویس و ساندویچ‌هایی که انگار با بیل پر شده بودن، کار رو به جایی رسوند که صاحب مغازه مجبور شد کل شعبه رو تعطیل کنه و اعلام ورشکستگی کنه!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11402
+
+<div align="center"><video src="files/post_11402_tasiyanc_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11402_tasiyanc_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی از یه زوج ایرانی وایرال شده که سال ۲۰۲۳ ازدواج کردن، سال ۲۰۲۴ صاحب اولین دخترشون شدن، سال ۲۰۲۶ هم دختر دومشون به دنیا اومده و حالا سومی‌ام تو راهه!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11401
 
@@ -272,30 +298,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 جنگ جهانی!
 
 @Tasiyanc
-</div>
-
-## tasiyanc — post 11381
-
-<div align="center"><video src="files/post_11381_tasiyanc_11381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11381_tasiyanc_11381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیت عاشقانه دو تا گربه و میک‌لاوشون انقدر دلبر و بامزه از آب دراومده که این کلیپ به پربازدیدترین ویدیوی ۲۴ ساعت اخیر تبدیل شده! 😂💘
-
-عشق گربه ای دیده بودید؟ همینه
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11380
-
-<div align="center"><img src="files/post_11380_tasiyanc_11380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺بابک زنجانی یه ویدیو از خودشو گربش گذاشت و اما کامنتای مردم دیدنیه:
-
-
-
-💋 @Tasiyanc
 </div>
 

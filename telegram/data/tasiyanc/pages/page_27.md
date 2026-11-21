@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 27
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 10881
+
+<div align="center"><img src="files/post_10881_tasiyanc_10881.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G25🅰
+🛒 ورود به سایت 👇
+✅ https://rwqteyxoof.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 10880
+
+<div align="center"><img src="files/post_10880_tasiyanc_10880.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+حرکت پشم افکن دیگر از آموزش‌پرورش
+
+🔵ظاهراً «آخوندک» هم زیادی حساسیت‌برانگیز بوده، تغییرش دادن به «راهِبَک»!
+وقتی به‌جای حل مشکلات کشور، دغدغه اینه که مبادا اسم یه حشره به کسی بربخوره!
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10879
 
@@ -329,36 +366,5 @@ G24🅰
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10860
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆 🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾 🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰 🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی ⏰ ۱ تا ۱۵ اکتبر 🏆 جایزه…
-</div>
-
-## tasiyanc — post 10859
-
-<div align="center"><img src="files/post_10859_tasiyanc_10859.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📢 تورنمنت پاییزی بری بت؛ 5️⃣🔣1️⃣ میلیارد تومان جایزه! 🏆
-
-🙂 فقط 3️⃣ روز دیگر فرصت دارید از جوایز این تورنمنت بهره مند شوید 👾
-
-🃏 پاییز رو با یک رقابت داغ در کازینوی زنده Creedroomz شروع کن! 🎰
-
-🎁 هر هفته 0️⃣5️⃣7️⃣ میلیون تومان جایزه نقدی
-⏰ ۱ تا ۱۵ اکتبر
-🏆 جایزه برای 0️⃣5️⃣ نفر برتر
-👾 هرچه گردش مالی بیشتر، امتیاز بیشتر!
-
-🥳 بازی کن، امتیاز بگیر و برای جایزه‌های پاییزی رقابت کن!🛍
-
-🏢 ورود به سایت 👇
-⭐️ https://leworkcihsa.shop/fa/affiliates/?btag=914641_l303106
-
-✈️ کانال رسمی ما در تلگرام 👇
-⭐️ https://t.me/BerryBetOfficial
 </div>
 

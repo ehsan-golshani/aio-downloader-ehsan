@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11290
+
+<div align="center"><video src="files/post_11290_tasiyanc_11290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11290_tasiyanc_11290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از مادرای نسل جدید دیگه مادر نیستن، نینجان!
+
+این چه سرعت و چابکیه ! فکر کنم قبل از بچه‌دار شدن پارکور کار می‌کرده!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11289
+
+<div align="center"><video src="files/post_11289_tasiyanc_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11289_tasiyanc_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیویی وایرال شده؛ کاسبی امروز یه مرد ضایعاتی با جمع‌آوری کارتن، قوطی نوشابه و زباله‌های قابل بازیافت!
+
+++ نکته تلخ ماجرا اینجاست که به‌جای کارتن، انگار کلی پول مملکت رو انداختن توی سطل زباله!
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11288
 
@@ -269,43 +297,6 @@
 سفیر ایران در مسکو اعلام کرده که در گفت‌وگوهای مرتبط با پایان درگیری‌ها، تهران بر ضرورت دریافت تضمین‌های معتبر از واشنگتن تأکید کرده است.
 بر اساس این گزارش، ایران معتقد است بدون تضمین اجرای تعهدات و جلوگیری از تکرار حملات در جریان مذاکرات، دستیابی به توافق امکان‌پذیر نخواهد بود.
 اهمیت ماجرا: اختلاف بر سر تضمین‌های امنیتی و شروط مذاکره همچنان یکی از موانع اصلی مسیر دیپلماسی میان تهران و واشنگتن است.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11218
-
-<div align="center"><video src="files/post_11218_tasiyanc_11218.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11218_tasiyanc_11218.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🎬 فیلم سینمایی The Odyssey | ادیسه
-
-
-🔵بالاخره یکی از موردانتظارترین فیلم‌های سینمایی اکران شد!
-
-اثر جدید کریستوفر نولان با داستانی حماسی از اساطیر یونان با درخشش بانو شارلیز ترون و مت دیمون، سفر پرماجرای اودیسئوس و نبردش برای بازگشت به خانه.
-
-⚔️ ترکیبی از ماجراجویی، اسطوره و صحنه‌های تماشایی که نباید از دست بدید.
-+ فیلم با چند کیفیت مختلف در ربات قرار گرفت؛ کیفیت دلخواهتون رو انتخاب کنید و لذت ببرید.
-
-[ دانلود فیلم بدون سانسور با دوبله ]
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11217
-
-<div align="center"><img src="files/post_11217_tasiyanc_11217.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵عادی‌ترین توییت ترامپ؛ ظاهراً می‌خواد کاخ سفید رو هم تبدیل به رینگ UFC کنه!
-
-به دانا وایت، رئیس UFC، پیشنهاد داده سخنگوی کاخ سفید بشه و گفته می‌خواد چهره‌هایی مثل حبیب نورماگمدوف، اسلام ماخاچف، آماندا نونس و کایلا هریسون رو هم دور خودش جمع کنه!
-جالب‌تر اینکه گفته وظیفه این تیم، دفاع از آمریکا در برابر «دیوانه‌های چپ» خواهد بود! 😐
-
 
 💋 @Tasiyanc
 </div>

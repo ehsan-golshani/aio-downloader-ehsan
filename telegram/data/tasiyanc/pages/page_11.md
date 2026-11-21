@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11218
+
+<div align="center"><video src="files/post_11218_tasiyanc_11218.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11218_tasiyanc_11218.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎬 فیلم سینمایی The Odyssey | ادیسه
+
+
+🔵بالاخره یکی از موردانتظارترین فیلم‌های سینمایی اکران شد!
+
+اثر جدید کریستوفر نولان با داستانی حماسی از اساطیر یونان با درخشش بانو شارلیز ترون و مت دیمون، سفر پرماجرای اودیسئوس و نبردش برای بازگشت به خانه.
+
+⚔️ ترکیبی از ماجراجویی، اسطوره و صحنه‌های تماشایی که نباید از دست بدید.
++ فیلم با چند کیفیت مختلف در ربات قرار گرفت؛ کیفیت دلخواهتون رو انتخاب کنید و لذت ببرید.
+
+[ دانلود فیلم بدون سانسور با دوبله ]
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11217
+
+<div align="center"><img src="files/post_11217_tasiyanc_11217.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵عادی‌ترین توییت ترامپ؛ ظاهراً می‌خواد کاخ سفید رو هم تبدیل به رینگ UFC کنه!
+
+به دانا وایت، رئیس UFC، پیشنهاد داده سخنگوی کاخ سفید بشه و گفته می‌خواد چهره‌هایی مثل حبیب نورماگمدوف، اسلام ماخاچف، آماندا نونس و کایلا هریسون رو هم دور خودش جمع کنه!
+جالب‌تر اینکه گفته وظیفه این تیم، دفاع از آمریکا در برابر «دیوانه‌های چپ» خواهد بود! 😐
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11216
 
@@ -281,29 +318,5 @@
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰r16
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11194
-
-<div align="center"><video src="files/post_11194_tasiyanc_11194.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11194_tasiyanc_11194.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 تصویری تلخ از زندگی در حاشیه شهرهای هند!
-
-اینجا فقر فقط یک عدد یا آمار نیست؛ واقعیتی است که در نزدیک‌ترین فاصله ممکن می‌توان آن را دید. شرایط زندگی در برخی مناطق زاغه‌نشین هند، چهره‌ای تکان‌دهنده از نابرابری و محرومیت را به نمایش می‌گذارد.
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11192
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

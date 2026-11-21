@@ -1,8 +1,42 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11314
+
+<div align="center"><img src="files/post_11314_tasiyanc_11314.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰r20
+⚡️@RitzoBetsupports
+</div>
 
 ## tasiyanc — post 11313
 
@@ -275,33 +309,5 @@ Fill this room with what you know about me
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11290
-
-<div align="center"><video src="files/post_11290_tasiyanc_11290.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11290_tasiyanc_11290.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از مادرای نسل جدید دیگه مادر نیستن، نینجان!
-
-این چه سرعت و چابکیه ! فکر کنم قبل از بچه‌دار شدن پارکور کار می‌کرده!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11289
-
-<div align="center"><video src="files/post_11289_tasiyanc_11289.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11289_tasiyanc_11289.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیویی وایرال شده؛ کاسبی امروز یه مرد ضایعاتی با جمع‌آوری کارتن، قوطی نوشابه و زباله‌های قابل بازیافت!
-
-++ نکته تلخ ماجرا اینجاست که به‌جای کارتن، انگار کلی پول مملکت رو انداختن توی سطل زباله!
-
-💋@Tasiyanc
 </div>
 

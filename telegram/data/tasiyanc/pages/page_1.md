@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 11486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨وسط بزن‌بزن ایران و بحرین، یه خبر مهم هم به اطلاعتون برسونم!
+
+اگه از امشب تا ۷ روز آینده برای بچه‌دار شدن اقدام کنید، احتمالاً بچه‌تون سال آینده دقیقاً ۰۶/۰۶/۰۶ به دنیا میاد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11484
+
+<div align="center"><video src="files/post_11484_tasiyanc_11484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11484_tasiyanc_11484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
+
+طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11483
 
@@ -92,8 +115,6 @@ https://t.me/+yuNWNQ9zSYFhMWJk
 </div>
 
 ## tasiyanc — post 11476
-
-<div align="center"><a href="files/post_11476_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -251,30 +272,5 @@ The Diary of H.M. the Shah of Persia
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g28 https://t.me/+gYDRnUG5OX03MWJk…
-</div>
-
-## tasiyanc — post 11464
-
-<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰g28
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
 </div>
 

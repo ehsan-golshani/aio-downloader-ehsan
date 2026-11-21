@@ -1,8 +1,29 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/08/30 20:05
+📅 آخرین بروزرسانی: 1405/09/01 01:23
 
 ---
+
+## tasiyanc — post 10964
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10963
+
+<div align="center"><video src="files/post_10963_tasiyanc_10963.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10963_tasiyanc_10963.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این کسخل ادعا می‌کنه به مقام پیامبری رسیده و اسم خودش رو گذاشته «کاکائیل»!
+
+مملکت پر شده از ادعاهای عجیب‌غریب، یکی نیست اینارو جمع کنه یه جا کاری کنه نسلشون منقرض شه؟
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10962
 
@@ -262,34 +283,6 @@ G30🅰
 «سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
 
 یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پرزیدنت دونالد ترامپ:
-
-مذاکره با ایران تقریبا برام تموم شدست. به زودی اتفاقی در ایران رقم میزنیم. خیلیا فکر میکنن این اتفاق بعد از انتخابات میفته ولی خواهیم دید چه خواهد شد.
-
-قطعی اینترنت از رگ گردن نزدیک‌تره!!!!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10942
-
-<div align="center"><video src="files/post_10942_tasiyanc_10942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10942_tasiyanc_10942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 امـروز ۳۰ مهر، روز پـسـره‍
-
-شما ثابت کردید که مردانگی به سن‌ُ سال نیست روزتون مبارک پسرای خوش‌قلب ایران‌زمین ...
-
-بفرست واسه پسر خوشگلت 🩵
 
 ⚡ @Tasiyanc
 </div>
