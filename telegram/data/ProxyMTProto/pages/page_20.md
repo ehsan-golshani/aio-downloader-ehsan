@@ -1,8 +1,71 @@
 # آرشیو کانال ProxyMTProto - صفحه 20
 
-📅 آخرین بروزرسانی: 1405/08/30 04:23
+📅 آخرین بروزرسانی: 1405/08/30 11:26
 
 ---
+
+## ProxyMTProto — post 52940
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52939
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd669b7a9093d221633e4e222dbc11f07c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52938
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.pcspeedyfix.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52937
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: ddc6a4f331113ff4082a87cb48b2534506
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52936
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52935
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: ee93347c71bba50740c51ae7052ed6b9e3636c6f7564666c6172652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52934
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52933
 
@@ -118,72 +181,6 @@ Secret: EERighJJvXrFGRMCIMJdCQ
 Server: toppr3222oxt.asia
 Port: 443
 Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52920
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: — YOUR PROXY HERE —
-Port: 443
-Secret: reserve your spot ↓
-@ProxyMTProto
-
-👆 This is where your proxy could sit — a dedicated post at the time you pick.
-🎁 First slot 50% off.
-</div>
-
-## ProxyMTProto — post 52919
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: coinvpnpro.duckdns.org
-Port: 443
-Secret: ee3c23bf23e13aff489d37ab8181e48144636f696e76706e70726f2e6475636b646e732e6f7267
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52918
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: z1.nevcodeframe.com
-Port: 443
-Secret: eee5e0d75865263bccabe94c92f446184f7a312e6e6576636f64656672616d652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52916
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52915
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.brettanderson.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52914
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: love.piglio.online/c1c7b0001f2c
-Port: 443
-Secret: dd8fbaa0a0124101a02dde083cd3613e09
 @ProxyMTProto
 </div>
 

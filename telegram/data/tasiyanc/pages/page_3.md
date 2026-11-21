@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/08/30 04:25
+📅 آخرین بروزرسانی: 1405/08/30 11:28
 
 ---
+
+## tasiyanc — post 11434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11433
+
+<div align="center"><img src="files/post_11433_tasiyanc_11433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 11432
 
@@ -260,32 +293,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید! سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن. سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی…
-</div>
-
-## tasiyanc — post 11412
-
-<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
-
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11411
-
-<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
-
-ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
-
-
-💋@Tasiyanc
 </div>
 

@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/08/30 04:25
+📅 آخرین بروزرسانی: 1405/08/30 11:28
 
 ---
+
+## tasiyanc — post 11347
+
+<div align="center"><video src="files/post_11347_tasiyanc_11347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11347_tasiyanc_11347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شاید باورتون نشه، اما این مرد در ترکیه ۲۷ ساله که در یک مکان منتظر بازگشت دختریه که عاشقش بوده!
+ماجرا از جایی شروع شد که ۲۷ سال پیش، دختر بهش گفت: «منتظرم بمون، برمی‌گردم...»اما دیگه هیچ‌وقت برنگشت!
+با گذشت این همه سال، مرد همچنان به انتظارش ادامه می‌ده. مردم محلی هم وقتی دیدن دست از انتظار نمی‌کشه، براش آب و غذا می‌برن تا تنها نمونه...
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11346
+
+<div align="center"><video src="files/post_11346_tasiyanc_11346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11346_tasiyanc_11346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال‌شده از پلیس برزیل، لحظه بازداشت مردی را نشان می‌دهد که به ضرب‌وشتم مادرش متهم شده ...
+
+یه جوری رید به خودش که دیگه از این غلطا نکنه
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11345
 
@@ -287,41 +313,5 @@
  چیزی که شاید چند ساعت مستی ایجاد کنه، می‌تونه در درازمدت هزینه سنگینی برای سلامت بدن داشته باشه.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11324
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11323
-
-<div align="center"><video src="files/post_11323_tasiyanc_11323.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11323_tasiyanc_11323.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g20
-⚡️@RitzoBetsupports
 </div>
 

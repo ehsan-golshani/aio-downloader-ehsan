@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/08/30 04:25
+📅 آخرین بروزرسانی: 1405/08/30 11:28
 
 ---
+
+## tasiyanc — post 11370
+
+<div align="center"><video src="files/post_11370_tasiyanc_11370.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11370_tasiyanc_11370.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 شغل عجیب و رویایی در کره جنوبی؛ دوست‌پسر اجاره‌ای!
+
+ظاهراً تو کره جنوبی سرویسی وجود داره که اگه دلت یه دوست‌پسر خواست، می‌تونی از بین چند نفر انتخاب کنی و برای مدتی اجاره‌شون کنی!
+واکنش این دختر خارجی به شنیدن این موضوع دیدنیه؛ انگار هنوز باورش نشده همچین چیزی واقعاً وجود داره!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11368
 
@@ -305,31 +331,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰21
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11347
-
-<div align="center"><video src="files/post_11347_tasiyanc_11347.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11347_tasiyanc_11347.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شاید باورتون نشه، اما این مرد در ترکیه ۲۷ ساله که در یک مکان منتظر بازگشت دختریه که عاشقش بوده!
-ماجرا از جایی شروع شد که ۲۷ سال پیش، دختر بهش گفت: «منتظرم بمون، برمی‌گردم...»اما دیگه هیچ‌وقت برنگشت!
-با گذشت این همه سال، مرد همچنان به انتظارش ادامه می‌ده. مردم محلی هم وقتی دیدن دست از انتظار نمی‌کشه، براش آب و غذا می‌برن تا تنها نمونه...
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11346
-
-<div align="center"><video src="files/post_11346_tasiyanc_11346.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11346_tasiyanc_11346.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی وایرال‌شده از پلیس برزیل، لحظه بازداشت مردی را نشان می‌دهد که به ضرب‌وشتم مادرش متهم شده ...
-
-یه جوری رید به خودش که دیگه از این غلطا نکنه
-💋@Tasiyanc
 </div>
 

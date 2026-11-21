@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/08/30 04:25
+📅 آخرین بروزرسانی: 1405/08/30 11:28
 
 ---
+
+## tasiyanc — post 11207
+
+<div align="center"><img src="files/post_11207_tasiyanc_11207.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مردی که برای نجات افغانستان از خشکسالی و فقر تلاش کرد، سرانجام در همان سرزمین ترور شد!
+
+«تتسو ناکامورا»، پزشک ژاپنی، با ساخت کانال‌های آبیاری و احیای حدود ۱۶ هزار هکتار زمین خشک، زندگی صدها هزار نفر را تغییر داد؛ اما افغانیا جای سپاسگزاری ترورش کردن .
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11205
+
+<div align="center"><video src="files/post_11205_tasiyanc_11205.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11205_tasiyanc_11205.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تکرار یک جنایت هولناک؛ سارا برومند قربانی تعرض و قتل شد! سارا برومند، زن ۲۷ ساله و مادر دو کودک ۶ و ۱۲ ساله، هنگام بازگشت به خانه در محدوده گلبهار مشهد سوار یک تاکسی شد؛ اما این مسیر هرگز به مقصد نرسید. راننده با قصد تجاوز به سارا حمله کرده و پس از مقاومت…
+</div>
 
 ## tasiyanc — post 11204
 
@@ -299,51 +322,5 @@
 #شرطبندی
 ♦️ آموزش شارژ حساب با کریپتو
 ♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11181
-
-<div align="center"><video src="files/post_11181_tasiyanc_11181.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11181_tasiyanc_11181.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
-
-🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
-
-
-⚡️ واریز آنی با کریپتو
-
-⚡️ تسویه‌حساب سریع و مطمئن
-
-⚡️ دسترسی آسان و بدون دردسر
-
-⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
-
-🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰r15
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11180
-
-<div align="center"><video src="files/post_11180_tasiyanc_11180.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11180_tasiyanc_11180.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵«ویدیو وایرال شده» یه مرد ایرلندی وصیت کرده بود صدای ضبط‌شده‌شو تو تشییع جنازه‌ش پخش کنن…
-
-نتیجه‌ش شد یه شاهکار که خود مرده هم از اون دنیا داشت می‌خندید 😂
-ببینید مراسم رو چطور به یه استندآپ کمدی تبدیل کرد
-
-
-💋 @Tasiyanc
 </div>
 
