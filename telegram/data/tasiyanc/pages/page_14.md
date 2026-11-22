@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/09/01 12:37
+📅 آخرین بروزرسانی: 1405/09/01 20:45
 
 ---
+
+## tasiyanc — post 11163
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11162
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
+
+➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
+
+💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
+
+⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
+
+🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰13
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11161
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!! کی کانفیگ فروشی نداشت؟ تاسیان!!! کی هواتونو همیشه خواهد داشت ؟ تاسیان ! فردا نت قطع شد کی پیشته ؟ تاسیان!! منتظر حمایتتون هستیم! چون کم نزاشتیم آیدی کانالو بفرستید به دوستاتون. بنظرم جای این حرفا نبود موقع قطعی‌ها…
+</div>
+
+## tasiyanc — post 11160
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نتا قطع بود کی پیشتون بود؟ تاسیان!!!
+
+کی کانفیگ فروشی نداشت؟ تاسیان!!!
+
+کی هواتونو همیشه خواهد داشت ؟ تاسیان !
+
+فردا نت قطع شد کی پیشته ؟ تاسیان!!
+
+منتظر حمایتتون هستیم! چون کم نزاشتیم
+
+آیدی کانالو بفرستید به دوستاتون.
+بنظرم جای این حرفا نبود موقع قطعی‌ها خودمون ثابت کردیم !!!!
+@Tasiyanc
+</div>
+
+## tasiyanc — post 11159
+
+<div align="center"><img src="files/post_11159_tasiyanc_11159.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ایده جالب ایلان ماسک برای اپلیکیشن پرداخت بدهی‌ها توسط ثروتمندان
+
+
+ایلان ماسک پیشنهاد ساخت اپلیکیشنی را مطرح کرده است که در آن افراد از سراسر جهان بتوانند قبض‌ها و بدهی‌های خود را ثبت کنند و افراد ثروتمندِ علاقه‌مند به کار خیر، امکان پرداخت آن بدهی‌ها را داشته باشند. این ایده در صورت اجرایی‌شدن می‌تواند مدلی مستقیم‌تر و شفاف‌تر برای کمک مالی ایجاد کند؛ هرچند موفقیت آن به سازوکار اعتماد، احراز هویت، حفظ حریم خصوصی و جلوگیری از سوءاستفاده وابسته خواهد بود.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11158
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11157
 
@@ -217,98 +298,6 @@ https://t.me/+gYDRnUG5OX03MWJk
 🔵ترند جدید عاشقانه بین پسرا حسابی وایرال شده!
 
 پسرا با کمک بازوهاشون شکل قلب درست می‌کنن و اینجوری عشقشون رو به دوست‌دختر یا کسی که دوستش دارن ابراز می‌کنن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11142
-
-<div align="center"><video src="files/post_11142_tasiyanc_11142.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11142_tasiyanc_11142.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حمیده راسخی، بلاگر ایرانی ساکن خارج از کشور، تمامی ویدیو هایی که توشون اکثرا میمی های ۸۵ش رو به نمایش میزاشت رو از پیجش پاک کرد و با انتشار یک ویدیو اعلام کرد که به ایران اومده، توبه کرده ...
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11141
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ اپلیکیشن اندروید Wepari 🥇
-
-🎁 کد هدیه 100 دلاری: Top100
-
-با ثبت یک میلیون شرط روی :
-برد بارسلونا⚽️
-+ برد منچستریونایتد⚽️
-
-برنده 3.000.000 میلیون شوید ✔
-
-✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11140
-
-<div align="center"><img src="files/post_11140_tasiyanc_11140.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدارهای فوق حساااااس چمپیونزلیگ 🇪🇺 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸🅰g12
-</div>
-
-## tasiyanc — post 11139
-
-<div align="center"><video src="files/post_11139_tasiyanc_11139.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11139_tasiyanc_11139.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم دیده نشده و «وایرال شده» پشم ریزون از حملات آمریکا و اسرائیل در جنگ 40 روزه به خیابان شریعتی تهران.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11138
-
-<div align="center"><video src="files/post_11138_tasiyanc_11138.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11138_tasiyanc_11138.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هنوز داریم با دیدن سناریوی حمله اتمی شوکه می‌شیم، دوغ آبعلی از همون فاجعه هم فرصت تبلیغاتی ساخته که تهرانو با اتم میزنن!
-ظاهراً برای تیم مارکتینگ دوغ آبعلی، هیچ اتفاقی خارج از حوزه تبلیغات نیست!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11137
-
-<div align="center"><video src="files/post_11137_tasiyanc_11137.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11137_tasiyanc_11137.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از نوع پوشش و استایل بانوان در تهران:
 
 
 💋 @Tasiyanc

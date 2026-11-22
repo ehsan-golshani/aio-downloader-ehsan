@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/01 12:37
+📅 آخرین بروزرسانی: 1405/09/01 20:45
 
 ---
+
+## tasiyanc — post 11458
+
+<div align="center"><video src="files/post_11458_tasiyanc_11458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11458_tasiyanc_11458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فضاپیمای وویجر 1🛸 سفیر زمینی‌ها در مرزهای ناشناخته کیهان!
+
+فضاپیمای وویجر ۱ که ۴۹ سال پیش توسط ناسا به فضا پرتاب شد، حالا به فاصله‌ای رسیده که نور برای رسیدن از زمین به اون تقریباً ۲۴ ساعت زمان نیاز داره! یعنی بیش از ۲۵ میلیارد کیلومتر دورتر از ما.
+اما عجیب‌ترین بخش ماجرا، پیامیه که همراه خودش حمل می‌کنه؛ یک صفحه طلایی حاوی تصاویر، صداها، موسیقی و پیام‌هایی به ۵۵ زبان مختلف، برای اینکه اگر روزی تمدنی بیگانه پیداش کرد، با انسان‌ها و زمین آشنا بشه.
+++حتی یک پیام فارسی هم روی این صفحه ثبت شده، با شعر جاودانه حضرت سعدی:
+«درود بر ساکنین ماورای آسمان‌ها»
+بنی‌آدم اعضای یک پیکرند
+که در آفرینش ز یک گوهرند
+چو عضوی به درد آورد روزگار
+دگر عضوها را نماند قرار
+تصور کن یه روز، در دوردست‌ترین نقطه‌های کیهان، موجوداتی این پیامهارو رو پیدا کنن....
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+QfLVEylr-2c2YzQ0 https://t.me/+QfLVEylr-2c2YzQ0 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
+</div>
+
+## tasiyanc — post 11456
+
+<div align="center"><img src="files/post_11456_tasiyanc_11456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+QfLVEylr-2c2YzQ0
+https://t.me/+QfLVEylr-2c2YzQ0
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
+</div>
+
+## tasiyanc — post 11455
+
+<div align="center"><img src="files/post_11455_tasiyanc_11455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس: ایران دیگه قصد وقت‌کشی نداره!
+
+به گفته خبرگزاری فارس، نفتکش‌ها در حال آماده‌سازی برای خروج از بنادر و حرکت به سمت چین هستن؛ و به کشور های حاشیه خلیج‌فارس هشدار داده شده هرگونه حمله به نفتکش‌ها می‌تونه آغازگر یک جنگ تمام‌عیار باشه.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد. + خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم 🚨تکذیب شد 
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11453
+
+<div align="center"><img src="files/post_11453_tasiyanc_11453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد.
+
++ خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم
+
+🚨تکذیب شد
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11452
 
@@ -266,91 +347,5 @@ https://t.me/+gagcxCKK4QQzNGI8
 مهاجم در دادگاه به جرم خود اعتراف کرد و در نهایت به ۲۰ هفته حبس تعلیقی محکوم شد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g27 https://t.me/+gYDRnUG5OX03MWJk…
-</div>
-
-## tasiyanc — post 11437
-
-<div align="center"><img src="files/post_11437_tasiyanc_11437.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰g27
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11436
-
-<div align="center"><video src="files/post_11436_tasiyanc_11436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11436_tasiyanc_11436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کوچک‌زاده، نماینده مجلس:
-هدف انقلاب ارزونی و سیر کردن شکم مردم نبوده
-گرسنگی و گرونی هم امتحان الهیه! همین که تو خیابون حضور داریم، یعنی پیروز شدیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11435
-
-<div align="center"><video src="files/post_11435_tasiyanc_11435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11435_tasiyanc_11435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پشماتون بریزه! یه دختر جوون تو تهران برای شست‌وشوی معده رفته بیمارستان، اما دکترا موقع بررسی معده‌اش با یه دندون انسان روبه‌رو شدن!
-
-وقتی ازش پرسیدن این دندون چطوری وارد معده‌ات شده، گفته موقع لب گرفتن از شوگرددیم، یکی از دندون‌هاش افتاد دهنم و ناخواسته قورتش دادم !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11433
-
-<div align="center"><img src="files/post_11433_tasiyanc_11433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

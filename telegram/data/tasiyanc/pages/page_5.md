@@ -1,8 +1,86 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/01 12:37
+📅 آخرین بروزرسانی: 1405/09/01 20:45
 
 ---
+
+## tasiyanc — post 11418
+
+<div align="center"><img src="files/post_11418_tasiyanc_11418.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵قتل هولناک مادر و دختر به دست مردی که با دختر جوان در رابطه بود!
+
+دو هفته پیش، جسد سوخته یک دختر جوان در اندیشه تهران پیدا شد و چند روز بعد هم جسد مادر میانسالش در تهرانسر کشف شد.
+با ادامه تحقیقات مشخص شد هر دو قربانی مادر و دختر بوده‌اند و عامل قتل‌ها مردی بوده که با دختر جوان رابطه داشته است.
+متهم در اعترافاتش گفته وقتی متوجه شده رابطه‌شان در آستانه جدایی است، برای سرقت طلاهای دختر تصمیم به قتل او گرفته؛ بعد از قتل، جسدش را آتش زده و طلاهایش را سرقت کرده
+او سپس به سراغ مادر دختر رفته و او را هم به قتل رسانده و با سرقت طلاهایش فرار کرده است.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11414
+
+<div align="center"><img src="files/post_11414_tasiyanc_11414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰25
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11413
+
+<div align="center"><img src="files/post_11413_tasiyanc_11413.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید! سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن. سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی…
+</div>
+
+## tasiyanc — post 11412
+
+<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
+
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11411
+
+<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
+
+ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
+
+
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11410
 
@@ -205,97 +283,5 @@ https://jhet0n.online/fa/?btag=2786270
 ظاهراً مردم برای خوردن این پیتزای متفاوت حاضرن ساعت‌ها تپ صف منتظر بمونن😐
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11394
-
-<div align="center"><video src="files/post_11394_tasiyanc_11394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11394_tasiyanc_11394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ماجرای تکان‌دهنده خودکشی یک پسر ۱۳ ساله در تهران؛ دست‌نوشته‌ای که راز عجیب زندگی پدر و مادرش رو فاش کرد!
-
-طبق روایت منتشرشده، پدر و مادر این نوجوان با یک زوج آشنا رابطه جنسی گروهی داشتن و پسر بعداً از این ماجرا باخبر می‌شه!
-شوک بزرگ‌تر زمانی بوده که متوجه شباهت‌های ظاهری خودش به دوست پدرش می‌شه و به این احتمال شک می‌کنه که شاید پدر واقعی‌اش شخص دیگه‌ای باشه!
-این نوجوان تمام ماجرا رو در دست‌نوشته‌ای خطاب به معلم پرورشی‌اش روایت کرده؛ اتفاقی تلخ که با خودکشی او همراه شده.
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چشمم زدید؟!🧿🤬
-
-منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
-</div>
-
-## tasiyanc — post 11392
-
-<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
-
-تقصیر پرتغال بود یا اشتباه خودم؟👇😞
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
-</div>
-
-## tasiyanc — post 11391
-
-<div align="center"><video src="files/post_11391_tasiyanc_11391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11391_tasiyanc_11391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز پرواز باشکوه پرنده «همای سعادت» در طالقان !
-
-امروز تصاویری از پرواز این پرنده زیبا در ارتفاعات طالقان ثبت شده که مورد توجه قرار گرفته.
-در باورهای ایران باستان، همای سعادت نماد خوش‌یمنی، بخت بلند و آمدن روزهای روشن بوده؛ پرنده‌ای افسانه‌ای که دیدنش را به فال نیک می‌گرفتند.
-این پرنده کلا سه بار دیده شده در ایران که :
-قبل جنگ ۱۲ روزه
-قبل اعتراضات دی ماه
-قبل از جنگ ۴۰ روز
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11390
-
-<div align="center"><video src="files/post_11390_tasiyanc_11390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11390_tasiyanc_11390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه با دخترای ۱۸ تا ۲۵ سال در رابطه‌ای یا قصد آشنایی باهاشون رو داری، یه‌سری نکته مهم هست که بهتره حتماً قبلش بدونی ؛
-ویدیو رو کامل ببینید !
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11389
-
-<div align="center"><video src="files/post_11389_tasiyanc_11389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11389_tasiyanc_11389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵گاهی واقعاً لازمه از شلوغی و دغدغه‌های زندگی فاصله بگیری، با رفیقات بزنی به دل طبیعت مثل این اکیب، بخندی و خوش بگذرونی.
-
-از لحاظ روحی دوست داشتم منم بین اینا باشم 😒 کامنتارو نگاه😂
-
-
-💋 @Tasiyanc
 </div>
 

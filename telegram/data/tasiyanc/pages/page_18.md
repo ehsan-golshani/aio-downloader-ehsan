@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/09/01 12:37
+📅 آخرین بروزرسانی: 1405/09/01 20:45
 
 ---
+
+## tasiyanc — post 11077
+
+<div align="center"><video src="files/post_11077_tasiyanc_11077.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11077_tasiyanc_11077.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 وفاداری‌ای که حتی مرگ هم نتونست از بین ببره، سگ مومیایی ۳۳۰۰ ساله پادشاه مصر پیدا شد!
+
+بیش از ۳۳۰۰ سال پیش، در آرامگاه سلطنتی فرعون آمنهوتپ دوم، مومیایی یک سگ کشف شد؛ سگی که ظاهراً جایگاهی ویژه در زندگی پادشاه داشته و حتی پس از مرگ هم در کنار او آرام گرفته است.
+انگار بعضی پیوندها، حتی با گذشت هزاران سال هم فراموش نمی‌شن...
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11076
+
+<div align="center"><img src="files/post_11076_tasiyanc_11076.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مخدری که بدن انسان رو از درون نابود می‌کنه؛ اسمش کروکودیله! 🐊
+
+«کروکودیل» یکی از مخدرهای بسیار خطرناکه که مصرفش می‌تونه باعث تخریب شدید بافت‌های بدن، عفونت و حتی از بین رفتن بخش‌هایی از پوست و گوشت بشه!
+آسیب‌های این ماده به‌قدری وحشتناکه که در موارد شدید، ظاهر بدن مصرف‌کننده تغییر می‌کنه و زخم‌های عمیقی روی پوستش به وجود میاد.
+این مخدر به‌خاطر عوارض مخربش به اسم کروکودیل معروف شده؛ هشداری جدی درباره اینکه بعضی مواد چطور می‌تونن زندگی انسان رو به نابودی بکشن.
+⚠️ کروکودیل؛ فقط یک اسم ترسناک نیست، یک خطر جدی برای جان انسانه.
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11075
+
+<div align="center"><video src="files/post_11075_tasiyanc_11075.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11075_tasiyanc_11075.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇 https://t.me/+RwajvZ55XSo5OWM0 https://t.me/+RwajvZ55XSo5OWM0 🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
+
+## tasiyanc — post 11074
+
+<div align="center"><video src="files/post_11074_tasiyanc_11074.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11074_tasiyanc_11074.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+
+💸 بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.
+⭐
+👇
+
+https://t.me/+RwajvZ55XSo5OWM0
+https://t.me/+RwajvZ55XSo5OWM0
+
+🎯 سود 3 ملیونی ما از میکس لیگ عربستان 
+⚽️
+💵🅰g8
+</div>
+
+## tasiyanc — post 11073
+
+<div align="center"><video src="files/post_11073_tasiyanc_11073.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11073_tasiyanc_11073.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مجری احمق مکزیکی وسط پخش زنده جوگیر شد پهپاد رو لگد زد، مستقیم خورد تو صورت مدل برنامه!
+
+ارنستو چاوانا، مجری مکزیکی، وسط برنامه زنده خواست پهپاد رو با لگد بزنه، اما پهپاد منحرف شد و خورد تو صورت ایزابلا روخاس، مدل حاضر تو برنامه!
+ایزابلا با صورت زخمی صحنه رو ترک کرد و رسانه‌ها از بریدگی لبش خبر دادن ایزابلا بعد از دریافت درمان دوباره برگشت استودیو.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11072
+
+<div align="center"><img src="files/post_11072_tasiyanc_11072.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جف بزوس مالک آمازون تکلیف میلیاردها دلار ثروتش رو مشخص کرد!
+
+بنیان‌گذار آمازون در یک برنامه درباره سرنوشت ثروتش گفت حدود ۳۰ درصد دارایی‌اش رو صرف امور خیریه می‌کنه و باقی ثروتش به همسرش، لورن سانچز، می‌رسه تا هر طور که می‌خواد ازش استفاده کنه.
+اما نکته جالب ماجرا اینجاست؛ بچه‌هاش قرار نیست ثروت هنگفتی به ارث ببرن! به گفته بزوس، ترجیح می‌ده بهشون یاد بده چطور کار کنن و خودشون پول دربیارن، نه اینکه صرفاً وارث ثروت پدرشون باشن!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11071
 
@@ -166,98 +263,6 @@
 🔵اتفاقی عجیب 4 نوجوان زیر 15 سال به اتهام آدم‌ربایی در بجنورد دستگیر شدند!
 
 این نوجوانان متهم‌اند که فردی را به خارج از شهر برده و پول و گوشی او را سرقت کرده‌اند. ماجرا زمانی عجیب‌تر شد که با همان گوشی سرقتی تماس گرفتند و قرار دعوا گذاشتند؛ غافل از اینکه رد گوشی، پلیس را به آن‌ها می‌رساند!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11057
-
-<div align="center"><img src="files/post_11057_tasiyanc_11057.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 یکی از عجیب‌ترین پدیده‌های طبیعی ایران ؛ جزیره‌ای که جابه‌جا می‌شه!
-
-یکی از عجیب‌ترین جاذبه‌های طبیعی ایران، چمن متحرک چملی توی شهر تکاب استان آذربایجان غربیه؛ یه برکه که وسطش جزیره‌ای از چمن و گیاهان شناوره و با وزش باد جابه‌جا می‌شه!
-
-این عکس‌ها از یه زاویه، توی دو فصل متفاوت گرفته شدن؛ یکی بهار و یکی پاییز. ببین طبیعت ایران چه چیزایی تو دل خودش پنهون کرده!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11056
-
-<div align="center"><video src="files/post_11056_tasiyanc_11056.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11056_tasiyanc_11056.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه استخر پارتی تو شمال تهران:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📱 اپلیکیشن اندروید بدون فیلتر لنز بت 🚀
-
-🛡 ثبت نام آسان و سریع✔️
-
-📱 اپلیکیشن را روی موبایل اندروید خود
-نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11054
-
-<div align="center"><img src="files/post_11054_tasiyanc_11054.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💥 با لنزبت، هیجان بازیها رو چندین برابر کن 🎯
-
-⛏️ بونوس 🛍0️⃣0️⃣2️⃣ خوش آمد گویی
-💯 بونوس 🔣0️⃣0️⃣1️⃣برای هر واریز
-🔝 بونوس🔤0️⃣0️⃣1️⃣ کازینو
-💰 کد هدیه0️⃣2️⃣🔤🔤 بعد از اولین واریز
-📇 امتیاز وفاداری با انواع بونوسهای روزانه مخصوص کاربران فعال لنزبت🍀
-🔤0️⃣3️⃣کش بگ هفتگی
-💵پشتیبانی از تمامی ارزهای دیجیتال و کارت به کارت آنلاین برای شارژ و برداشت
-🅰g7
-🔤🔤🔤🔤🔤🔤🔤
-
-📱 @lenzbet_official
-
-📱 https://www.lenzbet1.xyz
-</div>
-
-## tasiyanc — post 11053
-
-<div align="center"><img src="files/post_11053_tasiyanc_11053.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ترویج بی‌بندوباری و لاشی‌گری توسط یه عده بلاگرنمای چِل پدر در اینستاگرام !
-
-یه عده تو اینستاگرام انگار نه تعهد حالیشونه، نه وفاداری؛ زن متأهل دوست‌پسر می‌گیره، بعد به خاطر همون یارو شوهرشو ول می‌کنه و طلاق می‌گیره!
-بعدم این چیزا رو می‌کشن وسط فضای مجازی، انگار نه انگار پای زندگی و احساسات آدمای دیگه وسطه!
-هر گوهی می‌خواین تو زندگی شخصیتون بخورین، ولی خیانت رو به اسم سبک زندگی مدرن به خورد بقیه ندین!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11052
-
-<div align="center"><img src="files/post_11052_tasiyanc_11052.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آدم‌خوار اوگاندایی که متهمه ۳۸ نفر رو کشته و خورده!
-
-مردی به نام «فرد موجولیزی» در اوگاندا به قتل و آدم‌خواری متهم شده؛ گفته می‌شه این جنایات طی ۱۵ سال، از ۲۰۱۰ تا ۲۰۲۵، اتفاق افتاده!
-
-طبق گزارش‌ها، اون با کمک همدستش وارد خونه قربانی‌ها می‌شده و بعد از قتل، اجسادشون رو می‌خورده.
-حالا این پرونده جنجالی در جهان خبرساز و وایرال شده و جزئیاتش همچنان در حال بررسیه!
 
 
 💋 @Tasiyanc
