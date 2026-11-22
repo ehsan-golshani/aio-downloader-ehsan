@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11447
+
+<div align="center"><video src="files/post_11447_tasiyanc_11447.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11447_tasiyanc_11447.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آپدیت جدید فیلترشکن سایفون؛ ارزش امتحان کردن داره!
+
+نسخه جدید سایفون منتشر شده و طبق تست‌هایی که انجام دادم، روی تمام اپراتورها و سرور کشورهای مختلف از جمله 
+🇩🇪 ، 
+🇸🇪 ، 
+🇺🇸 ، 
+🇮🇹 ، 
+🇳🇱 به‌ خوبی وصل می‌شه حتمااااا پیشنهاد میشه دانلود کنید .
+
+مشکل اتصال جمینای ، هوش مصنوعی هم رفع میشه با وصل شدن به کشور های اروپا و امریکا حتما تست کنید نسخه جدید رو و VPN های مخرب و ایرانی رو از گوشیتون حذف کنید
+
+▶️Android Play Store 
+🕹
+
+
+▶️iOS App Store 📱
+
+
+▶️Official Site Psiphon Team 
+📱
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11446
+
+<div align="center"><video src="files/post_11446_tasiyanc_11446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11446_tasiyanc_11446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این مرد روسی تو فضای مجازی با یه دختر اروپایی آشنا می‌شه، با کلی ذوق و امید هتل رزرو می‌کنه و برای دیدنش راهی یه کشور دیگه می‌شه؛ اما بعد از چند دقیقه ماچ و بوس، تازه می‌فهمه طرف مقابلش دختر نیست و مرده!
+
+حالا پاسپورتشو با خودش مقایسه میکنه پشماش ریخته
+😂
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11445
 
@@ -308,29 +355,5 @@ http://my.sanjesh.org/
 🌐 آدرس ورود به سایت پیش بینی وی پاری
 
 بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸 🅰26
-</div>
-
-## tasiyanc — post 11427
-
-<div align="center"><img src="files/post_11427_tasiyanc_11427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کیمیا حسینی، مدل ۲۴ ساله ایرانی، عنوان «زیباترین دختر ایران در سال ۲۰۲۶» رو به خودش اختصاص داد!
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11426
-
-<div align="center"><video src="files/post_11426_tasiyanc_11426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11426_tasiyanc_11426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تا حالا از این زاویه نعمت خدارو دیده بودید ؟ 😂
-
-
-💋 @Tasiyanc
 </div>
 

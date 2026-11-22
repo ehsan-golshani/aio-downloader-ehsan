@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11404
+
+<div align="center"><img src="files/post_11404_tasiyanc_11404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r25
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 11403
 
@@ -265,38 +298,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 فرصت محدود رفقا زود عضو شین 🆗
 اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
 https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11383
-
-<div align="center"><img src="files/post_11383_tasiyanc_11383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰23
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11382
-
-<div align="center"><img src="files/post_11382_tasiyanc_11382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پیتر جرمانوس تحلیلگر مشهور لبنانی:
-
-تا ۷۲ ساعت دیگه اتفاق بزرگی رخ میده که جهان رو تکون خواهد داد.
-
-جنگ جهانی!
-
-@Tasiyanc
 </div>
 

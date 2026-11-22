@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11340
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ  فول سرعتی OpenVpn 📶
+
+آموزش اتصال ⛓
+
+دانلود برای اندروید 🕹
+
+دانلود برای آیفون📱
+
+مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
+
+در صورت ارور دو سه بار بزنید
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 11339
+
+<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
+
+دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
+دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11338
 
@@ -268,29 +299,5 @@
 ماریسا برنسون، مدل و بازیگر آمریکایی جلوی امامزاده هارونیه اصفهان، در حال ژست گرفتن برای پروژه عکاسی برای مجله مد Vogue، پنجاه سال پیش!
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11317
-
-<div align="center"><video src="files/post_11317_tasiyanc_11317.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11317_tasiyanc_11317.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرار خنده‌دار یک پنگوئن از محل نگهداری‌اش در پارک قطبی شهر هاربین چین
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11316
-
-<div align="center"><img src="files/post_11316_tasiyanc_11316.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵زودتر خوابیدن چه ارتباطی با کاهش وزن دارد؟
-
-نتایج یک پژوهش جدید در دانشگاه نیویورک نشان می‌دهد زمان به خواب رفتن ممکن است در کاهش وزن نقش داشته باشد. محققان دریافتند افرادی که زودتر می‌خوابیدند، طی یک دوره هشت‌هفته‌ای کاهش وزن بیشتری را تجربه کردند؛ به‌طوری‌که هر ساعت با حدود ۱.۳ پوند (۰.۶ کیلوگرم) کاهش وزن در طول هشت هفته مرتبط بود. این ارتباط مستقل از مدت زمان خواب شبانه مشاهده شد.
-
-💋 @Tasiyanc
 </div>
 

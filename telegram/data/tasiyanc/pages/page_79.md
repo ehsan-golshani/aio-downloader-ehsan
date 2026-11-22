@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 79
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9603
+
+<div align="center"><img src="files/post_9603_tasiyanc_9603.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥 سایت جهانی WePari 🔥
+                       
+         
+😃
+😃😃😃
+         😃
+😃😃😃
+
+🔥 بازگشت باخت به صورت هفتگی
+🔥پرداخت جوایز سریع و امن
+شارژ حساب از طریق ارز دیجیتال و انواع ووچر
+┅━━━━━━━━━━━
+
+🎁 کد هدیه ثبت نام: Wepari2
+
+👽ثبت نام کنید.   
+👇
+
+📱 نصب اپلیکیشن اندروید کلیک کنید
+💳 آموزش شارژ با کارت بانکی
+💸آموزش شارژ با یو ووچر
+💰آموزش شارژ با ارز دیجیتال
+
+
+🌐آدرس سایت👇
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+til.ac/0L4vyJf
+
+
+📲 کانال تلگرامی #وی_پاری :
+
+✅ @Wepari2
+</div>
+
+## tasiyanc — post 9601
+
+<div align="center"><img src="files/post_9601_tasiyanc_9601.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 تصاویر لو رفته سامسونگ S27 که قراره تو سال 2027 عرضه بشه ، تا حدودی ماژول دوربین از آیفون ۱۷ پرومکس الهام گرفته شده
+
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9600
 
@@ -274,43 +325,5 @@ sa2
 ایران از سرگیری مذاکرات با ایالات متحده را نیز نپذیرفت
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-اختصاصی وایرگارد  😎
-
-مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-
-دانلود 📱Android🕹  iOS
-
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با windscribe⛓
-
-
-
-اتصال امن برای همه 🇮🇷
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 9566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
-
-سرورهای نامحدود مولتی لوکیشن ⭕️
-
-⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
-
-🚨 آموزش فعال سازی IPv6 
-⛓
-
-💋 @TASIYANC
 </div>
 

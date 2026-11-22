@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
+</div>
+
+## tasiyanc — post 11487
+
+<div align="center"><img src="files/post_11487_tasiyanc_11487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+4iOoNe8EvMNkY2Vk
+https://t.me/+4iOoNe8EvMNkY2Vk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
+</div>
 
 ## tasiyanc — post 11486
 
@@ -235,40 +258,6 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵ویدیو وایرال شده از خیابون فرشته تهران که ماشین‌های کاستوم‌شده به سبک «GTA» رو کنار هم جمع کردن و یه دورهمی با حال‌وهوای گیم و ماشین راه انداختن؛ انگار لس‌سانتوس اومده وسط تهران.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11467
-
-<div align="center"><img src="files/post_11467_tasiyanc_11467.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه ایده تأسیس «اسرائیل 🇮🇱» رو ناصرالدین‌شاه 👑 داده!
-
-ناصرالدین‌شاه توی سفرش به فرانسه درسال 1873 روز 12 ژوئیه میلادی با چند نفر از خانواده روتشلید که خیلی ثروتمند بودن دیدار می‌کنه.
-روتشیلد شروع می‌کنه از یهودی‌های داخل ایران حمایت کردن.
-ناصرالدین‌شاه به تمسخر می‌گه:
-«خب که هزار کرور پول داری، پنجاه کرور بده و یه کشور بخر و هر چی یهودی توی دنیا هست جمع کن و یه کشور تشکیل بده.»
-اعضای روتشلید این حرفای ناصرالدین‌شاه رو جدی می‌گیره و چند سال بعد نخستین کنگره‌ی صهیونیستی ( اسم کنگره همین می‌باشد) تشکیل میشه که بعد ها منجر به تشکیل اسرائیل در سرزمین های فلسطین شد .
-منبع :
-The Diary of H.M. the Shah of Persia
-نویسنده: ناصرالدین‌شاه قاجار
-مترجم: جیمز ویلیام ردهاوس
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11466
-
-<div align="center"><video src="files/post_11466_tasiyanc_11466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11466_tasiyanc_11466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه خانم روسی🇷🇺 که شوهرش ایرانیه ، از خصوصیات مردای ایرانی میگه؛ از تفاوت فرهنگ و رفتار مردای ایرانی گرفته تا چیزایی که بعد از ازدواج با یه ایرانی تجربه کرده
 
 
 💋 @Tasiyanc

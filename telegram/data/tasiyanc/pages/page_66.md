@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 66
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9943
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠دلار رسید 227000
+
+عر عر بعضیا فقط واسه حجاب دختر مردمه؟
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9942
+
+<div align="center"><video src="files/post_9942_tasiyanc_9942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9942_tasiyanc_9942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠مهر تاییدی بر این موضوع که هر سگ و گربه‌ای رو نباید عقد و عروسیتون دعوت کنید:
+
++ طفلی عروس چه فشاری میخوره
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9940
 
@@ -266,26 +288,6 @@ til.ac/0L4vyJf
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🚨🚨🚨 آغاز موج جدید حملات موشکی به پایگاه های آمریکا
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9917
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️⭕️ 🚨جمهوری اسلامی به پایگاه های آمریکا در اردن حمله کرد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9916
-
-<div align="center"><video src="files/post_9916_tasiyanc_9916.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9916_tasiyanc_9916.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠ویدیو وایرال شده از پدری که برای دور کردن دخترش از خوراکی های ناسالم وانمود می‌کند در شکمش کرم هست
 
 💋 @Tasiyanc
 </div>

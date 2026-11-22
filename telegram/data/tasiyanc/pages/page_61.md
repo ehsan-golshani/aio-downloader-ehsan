@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 61
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 10056
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فووووری/ هشدار سپاه به تمامی نفتکش های حاضر در اسکله های بحرین و کویت ، هرچه سریع نفتکش هارو ترک کنید مورد اصابت خواهید گرفت
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10055
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨فاکس‌نیوز به نقل از مقامات آمریکایی:
+نفت‌کش‌های ایرانی را در نزدیکی خارک و جاسک هدف قرار دادیم.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10054
 
@@ -260,32 +279,5 @@ sg17
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Tasiyan | تاسیان pinned a photo
-</div>
-
-## tasiyanc — post 10036
-
-<div align="center"><video src="files/post_10036_tasiyanc_10036.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10036_tasiyanc_10036.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اگه ویلا یا سوئیت اجاره کردید؛ حتما این ۵ جا رو چک کنید. چون ممکنه دوربین مخفی گذاشته باشن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10035
-
-<div align="center"><img src="files/post_10035_tasiyanc_10035.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-۴ کانفیگ  پرسرعت نامحدود OpenVpn 📶
-
-مناسب گیم & دانلود Gemini  & ChatGpt اینستاگرام 📸 یوتوب 🎥
-
-
-دریافت کانفیگ ها 👉
-
-@Tasiyanc 💋
 </div>
 

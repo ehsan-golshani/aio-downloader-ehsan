@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 65
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9969
+
+<div align="center"><video src="files/post_9969_tasiyanc_9969.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9969_tasiyanc_9969.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💢حملات ساعت پیش سپاه پاسداران با پهپاد به نفتکش ها و کشتی های حمل کانتینر
+
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 9964
+
+<div align="center"><img src="files/post_9964_tasiyanc_9964.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+این گدازاده تو قرعه کشی ما برنده شده بود تو گروه داشت تهمت میزد که ندادیم کانفیگ و ، بعد ارسال کانفیگ میاد فاز برمیداره و به ادمین توهین می‌کنه بعد میاد تو گروه به ادمینا و مالک فوش ناموسی میده ، خواستم بگم مثل امثال سیدمهدی مادرجنده که اوب از ریخت ولش می‌باره زیاده و ما عادت کردیم ، خواستم فقط اشاره کنم به مادرجنده بودن یه سری آدمای حرومزاده قدرنشناس دور برمون
+
+آیدی عددی اکانت 7189150445
+</div>
 
 ## tasiyanc — post 9963
 
@@ -239,27 +264,5 @@ sg14
 5 لشکرِ اسرائیل درحال حاضر تو خاک لبنان هستن و باید بهشون حمله کنیم.
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠دلار رسید 227000
-
-عر عر بعضیا فقط واسه حجاب دختر مردمه؟
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9942
-
-<div align="center"><video src="files/post_9942_tasiyanc_9942.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9942_tasiyanc_9942.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠مهر تاییدی بر این موضوع که هر سگ و گربه‌ای رو نباید عقد و عروسیتون دعوت کنید:
-
-+ طفلی عروس چه فشاری میخوره
-💋 @Tasiyanc
 </div>
 

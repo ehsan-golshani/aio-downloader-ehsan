@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11151
+
+<div align="center"><video src="files/post_11151_tasiyanc_11151.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11151_tasiyanc_11151.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه همه چی برعکس شده، این پسر فکر می‌کرد رابطه‌شون با دختره جدیه. درباره پلن رابطه حرف زده بودن. اما، یه شب دختر باهاش سکس داشته یا همون «وان نایت» و بعد ترکش کرده.
+پسر الان درگیر افسردگی شده 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11150
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📱 اپلیکیشن MelBet 🥇
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🔒 برای تعیین رمز ورود حداقل از 8 کاراکتر و حروف بزرگ و کوچک انگلیسی و اعداد انگلیسی استفاده کنید، مانند Hamid120
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r13
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 11149
 
@@ -271,32 +297,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇 https://t.me/+R2nwb5FUo0RjYTVk https://t.me/+R2nwb5FUo0RjYTVk 🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
-</div>
-
-## tasiyanc — post 11131
-
-<div align="center"><img src="files/post_11131_tasiyanc_11131.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇
-
-https://t.me/+R2nwb5FUo0RjYTVk
-https://t.me/+R2nwb5FUo0RjYTVk
-
-🎯 میکس مخصوص امشب لیگ نخبگان 💵🅰11
-</div>
-
-## tasiyanc — post 11130
-
-<div align="center"><img src="files/post_11130_tasiyanc_11130.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨فوری توییت فرماندهی تفنگداران ویژه دریایی ارتش ایالات متحده
-«آماده اعزام»
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,40 @@
 # آرشیو کانال tasiyanc - صفحه 57
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 10175
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 با اعلام رئیس سازمان سنجش نتایج اولیه کنکور تا پایان شهریور ماه یا هفته اول مهر ماه منتشر میشه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10174
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 اگه مبلغی‌رو اشتباهی واریز کردید میتونید در ساعت اولیه با شماره های زیر (پشتیبانی) تماس بگیرید و بهشون بگید واریز اشتباه انجام دادید تا پولتون سریع برگرده حسابتون
+
+•بانک ملی ایران - 09622
+
+•بانک کشاورزی - 02187611
+
+•بانک دی - 02128930
+
+•بانک صادرات - 09602
+
+•بانک مسکن - 5941
+
+•بانک تجارت - 1554
+
+•بانک سپه - 1557
+
+•بانک ملت - 1556
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10173
 
@@ -279,23 +311,4 @@ Final result: A believable rediscovered real color photograph from Tehran around
 </div>
 
 ## tasiyanc — post 10153
-
-## tasiyanc — post 10150
-
-<div align="center"><img src="files/post_10150_tasiyanc_10150.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴توییت نتانیاهو:
-امشب ما بزرگترین پایگاه ایرانی در خارج از ایران - تونل‌های علی طاهر در لبنان - را نابود کردیم.
-
-ماموریت را به پایان رساندیم. سال نو مبارک!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10147
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فوروارد ۲ پست پرامپت بالارو به ۵۰۰ برسونید وایرال شه ❤️
-</div>
 

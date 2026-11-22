@@ -1,8 +1,24 @@
 # آرشیو کانال tasiyanc - صفحه 74
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9739
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دلار ۲۱۱ تومن شد 😞
+</div>
+
+## tasiyanc — post 9738
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🟠گزارش ها از شلوغ شدن پمپ بنزین های سراسر کشور
+
++با یه باک پر کجا رو داری بری هموطن؟
+
+🩸 @Tasiyanc
+</div>
 
 ## tasiyanc — post 9737
 
@@ -221,28 +237,5 @@ til.ac/0L4vyJf
 + درود به شرفتون با پوششی که شما دارید موقع بازی اگه بهترین تیم جهان داشت از اخر اول میشد باز شما ۴ شدید
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 9705
-
-<div align="center"><video src="files/post_9705_tasiyanc_9705.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9705_tasiyanc_9705.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-گاهی زخم از دشمن نیست ؛ از همان چیزیست که روزی مایه‌ی غرورمان بود
-+ آهو میپرید ، بی خبر از اینکه شاخ‌هایش ، پیش از هر شکارچی خودش را خواهد آزرد .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9704
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت وی‌پاری 🔥
-
-💳 آموزش شارژ با کارت بانکی
-💸آموزش شارژ با یو ووچر
-💰آموزش شارژ با ارز دیجیتال
 </div>
 

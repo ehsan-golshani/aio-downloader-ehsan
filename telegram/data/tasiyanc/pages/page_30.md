@@ -1,8 +1,41 @@
 # آرشیو کانال tasiyanc - صفحه 30
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 10822
+
+<div align="center"><img src="files/post_10822_tasiyanc_10822.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+‼️کانال بلایندرز کل سایت های شرطبندی رو ورشکست کرده😂
+
+💬 این کانال با کمک تحلیلگران اروپایی روزانه کلی فرم های VIP  دارک بت قرار میده و ایرانی ها دارن از طریق این کانال درآمدزایی میکنن بدون ریسک💵💵
+
+⬅️هر روز میتونی فوتبالا اروپا شرط بندی کنی و بین 10 الی 50 میلیون پول به جیب بزنی✅
+
+🅰20
+💎ادرس عضویت کانال vip:
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+🔗https://t.me/+fgkgTXJ8tCU5MGQ0
+</div>
+
+## tasiyanc — post 10821
+
+<div align="center"><img src="files/post_10821_tasiyanc_10821.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵قتل ناموسی این‌بار در قشم
+
+یه دختر ۲۸ ساله به اسم مریم یارمحمدی توی قشم زندگی می‌کرده که!!!
+شوهر چند مدتی بود بهش مشکوک میشه و به برادر زنش ماجرارو میگه که ، برادر زن میگه نه همچین چیزی ممکن نیست ، بعد مدتی به طرف ثابت میشه
+بعد اینکه مطمئن شدن باهم همدست میشن سینه ها و واژن زن رو تیکه تیکه میکنن با چاقو و میزارن تا بمیره
+هردو متهم دستگیر شدن ولی طبق گزارشات برادر مقتول تو کمتر از ۶ ساعت آزاد شده !!!!
+جسد بی‌جان مریم روز پنج‌شنبه هفته پیش به خاک سپرده شد
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10820
 
@@ -245,32 +278,5 @@ https://t.me/+A6R70wBCKApkYTRk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10800
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐 همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐 دقیقاً با توعم!🫥 📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇 🅰g19 https://t.me/+A6R70wBCKApkYTRk https://t.me/+A6R70wBCKApkYTRk 🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
-</div>
-
-## tasiyanc — post 10799
-
-<div align="center"><video src="files/post_10799_tasiyanc_10799.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10799_tasiyanc_10799.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⭕️ واسه توعم آشناست؟ 🧐
-
-همون کاری که سایتای شرط‌بندی هر شب باهات می‌کنن: 😐
-
-دقیقاً با توعم!🫥
-
-📊 کوچیک جم بزرگا باش؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین ⭐👇
-🅰g19
-https://t.me/+A6R70wBCKApkYTRk
-https://t.me/+A6R70wBCKApkYTRk
-
-🎯عشق کردم تیمم بزرگتر شه ، رایگان🔫
 </div>
 

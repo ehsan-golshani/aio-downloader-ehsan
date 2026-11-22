@@ -1,8 +1,45 @@
 # آرشیو کانال tasiyanc - صفحه 46
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 10472
+
+<div align="center"><img src="files/post_10472_tasiyanc_10472.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🎯 هیجان مسابقات ورزشی امروز  در بری‌بت 😀
+
+📆 فرانسه - رومانی
+⏰ ساعت ۱۶:۳۰ 🌎
+
+📲 آلمان - لهستان
+😀 ساعت ۱۹:۳۰ 🌎
+
+ 
+📺بونوس خوش آمدگویی ورزشی🎁
+🎁 بالاترین حد مبلغ شرط🎁
+🏆واریز جوایز در کمتر از 24 ساعت⭐️
+👩‍💻پشتیبانی از طریق چت زنده⌨️
+
+✈️ https://t.me/BerryBetOfficial
+R31
+🔗 ثبت نام و ورود به بخش پیشبینی💵
+https://oqleixugysh.shop/fa/affiliates/?btag=914641_l303106
+</div>
+
+## tasiyanc — post 10471
+
+<div align="center"><img src="files/post_10471_tasiyanc_10471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 امروز September 22، روز جهانی شبِ دخترونه‌اس (Girls night)
+
+این روز مخصوص اینه دخترا با دوستای صمیمیشون کنار هم جمع میشن ، آشپزی میکنن ، پارتی میکنن ، میگن میخندن کلی خوش میگذرونن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10470
 
@@ -265,43 +302,5 @@ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن 29🅰 🛒 ورود به سایت 👇 ✅ https://whejkfjiwe.shop/fa/affiliates/?b…
-</div>
-
-## tasiyanc — post 10449
-
-<div align="center"><img src="files/post_10449_tasiyanc_10449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
-
-💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
-
-✅ شرط رایگان دریافت کن
-
-💯 کد طرح تشویقی: 888
-
-💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
-
-🕔 همین حالا ثبت‌نام کن
-29🅰
-🛒 ورود به سایت 👇
-✅ https://whejkfjiwe.shop/fa/affiliates/?btag=914641_l303106
-
-⚡️ کانال رسمی ما در تلگرام 👇
-✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10448
-
-<div align="center"><img src="files/post_10448_tasiyanc_10448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔴کشور اسکاتلند تمام محصولات مربوط به پریودی خانم هارو رایگان کرد.
-این کشور اولین کشور درجهانه که اینکارو میکنه.
-یعنی چیزی به اسم فروش نوار بهداشتی یا تامپون در این کشور وجود نداره و همه چیز رایگانه
-
-
-
-💋 @Tasiyanc
 </div>
 

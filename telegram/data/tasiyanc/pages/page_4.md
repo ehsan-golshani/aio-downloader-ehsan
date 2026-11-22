@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11427
+
+<div align="center"><img src="files/post_11427_tasiyanc_11427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کیمیا حسینی، مدل ۲۴ ساله ایرانی، عنوان «زیباترین دختر ایران در سال ۲۰۲۶» رو به خودش اختصاص داد!
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11426
+
+<div align="center"><video src="files/post_11426_tasiyanc_11426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11426_tasiyanc_11426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا حالا از این زاویه نعمت خدارو دیده بودید ؟ 😂
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11425
 
@@ -249,38 +273,5 @@ https://t.me/+yVBxmxCAtms5ZjBk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11404
-
-<div align="center"><img src="files/post_11404_tasiyanc_11404.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r25
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 

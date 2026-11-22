@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 77
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9652
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+همگی عمو خسرو رو حمایت کنید عشقا ✅
+https://t.me/+J_q7c-COftQzOGM0
+</div>
+
+## tasiyanc — post 9651
+
+<div align="center"><video src="files/post_9651_tasiyanc_9651.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_9651_tasiyanc_9651.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🥃 خسرو خان هستم و با همکاری مافیای روس، از شرط‌بندی و پیش‌بینی درآمد دارم
+
+
+⭕️با من همراه باش تا بتونی روزانه بالای ۵۰ دلار درآمد ثابت داشته باشی 
+🔥
+
+
+💵با عمو خسرو، آروم آروم به آرزوهات برس
+
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+J_q7c-COftQzOGM0
+https://t.me/+J_q7c-COftQzOGM0
+</div>
 
 ## tasiyanc — post 9649
 
@@ -372,33 +401,5 @@ JOIN JOIN JOIN
 💠 لینک عضویت کانال راهنما ربات:
 https://t.me/+86B34ioXJtUwODg6
 https://t.me/+86B34ioXJtUwODg6
-</div>
-
-## tasiyanc — post 9625
-
-<div align="center"><img src="files/post_9625_tasiyanc_9625.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-پست جدید علی کریمی که مستقیما شاهزاده پهلوی و پادشاهی‌خواهان رو خطاب قرار داده و توهین کرده بهشون.
-
-بعد از این پست، 1 میلیون از فالور های علی کریمی آنفالوش کردن.
-
-🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9624
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ حجم نامحدود نپسترنت🔐
-
-سرور سرعتی مولتی لوکیشن⚡️
-
-آموزش اتصال 
-⛓
-
-مناسب دانلود ⬇️ ترید 🤑 اینستاگرام 📸 جمینای 🤖
-
-
-🩸 @TASIYANC ✅
 </div>
 

@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 11363
+
+<div align="center"><video src="files/post_11363_tasiyanc_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11363_tasiyanc_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه دختر خانم آنلاین‌شاپ لباس زنونه راه انداخته، ولی با یه مشکل عجیب روبه‌رو شده!
+
+میگه هرچی سیبیل ریختن فالوم کردن، هنوز حتی یه دختر هم فالوم نکرده! 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11362
+
+<div align="center"><img src="files/post_11362_tasiyanc_11362.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پایان تلخ ماجرای ناپدید شدن پسر ۲۲ ساله در اسلامشهر!
+
+محمدمهدی ارجمندی از ۱۸ آبان ناپدید شده بود. آخرین تماسش با خانواده‌اش این بود که «دارم میام خونه»؛ اما بعد از اون تلفنش خاموش شد و دیگه خبری ازش نشد.
+حالا بعد از چند روز، جسد این جوان در باغ‌های اطراف اسلامشهر پیدا شده. طبق گزارش رکنا، تصاویر دوربین‌ها نشون می‌ده در آخرین مسیر بازگشتش، ظاهراً فردی داخل ماشین با اسلحه به سمتش نشونه رفته!
+گفته می‌شه دوستانش در این ماجرا دست داشتن و خودروی اون رو هم به سرقت بردن. پلیس هم از دستگیری قاتل خبر داده است.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11361
 
@@ -296,36 +323,5 @@
 
 از بهترین ورزشهای جهان 👍🏻
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-در صورت ارور دو سه بار بزنید
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 11339
-
-<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
-
-دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
-دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
-💋 @Tasiyanc
 </div>
 

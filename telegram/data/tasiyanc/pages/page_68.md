@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 68
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9896
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وقتشه دلار به جیب بزنی ✅
+همین حالا وارد کانال  Evil Bet شو👇
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
+
+## tasiyanc — post 9895
+
+<div align="center"><img src="files/post_9895_tasiyanc_9895.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🐉توام میخوای به راحتی از فوتبال و باقی ورزش ها دلاری کسب درآمد کنی؟!
+
+⭕️پس همین الان وارد کانال Evil Bet شو
+چون بهت اموزش میده چطور دلاری پول دربیاری 🔥
+
+💵اینجا میتونی روزانه درامد داشته باشی و سرمایت چندبرابر کنی
+
+🔗 آدرس عضویت کانال vip:
+https://t.me/+TmGWkUYH_8c0OWZk
+https://t.me/+TmGWkUYH_8c0OWZk
+</div>
 
 ## tasiyanc — post 9893
 
@@ -270,29 +295,5 @@ til.ac/0L4vyJf
 📲 کانال تلگرامی #وی_پاری :
 
 ✅ @Wepari2
-</div>
-
-## tasiyanc — post 9870
-
-<div align="center"><video src="files/post_9870_tasiyanc_9870.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9870_tasiyanc_9870.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ببینید از خانومی که داره از تجربیات رفتن خودش به تور کویر میگه رفتی اونجا خواه نا خواه باید لنگارو بدی هوا. تور کویر یه بهونس واسه ادمایی که دنبال کارای +۱۸ هستن .
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 9869
-
-<div align="center"><video src="files/post_9869_tasiyanc_9869.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_9869_tasiyanc_9869.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🟠فیلم وایرال شده از وضعیت این روزای سواحل مازندران زیبا.
-
-💋 @Tasiyanc
 </div>
 

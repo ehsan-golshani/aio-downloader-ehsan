@@ -1,8 +1,46 @@
 # آرشیو کانال tasiyanc - صفحه 80
 
-📅 آخرین بروزرسانی: 1405/09/01 01:23
+📅 آخرین بروزرسانی: 1405/09/01 05:22
 
 ---
+
+## tasiyanc — post 9567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اختصاصی وایرگارد  😎
+
+مناسب دانلود⬇️ &  گیم 🎮  & اینستاگرام 📸
+
+حجم و کاربر نامحدود 🟢
+
+
+دانلود 📱Android🕹  iOS
+
+
+آموزش اتصال با WgTunnel ⛓
+
+آموزش اتصال با windscribe⛓
+
+
+
+اتصال امن برای همه 🇮🇷
+🩸 T.me/Tasiyanc
+</div>
+
+## tasiyanc — post 9566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+کانفیگ‌ سرعتی نپسترنت متد جدید 🔐
+
+سرورهای نامحدود مولتی لوکیشن ⭕️
+
+⭕️ حتما از تنظیمات سیم‌کارت IPv6 فعال کنید ( پینگ گرفتن نمی‌خواد)
+
+🚨 آموزش فعال سازی IPv6 
+⛓
+
+💋 @TASIYANC
+</div>
 
 ## tasiyanc — post 9565
 
@@ -297,32 +335,5 @@ til.ac/0L4vyJf
 وقتی بعد مرگ از ایرانی‌ جماعت میپرسن زندگی تو دنیا چطوری بود؟:
 
 🩸 @Tasiyanc
-</div>
-
-## tasiyanc — post 9546
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🇮🇳 @Tasiyanc.ovpn
-</div>
-
-## tasiyanc — post 9545
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ اختصاصی پرسرعت OpenVpn 📶
-
-
-تست شده تمام نت‌ها 🛜🛜🛜🛜🛜
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ، وبگردی ، Ai ، گیم
-
-⭕️ در صورت ارور چند بار بزنید
-
-🩸 T.me/Tasiyanc
 </div>
 
