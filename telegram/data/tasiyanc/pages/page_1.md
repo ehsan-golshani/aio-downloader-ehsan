@@ -1,8 +1,57 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/01 20:45
+📅 آخرین بروزرسانی: 1405/09/02 02:20
 
 ---
+
+## tasiyanc — post 11504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰1 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
+</div>
+
+## tasiyanc — post 11503
+
+<div align="center"><img src="files/post_11503_tasiyanc_11503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+🅰1
+https://t.me/+gagcxCKK4QQzNGI8
+https://t.me/+gagcxCKK4QQzNGI8
+
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ ک*ص ننت
+</div>
+
+## tasiyanc — post 11501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطعی بشه مام میشیم عزیز دل خیلیا مثل جنگ ۴۰ روزه!
+</div>
+
+## tasiyanc — post 11500
+
+<div align="center"><video src="files/post_11500_tasiyanc_11500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11500_tasiyanc_11500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از حرکات دیدنی و خارج از تصور منصور بهرامی،تنیسور ایرانی🇮🇷 که با سبک بازی متفاوتش تماشاگرها رو غافلگیر می‌کنه؛ حرکاتی که بیشتر از یه مسابقه تنیس، شبیه اجرای زنده و نمایش هنریه!
+
+فقط یه ایرانی می‌تونه اینقدر کسخل و باحال باشه😂😂
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11499
 
@@ -210,65 +259,6 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
 
 طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11483
-
-<div align="center"><video src="files/post_11483_tasiyanc_11483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11483_tasiyanc_11483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مدیرعامل دیوار: بابت انتشار آگهی‌های کفش و ماساژ به یک سال حبس محکوم شدم!
-
-آرمندهی می‌گوید بسیاری از این آگهی‌ها مربوط به خدمات جنسی بوده، اما امکان تشخیص نیت واقعی آگهی‌دهندگان را نداشته و با این حال، به اتهام فراهم‌کردن مکان فساد به یک سال حبس محکوم شده است.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11482
-
-<div align="center"><img src="files/post_11482_tasiyanc_11482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بعد از موج قتل دختران به دست پدرانشان، مجلس به فکر تغییر قانون افتاد!
-
-نمایندگان مجلس طرح دوفوریتی‌ای را مطرح کرده‌اند که بر اساس آن، حداقل مجازات قتل فرزند توسط پدر از ۳ تا ۱۰ سال حبس به ۲۵ سال زندان افزایش پیدا می‌کند و محکومان مشمول هیچ‌گونه بخششی نخواهند شد.
-حالا باید دید این طرح به تصویب می‌رسد یا نه...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30 https://t.me/+yuNWNQ9zSYFhMWJk https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11480
-
-<div align="center"><img src="files/post_11480_tasiyanc_11480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
-https://t.me/+yuNWNQ9zSYFhMWJk
-https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11479
-
-<div align="center"><video src="files/post_11479_tasiyanc_11479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11479_tasiyanc_11479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 چهره‌ای از دل تاریخ؛ ویدیویی شگفت‌انگیز از احیای چهره «بانو رای»، پرستار سلطنتی فرعون در مصر باستان!
-
-بانو رای حدود ۳۵۰۰ سال پیش زندگی می‌کرد و وظیفه نگهداری و مراقبت از کودکان خاندان سلطنتی مصر رو برعهده داشت.
-مومیایی او در مقبره DB320 در دیرالبحری کشف شد؛ نکته جالب اینکه موهای این زن پس از گذشت هزاران سال همچنان در وضعیت نسبتاً خوبی باقی مونده!
-بازسازی چهره او به کمک بقایای مومیایی، تصویری شگفت‌انگیز از زنی ارائه می‌ده که بیش از سه هزار سال پیش زندگی می‌کرده.
 💋 @Tasiyanc
 </div>
 
