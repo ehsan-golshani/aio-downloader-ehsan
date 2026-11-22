@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/01 05:22
+📅 آخرین بروزرسانی: 1405/09/01 12:37
 
 ---
+
+## tasiyanc — post 11493
+
+<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
+
+این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11492
+
+<div align="center"><a href="files/post_11492_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11491
+
+<div align="center"><img src="files/post_11491_tasiyanc_11491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r1
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11490
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ویدیو وایرال شده از تعقیب‌وگریز عجیب و وحشتناک چند نفر از جوان‌های اسالم در شمال، که به‌خاطر ریختن زباله توی خیابون دنبال یه پژو ۲۰۶ افتادن که طرف با زن بچه‌اس و رعب وحشت شدیدی راه انداختن!
+
+ماجرا جوری پیش رفته که اگه راننده
+۲۰۶ ماشین رو نگه می‌داشت، احتمالاً با اتفاق بسیار بدی روبه‌رو می‌شد در نهایتشم نزدیک بود ماشینو چپ کنه !
++مطمئناً کسی که زباله تو خیابون می‌ریزه کار اشتباهی کرده، اما این دلیل نمی‌شه یه عده اراذل و اوباش این‌طوری دنبال یه خانواده راه بیفتن و جونشون رو به خطر بندازن!
+امیدوارم این ماجرا پیگیری شده باشه و با این افراد برخورد بشه؛ وگرنه کلاً شمال رفتن رو کنسل کنید!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11489
+
+<div align="center"><video src="files/post_11489_tasiyanc_11489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11489_tasiyanc_11489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵صحبت‌های جالب و وایرال‌شده‌ی یه دخترخانم گل‌فروش درباره مشتری‌های پسرش تو روز دختر که حسابی برا خرید گل هزینه کردن و برا پارتنرشون جمله عاشقانه گفتن، و مقایسه‌ش با روز پسر که ظاهراً حتی یه شاخه گل هم نصیب پسرا نشده و دخترا گفتن پسرا لیاقت ندارن!
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11488
 
@@ -200,64 +275,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 🔵 اگه قصد داری GTA 6 رو بازی کنی، مراقب باش؛ با باز کردن این ویدیو و کپشن ممکنه بخش مهمی از داستان و پایان بازی برات لو بره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11471
-
-<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11470
-
-<div align="center"><img src="files/post_11470_tasiyanc_11470.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون حرکت هم‌زمان ۳ نفتکش ایران به سمت محاصره دریایی آمریکا !!
-صداسیما : درصورت حمله به کشتی های نفتی ایران تمامی تاسیسات کشورهای عربی رو ایران مورد اصابت قرار خواهد داد
-❌میدل ایست خبر خودشو اصلاح کرد و گفت این نفتکش ها همگی ایستادن و درحال حرکت نیستن!
-گزارشات راجب حرکت دو نفتکش ایرانی صحيح نیست، دو شناور مذکور با نام آیناز و شناور با کد ١٢۴۲۵ به ترتیب یدک‌کش و قایق تفریحی هستن.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11469
-
-<div align="center"><img src="files/post_11469_tasiyanc_11469.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات های جدید بانو سیدنی سویینی با برند لباس زیرش 🔥
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11468
-
-<div align="center"><video src="files/post_11468_tasiyanc_11468.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11468_tasiyanc_11468.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از خیابون فرشته تهران که ماشین‌های کاستوم‌شده به سبک «GTA» رو کنار هم جمع کردن و یه دورهمی با حال‌وهوای گیم و ماشین راه انداختن؛ انگار لس‌سانتوس اومده وسط تهران.
 
 
 💋 @Tasiyanc

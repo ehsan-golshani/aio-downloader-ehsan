@@ -1,8 +1,75 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/01 05:22
+📅 آخرین بروزرسانی: 1405/09/01 12:37
 
 ---
+
+## tasiyanc — post 11388
+
+<div align="center"><video src="files/post_11388_tasiyanc_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11388_tasiyanc_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این بلاگر که هر روز از روزمرگی‌های زندگیش استوری می‌ذاشت، حالا بعد از خیانت شوهرش با چشمای گریان اومده و خطاب به دخترا میگه:
+«توروخدا وارد زندگی مرد متأهل نشید...»
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11386
+
+<div align="center"><img src="files/post_11386_tasiyanc_11386.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r24
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11385
+
+<div align="center"><img src="files/post_11385_tasiyanc_11385.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 10 سایت پربازدید جهان در سال 2026
+
+
+گوگل با ماهانه 109.9 میلیارد بازدید رتبه اول رو داره و پورن‌هاب هم با 3.4 میلیارد بازدید ماهانه در رتبه دهم قرار گرفته!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11383
 
@@ -210,96 +277,5 @@ https://t.me/+OwxQ7mRMaxpjOTQ8
 💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
 
 🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11368
-
-<div align="center"><img src="files/post_11368_tasiyanc_11368.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r23
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11367
-
-<div align="center"><video src="files/post_11367_tasiyanc_11367.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11367_tasiyanc_11367.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵وقتی امپراتوری روم مقابل قدرت ایران زانو زد 👑
-
-روایتی حماسی از نبرد شاپور دوم ساسانی و ژولیان امپراتور روم؛ جایی که شکوه و اقتدار ایران، تاریخ رو به لرزه درآورد!
-این ویدیو اون‌قدر باشکوه و تأثیرگذاره که بعیده فقط یک‌بار تماشاش کنید. من چندین بار دیدمش و هر بار حس غرور عجیبی وجودم رو فرا گرفت...
-ایران فقط یک سرزمین نیست؛ پشت این نام، هزاران سال تاریخ و شکوه خوابیده...
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11365
-
-<div align="center"><video src="files/post_11365_tasiyanc_11365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11365_tasiyanc_11365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
-
-🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
-
-⚡️ واریز آنی با کریپتو
-⚡️ تسویه‌حساب سریع و مطمئن
-⚡️ دسترسی آسان و بدون دردسر
-⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
-
-🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰22
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11364
-
-<div align="center"><video src="files/post_11364_tasiyanc_11364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11364_tasiyanc_11364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کارشناس مامایی بوی طبیعی واژن قرار نیست شبیه شکلات و نوتلا باشه!
-
-به گفته یک کارشناس مامایی، بوی طبیعی واژن معمولاً ملایم و کمی ترش‌ماننده
-اما بوی تند و شبیه ماهی، مخصوصاً اگر با علائم دیگه همراه باشه، می‌تونه نشونه عفونت باشه و نیاز به بررسی پزشکی داشته باشه.
-استفاده از عطرها و اسپری‌های مخصوص ناحیه تناسلی هم ممکنه باعث تحریک و برهم خوردن تعادل طبیعی این ناحیه بشه.
-قرار نیست بدن‌تون همیشه بوی عطر بده؛ سلامت مهم‌تر از خوشبو بودنه!
-
-💋@Tasiyanc
 </div>
 
