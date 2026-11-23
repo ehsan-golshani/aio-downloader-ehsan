@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/02 02:20
+📅 آخرین بروزرسانی: 1405/09/02 16:43
 
 ---
+
+## tasiyanc — post 11429
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ اپلیکیشن اندروید Wepari 🥇
+
+🎁 کد هدیه 100 دلاری: Top100
+
+با ثبت یک میلیون شرط روی :
+برد ایران 🇮🇷
++ نباختن پرتغال 🇵🇹
+برنده 2.000.000 میلیون شوید ✔
+
+✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
+</div>
+
+## tasiyanc — post 11428
+
+<div align="center"><img src="files/post_11428_tasiyanc_11428.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دیدارهای فوق حسااااس عراق🇾🇪 و ایران 🇮🇷 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
+
+🔥شنبه بونوس 100%
+🔥 دوشنبه بونوس 50%
+
+🤖دانلود اپلیکیشن بدون فیلتر 🚀
+
+🎁 کد هدیه 100 دلاری: Top100
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸 🅰26
+</div>
+
+## tasiyanc — post 11427
+
+<div align="center"><img src="files/post_11427_tasiyanc_11427.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کیمیا حسینی، مدل ۲۴ ساله ایرانی، عنوان «زیباترین دختر ایران در سال ۲۰۲۶» رو به خودش اختصاص داد!
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11426
+
+<div align="center"><video src="files/post_11426_tasiyanc_11426.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11426_tasiyanc_11426.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تا حالا از این زاویه نعمت خدارو دیده بودید ؟ 😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11425
+
+<div align="center"><img src="files/post_11425_tasiyanc_11425.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 جلد جدید مجله اکونومیست برای سال 2027 منتشر شد
+
+اکونومیست از دنیای سال ۲۰۲۷ چه تصویری دارد؟
+
+🔸 پایان دوران ترامپ و حواشی زیاد آن و احتمال تشدید تنش‌های سیاسی آمریکا
+🔸 پیامدهای منطقه‌ای و جهانی جنگ ایران و خاورمیانه
+🔸 افزایش نگرانی‌ها درباره هوش مصنوعی و احتمال حباب سرمایه‌گذاری در این صنعت
+🔸 احتمال بحران در بازارهای مالی و کاهش آن و افزایش فشار بدهی دولت‌ها
+🔸 تشدید تنش میان چین و تایوان
+🔸 قدرت‌گیری جریان‌های راست‌گرا و پوپولیستی در اروپا
+🔸 تابستان داغ و ادامه رکوردشکنی دمای زمین و بحران‌های اقلیمی
+🔸 رقابت فضایی و گسترش فناوری‌های جدید
+🔸 تغییرات اقتصادی ناشی از داروهای کاهش وزن
+🔸 آینده هالیوود و پایان جذابیت برخی مجموعه‌های سینمایی قدیمی
+
+📌 نکته قابل‌توجه برای ایران، تأکید ویژه اکونومیست بر پیامدهای جنگ ایران است؛ موضوعی که به اعتقاد این نشریه می‌تواند فراتر از خاورمیانه، بازار انرژی و امنیت غذایی جهان را نیز تحت تأثیر قرار دهد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11424
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دبل وین با دوتا «گل‌گل» ✅💚 ⚽️ اسپانیا – انگلیس | هر دو تیم گل می‌زنند ✅ ⚽️ بلژیک – ایتالیا | هر دو تیم گل می‌زنند ✅ 💵 مبلغ هر شرط: ۴۰ میلیون تومان 📈 ضریب هر دو: ۱.۵۶ 💰 دریافتی مجموع: ۱۲۴.۸ میلیون تومان 🔥 سود خالص دو شرط: ۴۴.۸ میلیون تومان g26🅰 مبارک رفقایی…
+</div>
 
 ## tasiyanc — post 11423
 
@@ -186,95 +279,6 @@ https://t.me/+yVBxmxCAtms5ZjBk
 عکس خودتون رو آپلود کنید این پرامپت رو به ChatGPT 😺 بدید 👇
 از هرچی ازم میدونی داستان زندگیمو به یه سریال کامل نتفلیکس تبدیل کن با پوستر و خلاصه داستانمو ارسال کن
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11407
-
-<div align="center"><video src="files/post_11407_tasiyanc_11407.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11407_tasiyanc_11407.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حادثه تلخ در ژاپن؛ مرگ دختر ۱۴ ساله هنگام لایو تیک‌تاک!
-
-یک دختر نوجوان ژاپنی که در حال برگزاری لایو در تیک‌تاک بوده، در اتفاقی تلخ از بالکن طبقه چهلم سقوط کرده و جانش رو از دست داده.
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11406
-
-<div align="center"><video src="files/post_11406_tasiyanc_11406.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11406_tasiyanc_11406.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پسره وسط خواستگاری، خیلی جدی به دوست‌دخترش پیام داده:
-«یه دونه بگوزم جو متشنج بشه؟»
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11405
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11404
-
-<div align="center"><img src="files/post_11404_tasiyanc_11404.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r25
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11403
-
-<div align="center"><video src="files/post_11403_tasiyanc_11403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11403_tasiyanc_11403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵افتتاحیه‌ای که به ورشکستگی ختم شد؛ فلافلی آبادان زیر هجوم وحمله مردم به سلف سرویس دوام نیاورد!
-
-یه فلافلی تو آبادان به مناسبت افتتاح شعبه جدیدش، سلف‌سرویس رایگان راه انداخته بود؛ اما هجوم مردم به سلف سرویس و ساندویچ‌هایی که انگار با بیل پر شده بودن، کار رو به جایی رسوند که صاحب مغازه مجبور شد کل شعبه رو تعطیل کنه و اعلام ورشکستگی کنه!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11402
-
-<div align="center"><video src="files/post_11402_tasiyanc_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11402_tasiyanc_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی از یه زوج ایرانی وایرال شده که سال ۲۰۲۳ ازدواج کردن، سال ۲۰۲۴ صاحب اولین دخترشون شدن، سال ۲۰۲۶ هم دختر دومشون به دنیا اومده و حالا سومی‌ام تو راهه!
 
 💋 @Tasiyanc
 </div>

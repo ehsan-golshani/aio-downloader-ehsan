@@ -1,8 +1,101 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/02 02:20
+📅 آخرین بروزرسانی: 1405/09/02 16:43
 
 ---
+
+## tasiyanc — post 11510
+
+<div align="center"><video src="files/post_11510_tasiyanc_11510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11510_tasiyanc_11510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو وایرال‌شده از یک مرد پاکستانی که تصمیم گرفته در یک شب با ۴ نفر ازدواج کنه؛ اما نکته عجیب ماجرا اینجاست که هر ۴ همسرش مرد هستن و شومبول دارن!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوهای وایرال‌شده از غزه، رقص و شادی در یک جشن عروسی شبانه را نشان می‌دهد؛ مراسمی همراه با موسیقی زنده و نورپردازی که در میان ویرانی‌های جنگ برگزار شده است.
+
+طبق اطلاعات منتشرشده، عروسی محمد ابوعسوس از خانواده‌های ابوعسوس و الدیری، روزهای ۲۹ و ۳۰ آبان در محله صبره غزه برگزار شده است.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11508
+
+<div align="center"><img src="files/post_11508_tasiyanc_11508.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✈️ تلگرام قابلیت جالب تبدیل ویس به متن را قبل از ارسال اضافه کرد!
+
+از این به بعد می‌تونید بدون ارسال پیام صوتی، صدای ضبط‌شده رو مستقیماً روی گوشی به متن تبدیل کنید و فقط متنش رو برای طرف مقابل بفرستید.
+
+نحوه فعال‌سازی و استفاده:
+۱. گزینه On-device transcription رو فعال کنید.
+۲. مدل آفلاین زبان موردنظرتون رو دانلود کنید.
+۳. وارد چت بشید و دکمه ضبط ویس رو به بالا بکشید تا قفل بشه.
+۴. متن ویس به‌صورت زنده روی گوشی نمایش داده می‌شه.
+۵. بعد از بررسی، گزینه Send رو بزنید تا فقط متن ارسال بشه.
+حواستون باشه: دکمه آبی ارسال، ویس رو می‌فرسته، نه متن رو!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11507
+
+<div align="center"><a href="files/post_11507_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11506
+
+<div align="center"><img src="files/post_11506_tasiyanc_11506.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r2
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11505
+
+<div align="center"><video src="files/post_11505_tasiyanc_11505.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11505_tasiyanc_11505.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وقتی واقعیت، از هر فیلمنامه‌ای اشک‌آورتر می‌شود…
+
+در جریان جنگ کره، سربازِ ترک 🇹🇷 به نام سلیمان دیلبیرلیگی دختربچه ۵ ساله‌ای را پیدا می‌کند که همه‌چیزش را از دست داده است. او نام دختر را «آیلا» می‌گذارد و ۱۵ ماه از او مثل فرزند خودش مراقبت می‌کند
+اما بازگشت به ترکیه و سپردن آیلا به پرورشگاه، جدایی ۶۰ ساله‌ای را رقم می‌زند؛
+در نهایت آیلا و سلیمان در سال ۲۰۱۰ پس از ۶۰ سال با کمک خبرنگار های حرفه ای به همدیگه رسیدند و « آیلا » تا لحظه مرگ سلیمان پیشش موند
+این اتفاق واقعی، الهام‌بخش فیلم سینمایی «آیلا: دختر جنگ» شد؛ فیلمی درباره عشق، فقدان و خانواده‌ای که با مهربانی شکل می‌گیرد.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11504
 
@@ -189,76 +282,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r1
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11490
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از تعقیب‌وگریز عجیب و وحشتناک چند نفر از جوان‌های اسالم در شمال، که به‌خاطر ریختن زباله توی خیابون دنبال یه پژو ۲۰۶ افتادن که طرف با زن بچه‌اس و رعب وحشت شدیدی راه انداختن!
-
-ماجرا جوری پیش رفته که اگه راننده
-۲۰۶ ماشین رو نگه می‌داشت، احتمالاً با اتفاق بسیار بدی روبه‌رو می‌شد در نهایتشم نزدیک بود ماشینو چپ کنه !
-+مطمئناً کسی که زباله تو خیابون می‌ریزه کار اشتباهی کرده، اما این دلیل نمی‌شه یه عده اراذل و اوباش این‌طوری دنبال یه خانواده راه بیفتن و جونشون رو به خطر بندازن!
-امیدوارم این ماجرا پیگیری شده باشه و با این افراد برخورد بشه؛ وگرنه کلاً شمال رفتن رو کنسل کنید!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11489
-
-<div align="center"><video src="files/post_11489_tasiyanc_11489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11489_tasiyanc_11489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵صحبت‌های جالب و وایرال‌شده‌ی یه دخترخانم گل‌فروش درباره مشتری‌های پسرش تو روز دختر که حسابی برا خرید گل هزینه کردن و برا پارتنرشون جمله عاشقانه گفتن، و مقایسه‌ش با روز پسر که ظاهراً حتی یه شاخه گل هم نصیب پسرا نشده و دخترا گفتن پسرا لیاقت ندارن!
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11488
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
-</div>
-
-## tasiyanc — post 11487
-
-<div align="center"><img src="files/post_11487_tasiyanc_11487.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
-</div>
-
-## tasiyanc — post 11486
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨وسط بزن‌بزن ایران و بحرین، یه خبر مهم هم به اطلاعتون برسونم!
-
-اگه از امشب تا ۷ روز آینده برای بچه‌دار شدن اقدام کنید، احتمالاً بچه‌تون سال آینده دقیقاً ۰۶/۰۶/۰۶ به دنیا میاد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11484
-
-<div align="center"><video src="files/post_11484_tasiyanc_11484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11484_tasiyanc_11484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
-
-طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
-💋 @Tasiyanc
 </div>
 
