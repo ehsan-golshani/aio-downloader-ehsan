@@ -1,8 +1,105 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/03 04:40
+📅 آخرین بروزرسانی: 1405/09/03 14:13
 
 ---
+
+## tasiyanc — post 11525
+
+<div align="center"><img src="files/post_11525_tasiyanc_11525.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر تتر رسیده به 285000 تومان 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11524
+
+<div align="center"><video src="files/post_11524_tasiyanc_11524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11524_tasiyanc_11524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی وایرال‌شده از «ایونت مد و هنر » در نیاوران تهران
+
+جایی که ترکیب مد، هنر و استایل‌های متفاوت حسابی مورد توجه قرار گرفته.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب بصورت رایگان‼️                باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1323دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3 @ARON_TIP…
+</div>
+
+## tasiyanc — post 11522
+
+<div align="center"><img src="files/post_11522_tasiyanc_11522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب بصورت رایگان‼️
+        
+     
+باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎
+
+💵خودم 500دلار زدم که میشه 1323دلار🔥
+                                 ⬇️👇⬇️
+            🚫فرم VIP رایگان شرطبندی↙️
+
+◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3
+
+@ARON_TIP @ARON_TIP  @ARON_TIP
+            💎💯   100درصد وینه💯💎
+</div>
+
+## tasiyanc — post 11521
+
+<div align="center"><a href="files/post_11521_MOSCOW 🇷🇺⚡.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MOSCOW 🇷🇺⚡.npvs</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه ۹ سرور اختصاصی روسیه 🇷🇺 پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر ۹ کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال ⚡
+
+برنامه اندروید🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11520
+
+<div align="center"><img src="files/post_11520_tasiyanc_11520.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چه خبره ؟! یه جنایت هولناک دیگه از طرف پدر و مادر ؛ این‌بار در سنندج...
+
+«هلیا فتاحی» دختر ۱۶ ساله اهل سنندج، ۳۰ آبان به دست پدر و مادرش و به دلایل ناموسی به قتل رسیده.
+پدر و مادر « هلیا » با قرص خواب‌آور اورا بیهوش کرده و با قرار دادن بالش روی صورت خفه‌اش میکنن و بچه کشته میشه ، و بعدش میرن خودشونو تحویل میدن و با افتخار میگن کشتیم
++برخی از دوستای هلیا میگن که از دوس‌پسرش حامله بوده، که ما نمی‌تونیم این موضوع رو تایید یا تکذیب کنیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11519
+
+<div align="center"><video src="files/post_11519_tasiyanc_11519.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11519_tasiyanc_11519.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از جا انداختن مهره‌های یه شیر!
+
+الکس، شیر بازیگوشی که چند جای گردن و کمرش مهره‌ها از جا دررفته بود، توسط یه دکتر متخصص ارتوپدی حیوانات معالجه میشه و مهره‌هاش رو جا میندازه
+الکس هم بعد از درمان، از درد خلاص میشه و انگار حسابی حالش جا میاد.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11518
 
@@ -178,83 +275,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r2
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11505
-
-<div align="center"><video src="files/post_11505_tasiyanc_11505.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11505_tasiyanc_11505.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵وقتی واقعیت، از هر فیلمنامه‌ای اشک‌آورتر می‌شود…
-
-در جریان جنگ کره، سربازِ ترک 🇹🇷 به نام سلیمان دیلبیرلیگی دختربچه ۵ ساله‌ای را پیدا می‌کند که همه‌چیزش را از دست داده است. او نام دختر را «آیلا» می‌گذارد و ۱۵ ماه از او مثل فرزند خودش مراقبت می‌کند
-اما بازگشت به ترکیه و سپردن آیلا به پرورشگاه، جدایی ۶۰ ساله‌ای را رقم می‌زند؛
-در نهایت آیلا و سلیمان در سال ۲۰۱۰ پس از ۶۰ سال با کمک خبرنگار های حرفه ای به همدیگه رسیدند و « آیلا » تا لحظه مرگ سلیمان پیشش موند
-این اتفاق واقعی، الهام‌بخش فیلم سینمایی «آیلا: دختر جنگ» شد؛ فیلمی درباره عشق، فقدان و خانواده‌ای که با مهربانی شکل می‌گیرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰1 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11503
-
-<div align="center"><img src="files/post_11503_tasiyanc_11503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-🅰1
-https://t.me/+gagcxCKK4QQzNGI8
-https://t.me/+gagcxCKK4QQzNGI8
-
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
-</div>
-
-## tasiyanc — post 11502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ ک*ص ننت
-</div>
-
-## tasiyanc — post 11501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قطعی بشه مام میشیم عزیز دل خیلیا مثل جنگ ۴۰ روزه!
-</div>
-
-## tasiyanc — post 11500
-
-<div align="center"><video src="files/post_11500_tasiyanc_11500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11500_tasiyanc_11500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از حرکات دیدنی و خارج از تصور منصور بهرامی،تنیسور ایرانی🇮🇷 که با سبک بازی متفاوتش تماشاگرها رو غافلگیر می‌کنه؛ حرکاتی که بیشتر از یه مسابقه تنیس، شبیه اجرای زنده و نمایش هنریه!
-
-فقط یه ایرانی می‌تونه اینقدر کسخل و باحال باشه😂😂
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11499
-
-<div align="center"><video src="files/post_11499_tasiyanc_11499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11499_tasiyanc_11499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دلقکی رفته 15 ساعت پشت هم با لوسیا تو GTA 6 بدنسازی کار کرده , لوسیارو تبدیل کرده به رونی کولمن با جیسون داره دمبل میزنه 🤣
-
-
-💋 @Tasiyanc
 </div>
 
