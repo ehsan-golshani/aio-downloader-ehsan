@@ -1,8 +1,130 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/02 16:43
+📅 آخرین بروزرسانی: 1405/09/03 04:40
 
 ---
+
+## tasiyanc — post 11437
+
+<div align="center"><img src="files/post_11437_tasiyanc_11437.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰g27
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11436
+
+<div align="center"><video src="files/post_11436_tasiyanc_11436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11436_tasiyanc_11436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵کوچک‌زاده، نماینده مجلس:
+هدف انقلاب ارزونی و سیر کردن شکم مردم نبوده
+گرسنگی و گرونی هم امتحان الهیه! همین که تو خیابون حضور داریم، یعنی پیروز شدیم!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11435
+
+<div align="center"><video src="files/post_11435_tasiyanc_11435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11435_tasiyanc_11435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پشماتون بریزه! یه دختر جوون تو تهران برای شست‌وشوی معده رفته بیمارستان، اما دکترا موقع بررسی معده‌اش با یه دندون انسان روبه‌رو شدن!
+
+وقتی ازش پرسیدن این دندون چطوری وارد معده‌ات شده، گفته موقع لب گرفتن از شوگرددیم، یکی از دندون‌هاش افتاد دهنم و ناخواسته قورتش دادم !
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11433
+
+<div align="center"><img src="files/post_11433_tasiyanc_11433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵نتایج نهایی کنکور سراسری ۱۴۰۵ اعلام شد.
+
+برای دیدن نتایج میتونید به سایت سنجش مراجعه کنید.
+
+http://my.sanjesh.org/
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11431
+
+<div align="center"><img src="files/post_11431_tasiyanc_11431.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵سوپرسل هم ایران رو تحریم کرد!
+
+کاربرای ایرانی با محدودیت‌های جدیدی برای دسترسی به سرویس‌های سوپرسل مواجه شدن؛ از جمله بازی‌های محبوبی مثل کلش آف کلنز، کلش رویال و براول استارز.
+این محدودیت‌ها در حالی اعمال می‌شن که سوپرسل پیش‌تر هم دسترسی کاربران داخل ایران رو به‌دلیل قوانین تحریمی محدود کرده بود.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11430
+
+<div align="center"><video src="files/post_11430_tasiyanc_11430.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11430_tasiyanc_11430.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مردی به نام White Mask 2055 ادعا می‌کنه در سال ۲۰۵۵ زندگی می‌کنه و آخرین انسان زنده روی زمینه!
+
+اون هر روز ویدیوهای جدیدی از نقاط مختلف شهر منتشر می‌کنه؛ خیابون‌های کاملاً خالی، ساختمان‌هایی که هنوز پابرجان و هیچ اثری از انسان‌های دیگه دیده نمی‌شه!
+ویدیوهاش با این سناریوی عجیب حسابی در فضای مجازی وایرال شده؛
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11429
 
@@ -180,104 +302,6 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 با ادامه تحقیقات مشخص شد هر دو قربانی مادر و دختر بوده‌اند و عامل قتل‌ها مردی بوده که با دختر جوان رابطه داشته است.
 متهم در اعترافاتش گفته وقتی متوجه شده رابطه‌شان در آستانه جدایی است، برای سرقت طلاهای دختر تصمیم به قتل او گرفته؛ بعد از قتل، جسدش را آتش زده و طلاهایش را سرقت کرده
 او سپس به سراغ مادر دختر رفته و او را هم به قتل رسانده و با سرقت طلاهایش فرار کرده است.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11415
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فرصت محدود رفقا زود عضو شین 🆗
-اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11414
-
-<div align="center"><img src="files/post_11414_tasiyanc_11414.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰25
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11413
-
-<div align="center"><img src="files/post_11413_tasiyanc_11413.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید! سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن. سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی…
-</div>
-
-## tasiyanc — post 11412
-
-<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
-
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11411
-
-<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
-
-ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
-</div>
-
-## tasiyanc — post 11409
-
-<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+yVBxmxCAtms5ZjBk
-https://t.me/+yVBxmxCAtms5ZjBk
-🅰g25
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
-</div>
-
-## tasiyanc — post 11408
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 از هوش مصنوعی خواستم با توجه به چیزایی که ازم می‌دونه، زندگیم رو به یه سریال نتفلیکس تبدیل کنه؛ نتیجه جالب‌تر از چیزی شد که فکر می‌کردم!
-
-عکس خودتون رو آپلود کنید این پرامپت رو به ChatGPT 😺 بدید 👇
-از هرچی ازم میدونی داستان زندگیمو به یه سریال کامل نتفلیکس تبدیل کن با پوستر و خلاصه داستانمو ارسال کن
 
 
 💋 @Tasiyanc

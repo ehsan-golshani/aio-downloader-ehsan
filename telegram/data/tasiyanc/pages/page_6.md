@@ -1,8 +1,106 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/02 16:43
+📅 آخرین بروزرسانی: 1405/09/03 04:40
 
 ---
+
+## tasiyanc — post 11415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11414
+
+<div align="center"><img src="files/post_11414_tasiyanc_11414.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰25
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11413
+
+<div align="center"><img src="files/post_11413_tasiyanc_11413.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید! سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن. سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی…
+</div>
+
+## tasiyanc — post 11412
+
+<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
+
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11411
+
+<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
+
+ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
+</div>
+
+## tasiyanc — post 11409
+
+<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+yVBxmxCAtms5ZjBk
+https://t.me/+yVBxmxCAtms5ZjBk
+🅰g25
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11408
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 از هوش مصنوعی خواستم با توجه به چیزایی که ازم می‌دونه، زندگیم رو به یه سریال نتفلیکس تبدیل کنه؛ نتیجه جالب‌تر از چیزی شد که فکر می‌کردم!
+
+عکس خودتون رو آپلود کنید این پرامپت رو به ChatGPT 😺 بدید 👇
+از هرچی ازم میدونی داستان زندگیمو به یه سریال کامل نتفلیکس تبدیل کن با پوستر و خلاصه داستانمو ارسال کن
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11407
 
@@ -184,128 +282,5 @@ https://jhet0n.online/fa/?btag=2786270
 شوک بزرگ‌تر زمانی بوده که متوجه شباهت‌های ظاهری خودش به دوست پدرش می‌شه و به این احتمال شک می‌کنه که شاید پدر واقعی‌اش شخص دیگه‌ای باشه!
 این نوجوان تمام ماجرا رو در دست‌نوشته‌ای خطاب به معلم پرورشی‌اش روایت کرده؛ اتفاقی تلخ که با خودکشی او همراه شده.
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11393
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-چشمم زدید؟!🧿🤬
-
-منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
-</div>
-
-## tasiyanc — post 11392
-
-<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
-
-تقصیر پرتغال بود یا اشتباه خودم؟👇😞
-
-https://t.me/+hyp2m5whNPg2Y2I8
-https://t.me/+hyp2m5whNPg2Y2I8
-
-این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
-</div>
-
-## tasiyanc — post 11391
-
-<div align="center"><video src="files/post_11391_tasiyanc_11391.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11391_tasiyanc_11391.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز پرواز باشکوه پرنده «همای سعادت» در طالقان !
-
-امروز تصاویری از پرواز این پرنده زیبا در ارتفاعات طالقان ثبت شده که مورد توجه قرار گرفته.
-در باورهای ایران باستان، همای سعادت نماد خوش‌یمنی، بخت بلند و آمدن روزهای روشن بوده؛ پرنده‌ای افسانه‌ای که دیدنش را به فال نیک می‌گرفتند.
-این پرنده کلا سه بار دیده شده در ایران که :
-قبل جنگ ۱۲ روزه
-قبل اعتراضات دی ماه
-قبل از جنگ ۴۰ روز
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11390
-
-<div align="center"><video src="files/post_11390_tasiyanc_11390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11390_tasiyanc_11390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه با دخترای ۱۸ تا ۲۵ سال در رابطه‌ای یا قصد آشنایی باهاشون رو داری، یه‌سری نکته مهم هست که بهتره حتماً قبلش بدونی ؛
-ویدیو رو کامل ببینید !
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11389
-
-<div align="center"><video src="files/post_11389_tasiyanc_11389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11389_tasiyanc_11389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵گاهی واقعاً لازمه از شلوغی و دغدغه‌های زندگی فاصله بگیری، با رفیقات بزنی به دل طبیعت مثل این اکیب، بخندی و خوش بگذرونی.
-
-از لحاظ روحی دوست داشتم منم بین اینا باشم 😒 کامنتارو نگاه😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11388
-
-<div align="center"><video src="files/post_11388_tasiyanc_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11388_tasiyanc_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این بلاگر که هر روز از روزمرگی‌های زندگیش استوری می‌ذاشت، حالا بعد از خیانت شوهرش با چشمای گریان اومده و خطاب به دخترا میگه:
-«توروخدا وارد زندگی مرد متأهل نشید...»
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11386
-
-<div align="center"><img src="files/post_11386_tasiyanc_11386.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r24
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 
