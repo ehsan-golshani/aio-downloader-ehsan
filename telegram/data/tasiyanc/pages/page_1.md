@@ -1,8 +1,134 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/03 14:13
+📅 آخرین بروزرسانی: 1405/09/04 00:36
 
 ---
+
+## tasiyanc — post 11532
+
+<div align="center"><video src="files/post_11532_tasiyanc_11532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11532_tasiyanc_11532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آدم‌ربایی وحشتناک در شیراز؛ دزدیدن آرتین ۹ ساله و درخواست ۲۰ میلیارد باج!
+
+چند فرد مسلح در روز روشن و جلوی چشم مادرش، آرتین کامکار ۹ ساله رو ربودن و حالا برای آزاد کردن این بچه، از خانواده‌اش ۲۰ میلیارد تومان پول می‌خوان!
+آدم چقدر باید بی‌شرف و سنگدل باشه ؟
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11531
+
+<div align="center"><video src="files/post_11531_tasiyanc_11531.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11531_tasiyanc_11531.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵صحنه‌های باورنکردنی از واکنش‌های عجیب حس ششم انسان!
+
+گاهی بدن انسان پیش از آنکه چشم فرصت دیدن و مغز فرصت تحلیل داشته باشد، خطر را تشخیص می‌دهد و واکنشی برق‌آسا نشان می‌دهد؛ انگار غریزه، چند قدم از بینایی جلوتر حرکت می‌کند!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11530
+
+<div align="center"><video src="files/post_11530_tasiyanc_11530.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11530_tasiyanc_11530.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه پسر به شوخی زنگ می‌زنه به مادر دختره که بره «خواستگاری» ولی مادر دختر از همون اول چنان لیست توقعاتش رو می‌ذاره وسط که پسره نمی‌دونه داره خواستگاری می‌کنه یا پیش‌فاکتور خرید عروس می‌گیره!
+
+همین توقعات زیاد تو جامعه ای که اقتصادش داغونه باعث شده پسرا تن به ازدواج ندن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11529
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت
+💖 
+🎖️معتبرترین سایت روسی فعال در ایران
+🎖️ 
+⛔شارژ از طریق کارت بانکی،ارز،ووچر 
+⛔تسویه حساب سریع و امن بدون احرازهویت 
+💎هدایا سایت جهانی ژتون بت: 
+➕واریز اول 100% بونوس
+😍 
+➕15% فری بت هدیه برای شارژ بانکی 
+➕15%  شارژ اضافی برای شارژ ارزی 
+➕100…
+</div>
+
+## tasiyanc — post 11528
+
+<div align="center"><video src="files/post_11528_tasiyanc_11528.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11528_tasiyanc_11528.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت
+💖
+
+
+🎖️معتبرترین سایت روسی فعال در ایران
+🎖️
+
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+
+💎هدایا سایت جهانی ژتون بت:
+
+➕واریز اول 100% بونوس
+😍
+
+➕15% فری بت هدیه برای شارژ بانکی
+
+➕15%  شارژ اضافی برای شارژ ارزی
+
+➕100 اسپین رایگان هفتگی
+
+➕20% برگشت باخت روزانه برای بازی های کازینویی
+
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+
+🤩دنیای هدایا بی نظیر در ژتون بت
+
+
+🖥️ادرس ورود به سایت:🅰g3
+https://jhet0n.online/fa/?btag=2786270
+
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+
+💖کانال اطلاع رسانی:
+👇
+
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 11526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این مردک شُل‌مغز رو احتمالاً خیلی‌هاتون دیدید؛ همونی که به «پدر تشریفات خودآزاری ایران» معروف شده!
+
+کاری که این آقا می‌کنه و دکانی که برای خودش باز کرده، عملاً هیچ فرقی با پکیج‌فروش‌های اینستاگرامی نداره
+فقط به‌جای فروختن دوره و پکیج، با ادا و اطوار و نمایش‌های عجیب‌وغریب دنبال جلب توجهه!
+کافیه ببینید برای خوردن یه نارنگی چه نمایش مسخره‌ای راه می‌اندازه و چه گند و کثافتی به میز می‌زنه!
+اما بخش خنده‌دار ماجرا اینجاست که یه عده شُل‌مغز تر از خودش هم متعصبانه ازش دفاع می‌کنن
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11525
 
@@ -55,8 +181,6 @@
 </div>
 
 ## tasiyanc — post 11521
-
-<div align="center"><a href="files/post_11521_MOSCOW 🇷🇺⚡.npvs.dat" target="_blank" class="file-link" style="color:#2ea4d9;">📎 MOSCOW 🇷🇺⚡.npvs</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵مجموعه ۹ سرور اختصاصی روسیه 🇷🇺 پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
@@ -187,93 +311,5 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g2 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11511
-
-<div align="center"><img src="files/post_11511_tasiyanc_11511.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g2
-https://t.me/+Kj9X7ZcvJe02NTVk
-https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11510
-
-<div align="center"><video src="files/post_11510_tasiyanc_11510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11510_tasiyanc_11510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ویدیو وایرال‌شده از یک مرد پاکستانی که تصمیم گرفته در یک شب با ۴ نفر ازدواج کنه؛ اما نکته عجیب ماجرا اینجاست که هر ۴ همسرش مرد هستن و شومبول دارن!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11509
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوهای وایرال‌شده از غزه، رقص و شادی در یک جشن عروسی شبانه را نشان می‌دهد؛ مراسمی همراه با موسیقی زنده و نورپردازی که در میان ویرانی‌های جنگ برگزار شده است.
-
-طبق اطلاعات منتشرشده، عروسی محمد ابوعسوس از خانواده‌های ابوعسوس و الدیری، روزهای ۲۹ و ۳۰ آبان در محله صبره غزه برگزار شده است.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11508
-
-<div align="center"><img src="files/post_11508_tasiyanc_11508.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✈️ تلگرام قابلیت جالب تبدیل ویس به متن را قبل از ارسال اضافه کرد!
-
-از این به بعد می‌تونید بدون ارسال پیام صوتی، صدای ضبط‌شده رو مستقیماً روی گوشی به متن تبدیل کنید و فقط متنش رو برای طرف مقابل بفرستید.
-
-نحوه فعال‌سازی و استفاده:
-۱. گزینه On-device transcription رو فعال کنید.
-۲. مدل آفلاین زبان موردنظرتون رو دانلود کنید.
-۳. وارد چت بشید و دکمه ضبط ویس رو به بالا بکشید تا قفل بشه.
-۴. متن ویس به‌صورت زنده روی گوشی نمایش داده می‌شه.
-۵. بعد از بررسی، گزینه Send رو بزنید تا فقط متن ارسال بشه.
-حواستون باشه: دکمه آبی ارسال، ویس رو می‌فرسته، نه متن رو!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11507
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11506
-
-<div align="center"><img src="files/post_11506_tasiyanc_11506.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r2
-✅ https://DerbyBet.com
-📩 @Derbybet
 </div>
 
