@@ -1,8 +1,142 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/04 07:59
+📅 آخرین بروزرسانی: 1405/09/04 18:15
 
 ---
+
+## tasiyanc — post 11462
+
+<div align="center"><video src="files/post_11462_tasiyanc_11462.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11462_tasiyanc_11462.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تو GTA 6 ظاهراً باید حواست به اعصاب زن‌ها وقتی پریود هستن باشه!
+
+اگه طرف پریود باشه و عصبی شده باشه، بهتره بی‌خیالش بشی و کاری به کارش نداشته باشی؛ حتی اگه قصد داری ماشینشو بدزدی 😂😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11461
+
+<div align="center"><img src="files/post_11461_tasiyanc_11461.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 معرفی «Defyx VPN 📱» یه فیلترشکن جدید برای تست بنر پست حتما باز کنید
+(برای دوستانی که نتونستن با سایفون وصل شن)
+
+اگه دنبال یه VPN جدید هستید، Defyx رو هم امتحان کنید.
+پایبند به حریم خصوصی و No-Logs
+متن‌باز با مجوز MIT
+از روش‌های اتصال مختلف پشتیبانی می‌کنه اگه تیک های زده شده در بنر براتون کار نکرد از پروتکل های دیگر استفاده کنید مثل WARP - MITM
+🔴تنظیمات پیشنهادی و راهنمای اتصال رو قدم به قدم داخل بنر گذاشتم؛ قبل از اتصال حتماً عکس رو ببینید.
+
+دانلود نسخه اندروید 🕹
+دانلود نسخه آیفون 📱
+
+اطلاعات تکمیلی درباره پروژه Defyx 📱
+
+توسعه‌دهنده: UnboundTech UG (haftungsbeschränkt)
+برلین، آلمان
+نظراتتون از طریق دایرکت کانال یا گروه به اشتراک بزارید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11459
+
+<div align="center"><img src="files/post_11459_tasiyanc_11459.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r29
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11458
+
+<div align="center"><video src="files/post_11458_tasiyanc_11458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11458_tasiyanc_11458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فضاپیمای وویجر 1🛸 سفیر زمینی‌ها در مرزهای ناشناخته کیهان!
+
+فضاپیمای وویجر ۱ که ۴۹ سال پیش توسط ناسا به فضا پرتاب شد، حالا به فاصله‌ای رسیده که نور برای رسیدن از زمین به اون تقریباً ۲۴ ساعت زمان نیاز داره! یعنی بیش از ۲۵ میلیارد کیلومتر دورتر از ما.
+اما عجیب‌ترین بخش ماجرا، پیامیه که همراه خودش حمل می‌کنه؛ یک صفحه طلایی حاوی تصاویر، صداها، موسیقی و پیام‌هایی به ۵۵ زبان مختلف، برای اینکه اگر روزی تمدنی بیگانه پیداش کرد، با انسان‌ها و زمین آشنا بشه.
+++حتی یک پیام فارسی هم روی این صفحه ثبت شده، با شعر جاودانه حضرت سعدی:
+«درود بر ساکنین ماورای آسمان‌ها»
+بنی‌آدم اعضای یک پیکرند
+که در آفرینش ز یک گوهرند
+چو عضوی به درد آورد روزگار
+دگر عضوها را نماند قرار
+تصور کن یه روز، در دوردست‌ترین نقطه‌های کیهان، موجوداتی این پیامهارو رو پیدا کنن....
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11457
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+QfLVEylr-2c2YzQ0 https://t.me/+QfLVEylr-2c2YzQ0 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
+</div>
+
+## tasiyanc — post 11456
+
+<div align="center"><img src="files/post_11456_tasiyanc_11456.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+QfLVEylr-2c2YzQ0
+https://t.me/+QfLVEylr-2c2YzQ0
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
+</div>
+
+## tasiyanc — post 11455
+
+<div align="center"><img src="files/post_11455_tasiyanc_11455.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 فارس: ایران دیگه قصد وقت‌کشی نداره!
+
+به گفته خبرگزاری فارس، نفتکش‌ها در حال آماده‌سازی برای خروج از بنادر و حرکت به سمت چین هستن؛ و به کشور های حاشیه خلیج‌فارس هشدار داده شده هرگونه حمله به نفتکش‌ها می‌تونه آغازگر یک جنگ تمام‌عیار باشه.
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11454
 
@@ -226,120 +360,5 @@ https://jhet0n.online/fa/?btag=2786270
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 . ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰27 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11442
-
-<div align="center"><img src="files/post_11442_tasiyanc_11442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-🅰27
-https://t.me/+gagcxCKK4QQzNGI8
-https://t.me/+gagcxCKK4QQzNGI8
-
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
-</div>
-
-## tasiyanc — post 11441
-
-<div align="center"><video src="files/post_11441_tasiyanc_11441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11441_tasiyanc_11441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 نجات معجزه‌آسای یک دانشجو از حادثه ریزش کمددیواری!
-
-ویدیویی از خوابگاهی در شهر «کوتا» هند وایرال شده که لحظه سقوط ناگهانی یک کمد دیواری رو درست کنار یک دانشجو نشون می‌ده. کمد در آستانه سقوط روی سرش بود، اما دانشجو با خوش‌شانسی از این حادثه جون سالم به در برد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11440
-
-<div align="center"><img src="files/post_11440_tasiyanc_11440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ۱۴۶ سال زندان برای زنی که خودش را دختر ۱۳ ساله جا زده بود و با پسرای کم سن سال سکس میکرد!
-
-آلیسا زینگر، زن ۲۲ ساله آمریکایی در فلوریدا، به اتهام سوءاستفاده جنسی (سکس) از چندین پسر ۱۳ و ۱۴ ساله به ۱۴۶ سال زندان محکوم شده.
-این زن با جا زدن خودش به‌عنوان یک نوجوان ۱۳ ساله، اعتماد قربانی‌ها رو جلب می‌کرد، از اون‌ها سوءاستفاده می‌کرد و از روابطشون فیلم می‌گرفت.
-ماجرا وقتی لو رفت که یکی از قربانی‌ها بیمار شد و خانواده‌اش پیگیر ماجرا شدن.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11439
-
-<div align="center"><video src="files/post_11439_tasiyanc_11439.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11439_tasiyanc_11439.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 حمله یک مسلمان با چاقو به مردی که « قرآن » را در لندن آتش زد!
-
-مردی مقابل سفارت ترکیه در لندن، در اعتراض به اسلام یک نسخه از قرآن را به آتش کشید.
-این اقدام با واکنش موسی کادری، مردی ۵۹ ساله، روبه‌رو شد که با چاقو به او حمله کرد و نزدیک بود طرفو بکشه
-مهاجم در دادگاه به جرم خود اعتراف کرد و در نهایت به ۲۰ هفته حبس تعلیقی محکوم شد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11438
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g27 https://t.me/+gYDRnUG5OX03MWJk…
-</div>
-
-## tasiyanc — post 11437
-
-<div align="center"><img src="files/post_11437_tasiyanc_11437.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰g27
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11436
-
-<div align="center"><video src="files/post_11436_tasiyanc_11436.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11436_tasiyanc_11436.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵کوچک‌زاده، نماینده مجلس:
-هدف انقلاب ارزونی و سیر کردن شکم مردم نبوده
-گرسنگی و گرونی هم امتحان الهیه! همین که تو خیابون حضور داریم، یعنی پیروز شدیم!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11435
-
-<div align="center"><video src="files/post_11435_tasiyanc_11435.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11435_tasiyanc_11435.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پشماتون بریزه! یه دختر جوون تو تهران برای شست‌وشوی معده رفته بیمارستان، اما دکترا موقع بررسی معده‌اش با یه دندون انسان روبه‌رو شدن!
-
-وقتی ازش پرسیدن این دندون چطوری وارد معده‌ات شده، گفته موقع لب گرفتن از شوگرددیم، یکی از دندون‌هاش افتاد دهنم و ناخواسته قورتش دادم !
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,121 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/04 07:59
+📅 آخرین بروزرسانی: 1405/09/04 18:15
 
 ---
+
+## tasiyanc — post 11544
+
+<div align="center"><video src="files/post_11544_tasiyanc_11544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11544_tasiyanc_11544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این بلاگر خانم با چند حرکت ساده نشون می‌ده چقدر چیزی که تو فضای مجازی می‌بینیم با واقعیت فرق داره؛ از چهره بزک‌شده و فیلترخورده تا ظاهر واقعی.
+
+جالب اینجاست که چهره طبیعی خودش هم هیچ مشکلی نداره، اتفاقاً به‌نظر زنده‌تر و دوست‌داشتنی‌تره؛ ولی اختلاف بین این دو چهره واقعاً زیاده. خلاصه اینستاگرام رو با واقعیت اشتباه نگیرید، خیلی چیزا اون چیزی نیست که بهتون نشون میدن.
+💋﻿ @Tasiyanc
+</div>
+
+## tasiyanc — post 11543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11542
+
+<div align="center"><img src="files/post_11542_tasiyanc_11542.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰
+https://t.me/+Kj9X7ZcvJe02NTVk
+https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11541
+
+<div align="center"><video src="files/post_11541_tasiyanc_11541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11541_tasiyanc_11541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چه خبرتونه ناموسا ؟ یـه زن تو تـهران بـا قـرص بـرنـج شوهـرشو به قتل رسونده؛
+
+تو مصاحبه با خبرنگار میگه:
+شوهرم سال ۱۴۰۰ سال با یه زن دیگه به من خیانت کرده بود و از اون بعد دیگه رابطه‌ای نداشتیم و اختلاف بینمون زیاد بود
+منم برای اینکه بهش اسیب بزنم رفتم قرص برنج خریدم و یک چهارمشو انداختم تو کپسول قرصی که هر روز صبح میخورد تا کشته بشه
+البته قصد کشتنش رو نداشتم فقط میخواستم بهش آسیب بزنم حتی پشیمون شدم خواستم برگردم قرص رو بردارم نخوره ولی سرکار بودم دیگه.
+اگه میدونستم موقعیت شغلیم خراب میشه هیچ وقت قرص برنج بهش نمیدادم.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11540
+
+<div align="center"><video src="files/post_11540_tasiyanc_11540.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11540_tasiyanc_11540.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چندتا از دخترای مملکت‌مون که دانشجو بودن از بس که تعداد نفراتشون بالا بوده، یه فکر بکر به سرشون میزنه؛
+
+و با وانت اسنپ به سمت دانشگاه راهی میشن:
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11539
+
+<div align="center"><video src="files/post_11539_tasiyanc_11539.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11539_tasiyanc_11539.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵روایـت تلـخ خانم دکتر از دخـتر دانشـجو که قـربانی اعـتمادش شد
+دو سه ماه پیش یه بیمار داشتم که دختر دانشجو بود و بدون ازدواج حامله شده بود قضیه رو که جویا شدم گفت:
+یکی از پسرای پولدار دانشگاهمون بهم گفت یه مهمونی هست تو خونمون و دعوتم کرد، لحظه اخر همه کنسل کردن،
+ولی من با پسره و دو تا از دوستاش رفتم خونشون و درینک خوردیم و بعدش بیهوش شدم تا اینکه تو یکی از بیابونای اطراف شهر به‌هوش اومدم و بعدش متوجه شدم هر سه نفرشون بهم تجاوز کردن و الانم حاملم.
+بخاطر ترس از پدر و مادرمم جرئت شکایت کرده و پزشک قانونی رفتن نداشتم.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11538
+
+<div align="center"><a href="files/post_11538_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11537
+
+<div align="center"><img src="files/post_11537_tasiyanc_11537.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r4
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
 
 ## tasiyanc — post 11536
 
@@ -202,113 +315,6 @@ https://jhet0n.online/fa/?btag=2786270
 🔵ویدیوی وایرال‌شده از «ایونت مد و هنر » در نیاوران تهران
 
 جایی که ترکیب مد، هنر و استایل‌های متفاوت حسابی مورد توجه قرار گرفته.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب بصورت رایگان‼️                باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1323دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3 @ARON_TIP…
-</div>
-
-## tasiyanc — post 11522
-
-<div align="center"><img src="files/post_11522_tasiyanc_11522.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب بصورت رایگان‼️
-        
-     
-باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎
-
-💵خودم 500دلار زدم که میشه 1323دلار🔥
-                                 ⬇️👇⬇️
-            🚫فرم VIP رایگان شرطبندی↙️
-
-◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3
-
-@ARON_TIP @ARON_TIP  @ARON_TIP
-            💎💯   100درصد وینه💯💎
-</div>
-
-## tasiyanc — post 11521
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مجموعه ۹ سرور اختصاصی روسیه 🇷🇺 پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
-
-تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
-با وارد کردن این فایل داخل نپستر ۹ کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
-آموزش اتصال ⚡
-
-برنامه اندروید🕹
-
-دانلود برنامه آیفون 📱
-
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11520
-
-<div align="center"><img src="files/post_11520_tasiyanc_11520.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چه خبره ؟! یه جنایت هولناک دیگه از طرف پدر و مادر ؛ این‌بار در سنندج...
-
-«هلیا فتاحی» دختر ۱۶ ساله اهل سنندج، ۳۰ آبان به دست پدر و مادرش و به دلایل ناموسی به قتل رسیده.
-پدر و مادر « هلیا » با قرص خواب‌آور اورا بیهوش کرده و با قرار دادن بالش روی صورت خفه‌اش میکنن و بچه کشته میشه ، و بعدش میرن خودشونو تحویل میدن و با افتخار میگن کشتیم
-+برخی از دوستای هلیا میگن که از دوس‌پسرش حامله بوده، که ما نمی‌تونیم این موضوع رو تایید یا تکذیب کنیم
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11519
-
-<div align="center"><video src="files/post_11519_tasiyanc_11519.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11519_tasiyanc_11519.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از جا انداختن مهره‌های یه شیر!
-
-الکس، شیر بازیگوشی که چند جای گردن و کمرش مهره‌ها از جا دررفته بود، توسط یه دکتر متخصص ارتوپدی حیوانات معالجه میشه و مهره‌هاش رو جا میندازه
-الکس هم بعد از درمان، از درد خلاص میشه و انگار حسابی حالش جا میاد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11518
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰2
-</div>
-
-## tasiyanc — post 11517
-
-<div align="center"><img src="files/post_11517_tasiyanc_11517.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰2
-</div>
-
-## tasiyanc — post 11516
-
-<div align="center"><video src="files/post_11516_tasiyanc_11516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11516_tasiyanc_11516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵برای اولین‌بار، فیلمی منتسب به جلسه انتخاب «سیدمجتبی خامنه‌ای» به‌عنوان رهبر جمهوری اسلامی منتشر شده است.
-گفته می‌شود این جلسه ۱۷ اسفند ۱۴۰۴، در میانه جنگ و به‌صورت مخفیانه برگزار شده؛ چراکه اسرائیل و آمریکا به‌دنبال شناسایی محل برگزاری جلسه بودند.
-با این حال، انتشار این ویدئو با تردیدهایی هم همراه شده است؛ برخی معتقدند تصاویر ممکن است بعدها و حتی به‌تازگی ضبط شده باشند و صرفاً تاریخ اسفند ۱۴۰۴ به آن‌ها اضافه شده باشد.
 💋 @Tasiyanc
 </div>
 
