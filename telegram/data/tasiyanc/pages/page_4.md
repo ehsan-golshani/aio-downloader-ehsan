@@ -1,8 +1,66 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/04 00:36
+📅 آخرین بروزرسانی: 1405/09/04 07:59
 
 ---
+
+## tasiyanc — post 11474
+
+<div align="center"><img src="files/post_11474_tasiyanc_11474.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پایان دوران بازیگری در صنعت پ*ورن برای یکی دیگر از معروف‌ترین چهره‌ی ژاپنی!
+
+بانو ری لیل بلک (Rae Lil Black)، بازیگر فیلم‌های پ*ورن که ۷ سال در این صنعت فعالیت داشت، از مسلمان‌شدن خودش خبر داده و نام «نورای استقلال» رو انتخاب کرده!
+اون می‌گه آشنایی با قرآن و شرکت در یک سمینار سه‌ساعته باعث شد تصمیم بگیره مسیر زندگیش رو تغییر بده.
+نکته جالب اینکه این تصمیم براش بدون هزینه نبوده؛ صدها هزار نفر از فالوئرهاش رو از دست داده، اما می‌گه حاضر نیست به خاطر حفظ مخاطب‌هاش از تصمیمش برگرده.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11473
+
+<div align="center"><video src="files/post_11473_tasiyanc_11473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11473_tasiyanc_11473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⚠️ هشدار اسپویل GTA 6
+
+
+اسپید «یوتوبر معرف» بعد از 56 ساعت بازی کردن، بالاخره GTA 6 رو به پایان رسوند؛
+
+لوسیا و جیسون توسط پلیس کشته می‌شن و اسپید هم بعد از دیدن پایان تلخ داستان، اشکش درمیاد!
+
+
+🔵 اگه قصد داری GTA 6 رو بازی کنی، مراقب باش؛ با باز کردن این ویدیو و کپشن ممکنه بخش مهمی از داستان و پایان بازی برات لو بره.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
+</div>
+
+## tasiyanc — post 11471
+
+<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+4iOoNe8EvMNkY2Vk
+https://t.me/+4iOoNe8EvMNkY2Vk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
+</div>
 
 ## tasiyanc — post 11470
 
@@ -243,56 +301,6 @@ https://t.me/+QfLVEylr-2c2YzQ0
 🚨 فارس: ایران دیگه قصد وقت‌کشی نداره!
 
 به گفته خبرگزاری فارس، نفتکش‌ها در حال آماده‌سازی برای خروج از بنادر و حرکت به سمت چین هستن؛ و به کشور های حاشیه خلیج‌فارس هشدار داده شده هرگونه حمله به نفتکش‌ها می‌تونه آغازگر یک جنگ تمام‌عیار باشه.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11454
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد. + خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم 🚨تکذیب شد 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11453
-
-<div align="center"><img src="files/post_11453_tasiyanc_11453.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد.
-
-+ خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم
-
-🚨تکذیب شد
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11452
-
-<div align="center"><video src="files/post_11452_tasiyanc_11452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11452_tasiyanc_11452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵رپ خوندن این دختر ایرانی فضای مجازی رو ترکونده! این ویدئو توی ۲۴ ساعت نزدیک یک میلیون لایک گرفته و حسابی وایرال شده!
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11451
-
-<div align="center"><video src="files/post_11451_tasiyanc_11451.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11451_tasiyanc_11451.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هم خیلی دلمون می‌خواد بریم دبی، ولی متأسفانه اونجا کسی ما رو نمی‌کنه.
-
 
 
 💋 @Tasiyanc

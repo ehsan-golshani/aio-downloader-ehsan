@@ -1,8 +1,58 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/04 00:36
+📅 آخرین بروزرسانی: 1405/09/04 07:59
 
 ---
+
+## tasiyanc — post 11454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد. + خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم 🚨تکذیب شد 
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11453
+
+<div align="center"><img src="files/post_11453_tasiyanc_11453.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨غیررسمی تایید نشده/ پدر سوگند صیادی توسط چند نفر هدف گلوله قرار گرفت و کشته شد.
+
++ خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم
+
+🚨تکذیب شد
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11452
+
+<div align="center"><video src="files/post_11452_tasiyanc_11452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11452_tasiyanc_11452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵رپ خوندن این دختر ایرانی فضای مجازی رو ترکونده! این ویدئو توی ۲۴ ساعت نزدیک یک میلیون لایک گرفته و حسابی وایرال شده!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11451
+
+<div align="center"><video src="files/post_11451_tasiyanc_11451.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11451_tasiyanc_11451.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ما هم خیلی دلمون می‌خواد بریم دبی، ولی متأسفانه اونجا کسی ما رو نمی‌کنه.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11450
 
@@ -289,65 +339,6 @@ https://t.me/+gYDRnUG5OX03MWJk
 🔵 پشماتون بریزه! یه دختر جوون تو تهران برای شست‌وشوی معده رفته بیمارستان، اما دکترا موقع بررسی معده‌اش با یه دندون انسان روبه‌رو شدن!
 
 وقتی ازش پرسیدن این دندون چطوری وارد معده‌ات شده، گفته موقع لب گرفتن از شوگرددیم، یکی از دندون‌هاش افتاد دهنم و ناخواسته قورتش دادم !
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11433
-
-<div align="center"><img src="files/post_11433_tasiyanc_11433.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵نتایج نهایی کنکور سراسری ۱۴۰۵ اعلام شد.
-
-برای دیدن نتایج میتونید به سایت سنجش مراجعه کنید.
-
-http://my.sanjesh.org/
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11431
-
-<div align="center"><img src="files/post_11431_tasiyanc_11431.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵سوپرسل هم ایران رو تحریم کرد!
-
-کاربرای ایرانی با محدودیت‌های جدیدی برای دسترسی به سرویس‌های سوپرسل مواجه شدن؛ از جمله بازی‌های محبوبی مثل کلش آف کلنز، کلش رویال و براول استارز.
-این محدودیت‌ها در حالی اعمال می‌شن که سوپرسل پیش‌تر هم دسترسی کاربران داخل ایران رو به‌دلیل قوانین تحریمی محدود کرده بود.
 
 💋 @Tasiyanc
 </div>

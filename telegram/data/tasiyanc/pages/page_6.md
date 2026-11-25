@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/04 00:36
+📅 آخرین بروزرسانی: 1405/09/04 07:59
 
 ---
+
+## tasiyanc — post 11434
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11433
+
+<div align="center"><img src="files/post_11433_tasiyanc_11433.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵نتایج نهایی کنکور سراسری ۱۴۰۵ اعلام شد.
+
+برای دیدن نتایج میتونید به سایت سنجش مراجعه کنید.
+
+http://my.sanjesh.org/
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11431
+
+<div align="center"><img src="files/post_11431_tasiyanc_11431.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵سوپرسل هم ایران رو تحریم کرد!
+
+کاربرای ایرانی با محدودیت‌های جدیدی برای دسترسی به سرویس‌های سوپرسل مواجه شدن؛ از جمله بازی‌های محبوبی مثل کلش آف کلنز، کلش رویال و براول استارز.
+این محدودیت‌ها در حالی اعمال می‌شن که سوپرسل پیش‌تر هم دسترسی کاربران داخل ایران رو به‌دلیل قوانین تحریمی محدود کرده بود.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11430
 
@@ -234,56 +293,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید! سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن. سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی…
-</div>
-
-## tasiyanc — post 11412
-
-<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
-
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11411
-
-<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
-
-ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
-</div>
-
-## tasiyanc — post 11409
-
-<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+yVBxmxCAtms5ZjBk
-https://t.me/+yVBxmxCAtms5ZjBk
-🅰g25
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
 </div>
 

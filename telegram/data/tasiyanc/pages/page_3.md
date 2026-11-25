@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/04 00:36
+📅 آخرین بروزرسانی: 1405/09/04 07:59
 
 ---
+
+## tasiyanc — post 11495
+
+<div align="center"><video src="files/post_11495_tasiyanc_11495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11495_tasiyanc_11495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه از واقعی‌سازی‌های راکستار!
+
+​یه گیمر آمریکایی وسط بازی GTA 6 سرش رو از مانیتور می‌گیره بالا و می‌بینه جیسون دقیقاً توی بالکن خونه‌ش وایساده بود!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11494
+
+<div align="center"><video src="files/post_11494_tasiyanc_11494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11494_tasiyanc_11494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دلهره‌آور از سونامی کامچاتکا پس از زمین‌لرزه ۸.۸ ریشتری
+
+​در پی زلزله شدید ۸.۸ ریشتری در شبه‌جزیره کامچاتکا، مرد روسی 🇷🇺 به همراه سگش روی تپه‌ای نزدیک ساحل ایستاد و لحظه رسیدن سونامی را ثبت کرد؛ صحنه‌ای که تضاد میان آرامش تماشاگران و قدرت سهمگین دریا را برجسته می‌کند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11493
+
+<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
+
+این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11491
 
@@ -215,63 +269,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰29
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11474
-
-<div align="center"><img src="files/post_11474_tasiyanc_11474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پایان دوران بازیگری در صنعت پ*ورن برای یکی دیگر از معروف‌ترین چهره‌ی ژاپنی!
-
-بانو ری لیل بلک (Rae Lil Black)، بازیگر فیلم‌های پ*ورن که ۷ سال در این صنعت فعالیت داشت، از مسلمان‌شدن خودش خبر داده و نام «نورای استقلال» رو انتخاب کرده!
-اون می‌گه آشنایی با قرآن و شرکت در یک سمینار سه‌ساعته باعث شد تصمیم بگیره مسیر زندگیش رو تغییر بده.
-نکته جالب اینکه این تصمیم براش بدون هزینه نبوده؛ صدها هزار نفر از فالوئرهاش رو از دست داده، اما می‌گه حاضر نیست به خاطر حفظ مخاطب‌هاش از تصمیمش برگرده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11473
-
-<div align="center"><video src="files/post_11473_tasiyanc_11473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11473_tasiyanc_11473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ هشدار اسپویل GTA 6
-
-
-اسپید «یوتوبر معرف» بعد از 56 ساعت بازی کردن، بالاخره GTA 6 رو به پایان رسوند؛
-
-لوسیا و جیسون توسط پلیس کشته می‌شن و اسپید هم بعد از دیدن پایان تلخ داستان، اشکش درمیاد!
-
-
-🔵 اگه قصد داری GTA 6 رو بازی کنی، مراقب باش؛ با باز کردن این ویدیو و کپشن ممکنه بخش مهمی از داستان و پایان بازی برات لو بره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11471
-
-<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
 </div>
 

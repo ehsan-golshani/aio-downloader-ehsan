@@ -1,8 +1,59 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/09/04 00:36
+📅 آخرین بروزرسانی: 1405/09/04 07:59
 
 ---
+
+## tasiyanc — post 11412
+
+<div align="center"><img src="files/post_11412_tasiyanc_11412.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+وضعیت خیابونا روز به روز داره ترسناک میشه با خانواده نمیشه رد شد :|
+
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11411
+
+<div align="center"><video src="files/post_11411_tasiyanc_11411.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11411_tasiyanc_11411.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی وایرال شده از کوچ میلیونی خرچنگ‌های قرمز در استرالیا آغاز شد! 🦀
+
+ده‌ها میلیون خرچنگ قرمز در جزیره کریسمس استرالیا، مهاجرت سالانه خودشون رو به سمت ساحل آغاز کردن؛ پدیده‌ای تماشایی که هر سال مسیرهای جزیره رو به دریایی از خرچنگ‌های قرمز تبدیل می‌کنه!
+
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11410
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
+</div>
+
+## tasiyanc — post 11409
+
+<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+yVBxmxCAtms5ZjBk
+https://t.me/+yVBxmxCAtms5ZjBk
+🅰g25
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
 
 ## tasiyanc — post 11408
 
@@ -244,59 +295,5 @@ https://t.me/+hyp2m5whNPg2Y2I8
 قبل از جنگ ۴۰ روز
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11390
-
-<div align="center"><video src="files/post_11390_tasiyanc_11390.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11390_tasiyanc_11390.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اگه با دخترای ۱۸ تا ۲۵ سال در رابطه‌ای یا قصد آشنایی باهاشون رو داری، یه‌سری نکته مهم هست که بهتره حتماً قبلش بدونی ؛
-ویدیو رو کامل ببینید !
-
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11389
-
-<div align="center"><video src="files/post_11389_tasiyanc_11389.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11389_tasiyanc_11389.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵گاهی واقعاً لازمه از شلوغی و دغدغه‌های زندگی فاصله بگیری، با رفیقات بزنی به دل طبیعت مثل این اکیب، بخندی و خوش بگذرونی.
-
-از لحاظ روحی دوست داشتم منم بین اینا باشم 😒 کامنتارو نگاه😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11388
-
-<div align="center"><video src="files/post_11388_tasiyanc_11388.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11388_tasiyanc_11388.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این بلاگر که هر روز از روزمرگی‌های زندگیش استوری می‌ذاشت، حالا بعد از خیانت شوهرش با چشمای گریان اومده و خطاب به دخترا میگه:
-«توروخدا وارد زندگی مرد متأهل نشید...»
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11387
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
