@@ -1,8 +1,62 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/04 18:15
+📅 آخرین بروزرسانی: 1405/09/05 03:01
 
 ---
+
+## tasiyanc — post 11466
+
+<div align="center"><video src="files/post_11466_tasiyanc_11466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11466_tasiyanc_11466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه خانم روسی🇷🇺 که شوهرش ایرانیه ، از خصوصیات مردای ایرانی میگه؛ از تفاوت فرهنگ و رفتار مردای ایرانی گرفته تا چیزایی که بعد از ازدواج با یه ایرانی تجربه کرده
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11465
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g28 https://t.me/+gYDRnUG5OX03MWJk…
+</div>
+
+## tasiyanc — post 11464
+
+<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰g28
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11463
+
+<div align="center"><video src="files/post_11463_tasiyanc_11463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11463_tasiyanc_11463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو گیم‌پلی GTA VI نیست، متروی تهرانه که وایرال شده!
+
+امروز توی مترو تهران دو نفر با هم درگیر می‌شن که یهو یکی‌شون چاقو درمیاره و ماجرا از یه دعوای معمولی به یه صحنه عجیب و پرتنش تبدیل می‌شه.
+تهران هر روز یه DLC جدید می‌ده بیرون
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11462
 
@@ -267,98 +321,5 @@ https://jhet0n.online/fa/?btag=2786270
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11446
-
-<div align="center"><video src="files/post_11446_tasiyanc_11446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11446_tasiyanc_11446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این مرد روسی تو فضای مجازی با یه دختر اروپایی آشنا می‌شه، با کلی ذوق و امید هتل رزرو می‌کنه و برای دیدنش راهی یه کشور دیگه می‌شه؛ اما بعد از چند دقیقه ماچ و بوس، تازه می‌فهمه طرف مقابلش دختر نیست و مرده!
-
-حالا پاسپورتشو با خودش مقایسه میکنه پشماش ریخته
-😂
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11445
-
-<div align="center"><video src="files/post_11445_tasiyanc_11445.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11445_tasiyanc_11445.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔥جمعه ۲۹ آبان ۱۴۰۵ | بوندس‌لیگا آلمان🇩🇪
-
-در فوتبال آلمان، فشار همیشه از جایگاه جدول نمی‌آید؛ گاهی از انتظاراتی می‌آید که هر هفته روی دوش مدعیان قرار دارد.
-
-بایرن مونیخ این هفته مقابل کلن قرار می‌گیرد؛ دیداری که روی کاغذ شاید اختلاف دو تیم را نشان دهد، اما بوندس‌لیگا بارها ثابت کرده که هیچ مسابقه‌ای قبل از سوت آغاز برنده ندارد.
-
-برای بایرن، هر بازی قدمی در مسیر حفظ برتری است و برای کلن، هر مسابقه فرصتی برای تغییر روایت فصل. همین تضاد اهداف است که فوتبال را غیرقابل پیش‌بینی و جذاب نگه می‌دارد.
-
-🔤
-🔤
-🔤
-🔤
-🔤
-🔤
-
-🥾 بونوس‌های فعال:
-
-0️⃣
-0️⃣
-3️⃣
-🔣 3️⃣ اولین واریز
-
-0️⃣
-0️⃣
-2️⃣
-🔣 
-2️⃣ دومین واریز
-
-0️⃣
-0️⃣
-1️⃣
-🔣 
-1️⃣ سومین واریز
-
-
-📲دانلود مستقیم اپلیکیشن اندروید
-
-
-🌐 آدرس ثابت وبسایت
-
-📱 عضویت کانال تلگرام آمیتیس‌بت
-
-
-🚨 برای ورود به سایت، حتما از فیلترشکن با سرورهای آلمان، کانادا و سرورهای آسیایی استفاده نمایید.🅰r28
-</div>
-
-## tasiyanc — post 11444
-
-<div align="center"><img src="files/post_11444_tasiyanc_11444.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 165 هزار امضا ( در ساعت اشتراک گذاری پست در کانال ) برای اعدام پدر سوگند صیادی؛ کارزار مطالبه اجرای حکم به راه افتاد!
-
-بعد از قتل سوگند صیادی توسط پدرش، کارزاری برای مطالبه اجرای حکم اعدام او شکل گرفته که طبق اعلام سایت کارزار ، تا الان 165 هزار نفر امضاش کردن.
-
-اگه موافق این مطالبه‌اید، لینک کارزار رو توی گروه‌ها و کانال‌هاتون پخش کنید تا صدای این مطالبه بیشتر شنیده بشه و پرونده به فراموشی سپرده نشه.
-
-🔗 https://www.karzar.net/360146
-
-
-کمپین : #سوگند_تنها_نیست
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰27 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
 </div>
 

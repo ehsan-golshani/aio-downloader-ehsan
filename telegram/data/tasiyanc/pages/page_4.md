@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/04 18:15
+📅 آخرین بروزرسانی: 1405/09/05 03:01
 
 ---
+
+## tasiyanc — post 11487
+
+<div align="center"><img src="files/post_11487_tasiyanc_11487.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+4iOoNe8EvMNkY2Vk
+https://t.me/+4iOoNe8EvMNkY2Vk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
+</div>
+
+## tasiyanc — post 11486
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨وسط بزن‌بزن ایران و بحرین، یه خبر مهم هم به اطلاعتون برسونم!
+
+اگه از امشب تا ۷ روز آینده برای بچه‌دار شدن اقدام کنید، احتمالاً بچه‌تون سال آینده دقیقاً ۰۶/۰۶/۰۶ به دنیا میاد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11484
+
+<div align="center"><video src="files/post_11484_tasiyanc_11484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11484_tasiyanc_11484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
+
+طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11483
+
+<div align="center"><video src="files/post_11483_tasiyanc_11483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11483_tasiyanc_11483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مدیرعامل دیوار: بابت انتشار آگهی‌های کفش و ماساژ به یک سال حبس محکوم شدم!
+
+آرمندهی می‌گوید بسیاری از این آگهی‌ها مربوط به خدمات جنسی بوده، اما امکان تشخیص نیت واقعی آگهی‌دهندگان را نداشته و با این حال، به اتهام فراهم‌کردن مکان فساد به یک سال حبس محکوم شده است.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11482
 
@@ -220,60 +273,6 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 The Diary of H.M. the Shah of Persia
 نویسنده: ناصرالدین‌شاه قاجار
 مترجم: جیمز ویلیام ردهاوس
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11466
-
-<div align="center"><video src="files/post_11466_tasiyanc_11466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11466_tasiyanc_11466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از یه خانم روسی🇷🇺 که شوهرش ایرانیه ، از خصوصیات مردای ایرانی میگه؛ از تفاوت فرهنگ و رفتار مردای ایرانی گرفته تا چیزایی که بعد از ازدواج با یه ایرانی تجربه کرده
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11465
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g28 https://t.me/+gYDRnUG5OX03MWJk…
-</div>
-
-## tasiyanc — post 11464
-
-<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰g28
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11463
-
-<div align="center"><video src="files/post_11463_tasiyanc_11463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11463_tasiyanc_11463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو گیم‌پلی GTA VI نیست، متروی تهرانه که وایرال شده!
-
-امروز توی مترو تهران دو نفر با هم درگیر می‌شن که یهو یکی‌شون چاقو درمیاره و ماجرا از یه دعوای معمولی به یه صحنه عجیب و پرتنش تبدیل می‌شه.
-تهران هر روز یه DLC جدید می‌ده بیرون
 
 
 💋 @Tasiyanc

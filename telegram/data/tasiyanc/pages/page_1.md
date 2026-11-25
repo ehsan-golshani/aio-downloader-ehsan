@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/04 18:15
+📅 آخرین بروزرسانی: 1405/09/05 03:01
 
 ---
+
+## tasiyanc — post 11548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+Qej4hrwIZsU0NmQ0 https://t.me/+Qej4hrwIZsU0NmQ0 🎯نمونه سود…
+</div>
+
+## tasiyanc — post 11547
+
+<div align="center"><img src="files/post_11547_tasiyanc_11547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+Qej4hrwIZsU0NmQ0
+https://t.me/+Qej4hrwIZsU0NmQ0
+
+🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰4
+</div>
+
+## tasiyanc — post 11546
+
+<div align="center"><video src="files/post_11546_tasiyanc_11546.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11546_tasiyanc_11546.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نسـخه ایرانــی شکیــــرا هــم آنلـاک شـد !
+
+شکـیرا خبر نداره تو ایــران یه بـدل داره که با اجـــراهای تولــد داره حسابـی وایـرال میشه ؛
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11545
+
+<div align="center"><img src="files/post_11545_tasiyanc_11545.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵دیـشب بانو « جـنیـفر بـارتو » نماینده پورتوریکو، به عنوان زیـباتـرین زن جــهان در سال ۲۰۲۶ انتخـاب شد و تاج ملکه زیبایی رو گذاشت روی سرش؛ رقابتی که نماینده کشورهای مختلف توش حضور داشتن و در نهایت این عنوان به پورتوریکو رسید.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11544
 
@@ -83,8 +131,6 @@ https://t.me/+Kj9X7ZcvJe02NTVk
 </div>
 
 ## tasiyanc — post 11538
-
-<div align="center"><a href="files/post_11538_derbybet.apk" target="_blank" class="file-link" style="color:#2ea4d9;">📎 derbybet.apk</a></div>
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 📲 اپلیکشن رسمی سایت دربی بت
@@ -229,92 +275,5 @@ https://t.me/+Qej4hrwIZsU0NmQ0
 ➕15% فری بت هدیه برای شارژ بانکی 
 ➕15%  شارژ اضافی برای شارژ ارزی 
 ➕100…
-</div>
-
-## tasiyanc — post 11528
-
-<div align="center"><video src="files/post_11528_tasiyanc_11528.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11528_tasiyanc_11528.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت
-💖
-
-
-🎖️معتبرترین سایت روسی فعال در ایران
-🎖️
-
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-
-💎هدایا سایت جهانی ژتون بت:
-
-➕واریز اول 100% بونوس
-😍
-
-➕15% فری بت هدیه برای شارژ بانکی
-
-➕15%  شارژ اضافی برای شارژ ارزی
-
-➕100 اسپین رایگان هفتگی
-
-➕20% برگشت باخت روزانه برای بازی های کازینویی
-
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-
-🤩دنیای هدایا بی نظیر در ژتون بت
-
-
-🖥️ادرس ورود به سایت:🅰g3
-https://jhet0n.online/fa/?btag=2786270
-
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-
-💖کانال اطلاع رسانی:
-👇
-
-🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 11526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این مردک شُل‌مغز رو احتمالاً خیلی‌هاتون دیدید؛ همونی که به «پدر تشریفات خودآزاری ایران» معروف شده!
-
-کاری که این آقا می‌کنه و دکانی که برای خودش باز کرده، عملاً هیچ فرقی با پکیج‌فروش‌های اینستاگرامی نداره
-فقط به‌جای فروختن دوره و پکیج، با ادا و اطوار و نمایش‌های عجیب‌وغریب دنبال جلب توجهه!
-کافیه ببینید برای خوردن یه نارنگی چه نمایش مسخره‌ای راه می‌اندازه و چه گند و کثافتی به میز می‌زنه!
-اما بخش خنده‌دار ماجرا اینجاست که یه عده شُل‌مغز تر از خودش هم متعصبانه ازش دفاع می‌کنن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11525
-
-<div align="center"><img src="files/post_11525_tasiyanc_11525.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر تتر رسیده به 285000 تومان 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11524
-
-<div align="center"><video src="files/post_11524_tasiyanc_11524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11524_tasiyanc_11524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال‌شده از «ایونت مد و هنر » در نیاوران تهران
-
-جایی که ترکیب مد، هنر و استایل‌های متفاوت حسابی مورد توجه قرار گرفته.
-💋 @Tasiyanc
 </div>
 
