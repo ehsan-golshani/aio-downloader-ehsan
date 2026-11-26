@@ -1,8 +1,125 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/05 09:06
+📅 آخرین بروزرسانی: 1405/09/05 19:25
 
 ---
+
+## tasiyanc — post 11496
+
+<div align="center"><img src="files/post_11496_tasiyanc_11496.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول 100% بونوس😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15%  شارژ اضافی برای شارژ ارزی
+➕100 اسپین رایگان هفتگی
+➕20% برگشت باخت روزانه برای بازی های کازینویی
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🤩دنیای هدایا بی نظیر در ژتون بت
+
+🖥️ادرس ورود به سایت:🅰g1
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 11495
+
+<div align="center"><video src="files/post_11495_tasiyanc_11495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11495_tasiyanc_11495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه از واقعی‌سازی‌های راکستار!
+
+​یه گیمر آمریکایی وسط بازی GTA 6 سرش رو از مانیتور می‌گیره بالا و می‌بینه جیسون دقیقاً توی بالکن خونه‌ش وایساده بود!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11494
+
+<div align="center"><video src="files/post_11494_tasiyanc_11494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11494_tasiyanc_11494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دلهره‌آور از سونامی کامچاتکا پس از زمین‌لرزه ۸.۸ ریشتری
+
+​در پی زلزله شدید ۸.۸ ریشتری در شبه‌جزیره کامچاتکا، مرد روسی 🇷🇺 به همراه سگش روی تپه‌ای نزدیک ساحل ایستاد و لحظه رسیدن سونامی را ثبت کرد؛ صحنه‌ای که تضاد میان آرامش تماشاگران و قدرت سهمگین دریا را برجسته می‌کند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11493
+
+<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
+
+این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11491
+
+<div align="center"><img src="files/post_11491_tasiyanc_11491.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r1
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11490
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨ویدیو وایرال شده از تعقیب‌وگریز عجیب و وحشتناک چند نفر از جوان‌های اسالم در شمال، که به‌خاطر ریختن زباله توی خیابون دنبال یه پژو ۲۰۶ افتادن که طرف با زن بچه‌اس و رعب وحشت شدیدی راه انداختن!
+
+ماجرا جوری پیش رفته که اگه راننده
+۲۰۶ ماشین رو نگه می‌داشت، احتمالاً با اتفاق بسیار بدی روبه‌رو می‌شد در نهایتشم نزدیک بود ماشینو چپ کنه !
++مطمئناً کسی که زباله تو خیابون می‌ریزه کار اشتباهی کرده، اما این دلیل نمی‌شه یه عده اراذل و اوباش این‌طوری دنبال یه خانواده راه بیفتن و جونشون رو به خطر بندازن!
+امیدوارم این ماجرا پیگیری شده باشه و با این افراد برخورد بشه؛ وگرنه کلاً شمال رفتن رو کنسل کنید!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11489
 
@@ -160,106 +277,5 @@ https://t.me/+yuNWNQ9zSYFhMWJk
 💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
 
 🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11475
-
-<div align="center"><img src="files/post_11475_tasiyanc_11475.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰29
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11474
-
-<div align="center"><img src="files/post_11474_tasiyanc_11474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پایان دوران بازیگری در صنعت پ*ورن برای یکی دیگر از معروف‌ترین چهره‌ی ژاپنی!
-
-بانو ری لیل بلک (Rae Lil Black)، بازیگر فیلم‌های پ*ورن که ۷ سال در این صنعت فعالیت داشت، از مسلمان‌شدن خودش خبر داده و نام «نورای استقلال» رو انتخاب کرده!
-اون می‌گه آشنایی با قرآن و شرکت در یک سمینار سه‌ساعته باعث شد تصمیم بگیره مسیر زندگیش رو تغییر بده.
-نکته جالب اینکه این تصمیم براش بدون هزینه نبوده؛ صدها هزار نفر از فالوئرهاش رو از دست داده، اما می‌گه حاضر نیست به خاطر حفظ مخاطب‌هاش از تصمیمش برگرده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11473
-
-<div align="center"><video src="files/post_11473_tasiyanc_11473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11473_tasiyanc_11473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ هشدار اسپویل GTA 6
-
-
-اسپید «یوتوبر معرف» بعد از 56 ساعت بازی کردن، بالاخره GTA 6 رو به پایان رسوند؛
-
-لوسیا و جیسون توسط پلیس کشته می‌شن و اسپید هم بعد از دیدن پایان تلخ داستان، اشکش درمیاد!
-
-
-🔵 اگه قصد داری GTA 6 رو بازی کنی، مراقب باش؛ با باز کردن این ویدیو و کپشن ممکنه بخش مهمی از داستان و پایان بازی برات لو بره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11471
-
-<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11470
-
-<div align="center"><img src="files/post_11470_tasiyanc_11470.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-هم اکنون حرکت هم‌زمان ۳ نفتکش ایران به سمت محاصره دریایی آمریکا !!
-صداسیما : درصورت حمله به کشتی های نفتی ایران تمامی تاسیسات کشورهای عربی رو ایران مورد اصابت قرار خواهد داد
-❌میدل ایست خبر خودشو اصلاح کرد و گفت این نفتکش ها همگی ایستادن و درحال حرکت نیستن!
-گزارشات راجب حرکت دو نفتکش ایرانی صحيح نیست، دو شناور مذکور با نام آیناز و شناور با کد ١٢۴۲۵ به ترتیب یدک‌کش و قایق تفریحی هستن.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11469
-
-<div align="center"><img src="files/post_11469_tasiyanc_11469.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شات های جدید بانو سیدنی سویینی با برند لباس زیرش 🔥
-
-💋 @Tasiyanc
 </div>
 

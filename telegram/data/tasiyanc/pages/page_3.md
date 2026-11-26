@@ -1,8 +1,98 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/05 09:06
+📅 آخرین بروزرسانی: 1405/09/05 19:25
 
 ---
+
+## tasiyanc — post 11516
+
+<div align="center"><video src="files/post_11516_tasiyanc_11516.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11516_tasiyanc_11516.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵برای اولین‌بار، فیلمی منتسب به جلسه انتخاب «سیدمجتبی خامنه‌ای» به‌عنوان رهبر جمهوری اسلامی منتشر شده است.
+گفته می‌شود این جلسه ۱۷ اسفند ۱۴۰۴، در میانه جنگ و به‌صورت مخفیانه برگزار شده؛ چراکه اسرائیل و آمریکا به‌دنبال شناسایی محل برگزاری جلسه بودند.
+با این حال، انتشار این ویدئو با تردیدهایی هم همراه شده است؛ برخی معتقدند تصاویر ممکن است بعدها و حتی به‌تازگی ضبط شده باشند و صرفاً تاریخ اسفند ۱۴۰۴ به آن‌ها اضافه شده باشد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11515
+
+<div align="center"><video src="files/post_11515_tasiyanc_11515.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11515_tasiyanc_11515.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵خانم دکتر: پیرمرد ۹۰ ساله با مصرف همزمان ۴ قرص سیلدنافیل (ویاگرا)، دچار سکته قلبی و مغزی شد!
+
+ظاهراً پیرمرد تصمیم گرفته بود دوباره به دوران جوونی برگرده، اما این بار کار به بیمارستان و سکته کشیده شد!
+
+خانم دکتر عزیز، بنظرم فرار کن 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11514
+
+<div align="center"><video src="files/post_11514_tasiyanc_11514.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11514_tasiyanc_11514.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شوک به دنیای طنز
+
+غلامرضا نیکخواه، بازیگر باسابقه سینما و تلویزیون ایران، امروز دوشنبه ۲ آذر ۱۴۰۵ در ۷۸ سالگی درگذشت.
+بر اساس گزارش‌های منتشرشده او امروز در خاکسپاری برادرش دچار سکته قلبی شده و جان باخته است
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11513
+
+<div align="center"><img src="files/post_11513_tasiyanc_11513.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⛔️ هشدار جدی؛ جان‌تان را با مشروبات تقلبی به خطر نیندازید!
+
+​در ۴۸ ساعت گذشته، فاجعه‌ای تلخ در سراسر کشور رخ داده:
+▪️ بیش از ۱۵ نفر فوتی
+▪️ بیش از ۵۰۰ نفر مسمومیت شدید، نابینایی و مرگ مغزی
+​
+لحظاتی پیش ۸ ساقی که این مشروبات مرگبار را پخش می‌کردند دستگیر شدند، اما هنوز ممکن است بخشی از این محموله‌ها در بازار باشد.
+لطفاً این پیام را برای دوستان و آشنایان خود بفرستید تا جلوی قربانی شدن افراد بیشتر گرفته شود.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g2 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11511
+
+<div align="center"><img src="files/post_11511_tasiyanc_11511.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g2
+https://t.me/+Kj9X7ZcvJe02NTVk
+https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11510
+
+<div align="center"><video src="files/post_11510_tasiyanc_11510.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11510_tasiyanc_11510.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو وایرال‌شده از یک مرد پاکستانی که تصمیم گرفته در یک شب با ۴ نفر ازدواج کنه؛ اما نکته عجیب ماجرا اینجاست که هر ۴ همسرش مرد هستن و شومبول دارن!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11509
 
@@ -163,122 +253,5 @@ https://t.me/+gagcxCKK4QQzNGI8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
-</div>
-
-## tasiyanc — post 11496
-
-<div align="center"><img src="files/post_11496_tasiyanc_11496.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖
-
-🎖️معتبرترین سایت روسی فعال در ایران🎖️
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-💎هدایا سایت جهانی ژتون بت:
-➕واریز اول 100% بونوس😍
-➕15% فری بت هدیه برای شارژ بانکی
-➕15%  شارژ اضافی برای شارژ ارزی
-➕100 اسپین رایگان هفتگی
-➕20% برگشت باخت روزانه برای بازی های کازینویی
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-🤩دنیای هدایا بی نظیر در ژتون بت
-
-🖥️ادرس ورود به سایت:🅰g1
-https://jhet0n.online/fa/?btag=2786270
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-💖کانال اطلاع رسانی:👇
-🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 11495
-
-<div align="center"><video src="files/post_11495_tasiyanc_11495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11495_tasiyanc_11495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه از واقعی‌سازی‌های راکستار!
-
-​یه گیمر آمریکایی وسط بازی GTA 6 سرش رو از مانیتور می‌گیره بالا و می‌بینه جیسون دقیقاً توی بالکن خونه‌ش وایساده بود!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11494
-
-<div align="center"><video src="files/post_11494_tasiyanc_11494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11494_tasiyanc_11494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵فیلم دلهره‌آور از سونامی کامچاتکا پس از زمین‌لرزه ۸.۸ ریشتری
-
-​در پی زلزله شدید ۸.۸ ریشتری در شبه‌جزیره کامچاتکا، مرد روسی 🇷🇺 به همراه سگش روی تپه‌ای نزدیک ساحل ایستاد و لحظه رسیدن سونامی را ثبت کرد؛ صحنه‌ای که تضاد میان آرامش تماشاگران و قدرت سهمگین دریا را برجسته می‌کند.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11493
-
-<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
-
-این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11491
-
-<div align="center"><img src="files/post_11491_tasiyanc_11491.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r1
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11490
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨ویدیو وایرال شده از تعقیب‌وگریز عجیب و وحشتناک چند نفر از جوان‌های اسالم در شمال، که به‌خاطر ریختن زباله توی خیابون دنبال یه پژو ۲۰۶ افتادن که طرف با زن بچه‌اس و رعب وحشت شدیدی راه انداختن!
-
-ماجرا جوری پیش رفته که اگه راننده
-۲۰۶ ماشین رو نگه می‌داشت، احتمالاً با اتفاق بسیار بدی روبه‌رو می‌شد در نهایتشم نزدیک بود ماشینو چپ کنه !
-+مطمئناً کسی که زباله تو خیابون می‌ریزه کار اشتباهی کرده، اما این دلیل نمی‌شه یه عده اراذل و اوباش این‌طوری دنبال یه خانواده راه بیفتن و جونشون رو به خطر بندازن!
-امیدوارم این ماجرا پیگیری شده باشه و با این افراد برخورد بشه؛ وگرنه کلاً شمال رفتن رو کنسل کنید!
-💋 @Tasiyanc
 </div>
 
