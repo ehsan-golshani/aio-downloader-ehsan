@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 59
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52317
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52316
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: work.mishutkin.click
+Port: 443
+Secret: ee61947a32dca6f584a2772676b4b46924776f726b2e6d69736875746b696e2e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52315
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52314
 
@@ -154,33 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: redflag.yazaebalsyadelatproxy.vip
 Port: 443
 Secret: ee9267d78681726d5ff1bf826b750ba4ba726564666c61672e79617a616562616c73796164656c617470726f78792e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52297
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zozo42.tidelark.cc
-Port: 443
-Secret: eea02849a55daccdc7f7a05691b7ef7cd17a6f7a6f34322e746964656c61726b2e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: kabab.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52295
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: redflag.yazaebalsyadelatproxy.vip
-Port: 443
-Secret: eeae5ab45be1bccbba85eec21085b2fd20726564666c61672e79617a616562616c73796164656c617470726f78792e766970
 @ProxyMTProto
 </div>
 

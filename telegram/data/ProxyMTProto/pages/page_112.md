@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 112
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 51255
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: thebirds.world
+Port: 443
+Secret: bace78f2e29ada4137186fa8b7d14f1d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51254
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51253
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: s02.neo-trading.org
+Port: 443
+Secret: ee6ec9f7e082baf2397b450727ce78447e6f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51252
 
@@ -154,33 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: ykima.davay.click
 Port: 443
 Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51235
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51234
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: topproxt.asia
-Port: 443
-Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51233
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

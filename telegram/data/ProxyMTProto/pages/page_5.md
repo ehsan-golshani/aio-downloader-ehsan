@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 53407
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53406
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: gram.blog
+Port: 853
+Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4515
+Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53404
 
@@ -158,32 +185,5 @@ Secret: reserve your spot ↓
 
 👆 This is where your proxy could sit — a dedicated post at the time you pick.
 🎁 First slot 50% off.
-</div>
-
-## ProxyMTProto — post 53386
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eeee677bf5d2356b3744e1208cc35d70887777772e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53385
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53384
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
 </div>
 

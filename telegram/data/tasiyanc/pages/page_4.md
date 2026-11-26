@@ -1,8 +1,27 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/05 03:01
+📅 آخرین بروزرسانی: 1405/09/05 09:06
 
 ---
+
+## tasiyanc — post 11489
+
+<div align="center"><video src="files/post_11489_tasiyanc_11489.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11489_tasiyanc_11489.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵صحبت‌های جالب و وایرال‌شده‌ی یه دخترخانم گل‌فروش درباره مشتری‌های پسرش تو روز دختر که حسابی برا خرید گل هزینه کردن و برا پارتنرشون جمله عاشقانه گفتن، و مقایسه‌ش با روز پسر که ظاهراً حتی یه شاخه گل هم نصیب پسرا نشده و دخترا گفتن پسرا لیاقت ندارن!
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰30
+</div>
 
 ## tasiyanc — post 11487
 
@@ -240,40 +259,6 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵شات های جدید بانو سیدنی سویینی با برند لباس زیرش 🔥
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11468
-
-<div align="center"><video src="files/post_11468_tasiyanc_11468.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11468_tasiyanc_11468.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از خیابون فرشته تهران که ماشین‌های کاستوم‌شده به سبک «GTA» رو کنار هم جمع کردن و یه دورهمی با حال‌وهوای گیم و ماشین راه انداختن؛ انگار لس‌سانتوس اومده وسط تهران.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11467
-
-<div align="center"><img src="files/post_11467_tasiyanc_11467.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشماتون بریزه ایده تأسیس «اسرائیل 🇮🇱» رو ناصرالدین‌شاه 👑 داده!
-
-ناصرالدین‌شاه توی سفرش به فرانسه درسال 1873 روز 12 ژوئیه میلادی با چند نفر از خانواده روتشلید که خیلی ثروتمند بودن دیدار می‌کنه.
-روتشیلد شروع می‌کنه از یهودی‌های داخل ایران حمایت کردن.
-ناصرالدین‌شاه به تمسخر می‌گه:
-«خب که هزار کرور پول داری، پنجاه کرور بده و یه کشور بخر و هر چی یهودی توی دنیا هست جمع کن و یه کشور تشکیل بده.»
-اعضای روتشلید این حرفای ناصرالدین‌شاه رو جدی می‌گیره و چند سال بعد نخستین کنگره‌ی صهیونیستی ( اسم کنگره همین می‌باشد) تشکیل میشه که بعد ها منجر به تشکیل اسرائیل در سرزمین های فلسطین شد .
-منبع :
-The Diary of H.M. the Shah of Persia
-نویسنده: ناصرالدین‌شاه قاجار
-مترجم: جیمز ویلیام ردهاوس
-
 
 💋 @Tasiyanc
 </div>

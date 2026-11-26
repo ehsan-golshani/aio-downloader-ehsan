@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 53066
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: max.fastprx.top
+Port: 443
+Secret: eecfa453767a4b15622b61914eced5705164726976652e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53065
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: topproxt.asia
+Port: 443
+Secret: eebbb00c5d6d8a742b1a762499eb7d4912617669746f2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53063
 
@@ -154,33 +181,6 @@ Secret: ee54701e1686de96a44721501a7bee9e4c6c796e657474652e6d79726b612e6469676974
 Server: Unknown
 Port: 443
 Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53046
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: love.piglio.online/c1c7b0001f2c
-Port: 443
-Secret: dd8fbaa0a0124101a02dde083cd3613e09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53045
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 65.21.227.250
-Port: 443
-Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53044
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: dd0f2ccdc8415ed484a3bf9da06a72d172
 @ProxyMTProto
 </div>
 

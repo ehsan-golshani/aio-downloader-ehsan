@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 43
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52637
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: pozo12.saltfern.xyz
+Port: 443
+Secret: ee14697011e0c73f03e95d7b6919a2252b706f7a6f31322e73616c746665726e2e78797a
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52636
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 91.107.171.35
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52635
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: connect.mtproxy.me
+Port: 443
+Secret: dd616cf892574b078aab3f73e63b8b7df4
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52634
 
@@ -154,33 +181,6 @@ Secret: eec8017bc0cd6ea4b51ca268fb7b3aba6237372e6d69736875746b696e2e636c69636b
 Server: amoo.bingi.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52617
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mari35.mosswren.vip
-Port: 443
-Secret: ee899032aa75159cc1d735f15e7a0e3a6e6d61726933352e6d6f73737772656e2e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52616
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: pofak.mikhay.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52615
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: redflag.yazaebalsyadelatproxy.vip
-Port: 443
-Secret: ee214011ba04108a7b1836df3a5e918b3b726564666c61672e79617a616562616c73796164656c617470726f78792e766970
 @ProxyMTProto
 </div>
 

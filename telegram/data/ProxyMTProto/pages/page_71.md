@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 71
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52077
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: top.proxynet.tech
+Port: 443
+Secret: ee59d1ef95ab03cfeaebb18b0a529ad5e6746f702e70726f78796e65742e74656368
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52076
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir.gnutella2.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52075
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: akenai.tg
+Port: 853
+Secret: ee54ce330e4690cc297d2b031ff3f288b06d742e616b656e61692e636c69636b
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52074
 
@@ -154,33 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: gram.blog
 Port: 853
 Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52057
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52056
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: cdnbarrel.org
-Port: 443
-Secret: ddd53127c4392815612a47803b9620ee40
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52055
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir-ir.gnutella2.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
 @ProxyMTProto
 </div>
 

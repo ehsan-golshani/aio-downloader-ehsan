@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 53489
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: sage.velvetwindow.cc
+Port: 443
+Secret: eed09fb30e9ba945e3eb272875413c8c94736167652e76656c76657477696e646f772e6363
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53488
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: shahi.shambelile.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53487
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: logapo72.kelpmoor.xyz
+Port: 443
+Secret: ee2ad112aa3c927eb2ebec44fd1733cc496f7a6f6e2e7275
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53485
 
@@ -154,33 +181,6 @@ Secret: ee695c0e4188358e4ebb6d7a489185f6a96d742e6772616d2e796f75
 Server: Unknown
 Port: 4455
 Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53468
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dev.vetka.rest
-Port: 443
-Secret: eecdd6a7c79fc13f435c20a0874f0658da6465762e7665746b612e72657374
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53467
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53466
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4515
-Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e636f6d
 @ProxyMTProto
 </div>
 

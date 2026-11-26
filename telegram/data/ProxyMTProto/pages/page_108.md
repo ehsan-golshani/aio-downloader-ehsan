@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 108
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 51336
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ykima.davay.click
+Port: 443
+Secret: ee06dfdbdf271bab18c6b606484c237384796b696d612e64617661792e636c69636b
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51335
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 4455
+Secret: dd104462821249bd7ac519130220c25d09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51334
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: freetg.mishutkin.click
+Port: 443
+Secret: 87e5ee876fc0254eed830e8029a81964
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51333
 
@@ -154,33 +181,6 @@ Secret: eeNEgYdJvXrFGRMCIMJdCQ
 Server: Unknown
 Port: 443
 Secret: ee364a7bd5b928139fbc6b2b458e9fef9d686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51316
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: gov.vomytdaug.info.
-Port: 443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51315
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: tpr.webvirt.cloud
-Port: 443
-Secret: 2cb152167b45c9a010c8109fef2d8fd6
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51314
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: e3fand.fesgheli.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

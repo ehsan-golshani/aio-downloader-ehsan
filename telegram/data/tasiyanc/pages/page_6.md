@@ -1,8 +1,54 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/05 03:01
+📅 آخرین بروزرسانی: 1405/09/05 09:06
 
 ---
+
+## tasiyanc — post 11448
+
+<div align="center"><img src="files/post_11448_tasiyanc_11448.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵حادثه ی تلخی دیگر ، قتل هولناک دختر ۲۳ ساله در گیلان !
+
+صدف حق‌بین ۲۳ ساله شب گذشته در جشن تولدش هدف حمله دوست‌پسر سابقش قرار گرفت. گفته می‌شود پسر مسلح وارد مراسم شده، مهمانان را در اتاق حبس کرده و صدف را به زور به طبقه بالا برده است.
+این روایت حاکی از آن است که صدف پس از ضرب‌وشتم شدید و شکستن دست‌وپا و فک و بینی، با شلیک گلوله به قتل رسیده؛ گفته می‌شود دلیل این جنایت، فقط بخاطر مخالفت او با ازدواج بوده است.
+﻿
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11447
+
+<div align="center"><video src="files/post_11447_tasiyanc_11447.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11447_tasiyanc_11447.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 آپدیت جدید فیلترشکن سایفون؛ ارزش امتحان کردن داره!
+
+نسخه جدید سایفون منتشر شده و طبق تست‌هایی که انجام دادم، روی تمام اپراتورها و سرور کشورهای مختلف از جمله 
+🇩🇪 ، 
+🇸🇪 ، 
+🇺🇸 ، 
+🇮🇹 ، 
+🇳🇱 به‌ خوبی وصل می‌شه حتمااااا پیشنهاد میشه دانلود کنید .
+
+مشکل اتصال جمینای ، هوش مصنوعی هم رفع میشه با وصل شدن به کشور های اروپا و امریکا حتما تست کنید نسخه جدید رو و VPN های مخرب و ایرانی رو از گوشیتون حذف کنید
+
+▶️Android Play Store 
+🕹
+
+
+▶️iOS App Store 📱
+
+
+▶️Official Site Psiphon Team 
+📱
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11446
 
@@ -300,39 +346,5 @@ http://my.sanjesh.org/
 برنده 2.000.000 میلیون شوید ✔
 
 ✍️ ورود به کانال اطلاع رسانی وی پاری ✈️
-</div>
-
-## tasiyanc — post 11428
-
-<div align="center"><img src="files/post_11428_tasiyanc_11428.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیدارهای فوق حسااااس عراق🇾🇪 و ایران 🇮🇷 رو با آپشن های تخصصی در wepari پیشبینی کنید! 🔥
-
-🆕 واریز اول و دوم 2 برابر شارژ شوید🎁
-
-🔥شنبه بونوس 100%
-🔥 دوشنبه بونوس 50%
-
-🤖دانلود اپلیکیشن بدون فیلتر 🚀
-
-🎁 کد هدیه 100 دلاری: Top100
-
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-🌐 آدرس ورود به سایت پیش بینی وی پاری
-
-بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 💸 🅰26
-</div>
-
-## tasiyanc — post 11427
-
-<div align="center"><img src="files/post_11427_tasiyanc_11427.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کیمیا حسینی، مدل ۲۴ ساله ایرانی، عنوان «زیباترین دختر ایران در سال ۲۰۲۶» رو به خودش اختصاص داد!
-
-
-💋@Tasiyanc
 </div>
 

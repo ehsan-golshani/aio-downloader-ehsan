@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 37
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52757
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: proxy.nizya.club
+Port: 443
+Secret: ee05cf8e164f926f4a664b2404d276a1d670726f78792e6e697a79612e636c7562
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52756
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52755
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: fast.proxynet.tech
+Port: 443
+Secret: ee08787a2b7fd3220d9d35679aab082cab666173742e70726f78796e65742e74656368
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52754
 
@@ -154,33 +181,6 @@ Secret: dd104462821249bd7ac519130220c25d09
 Server: lotoka28.copperwren.click
 Port: 443
 Secret: eefd9a9e2ac2851ddc327fe5971e25a87d6c6f746f6b6132382e636f707065727772656e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52737
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mofid.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52736
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: visu82.tidalbirch.sbs
-Port: 443
-Secret: eeb8e5365580b9ad3c2ee355dfcbc245e57669737538322e746964616c62697263682e736273
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52735
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: 77.mishutkin.click
-Port: 443
-Secret: eec8017bc0cd6ea4b51ca268fb7b3aba6237372e6d69736875746b696e2e636c69636b
 @ProxyMTProto
 </div>
 

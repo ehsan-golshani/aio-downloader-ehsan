@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/09/05 03:01
+📅 آخرین بروزرسانی: 1405/09/05 09:06
 
 ---
+
+## tasiyanc — post 11384
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11383
+
+<div align="center"><img src="files/post_11383_tasiyanc_11383.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰23
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11382
 
@@ -265,36 +292,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 پشتیبان فارسی سایت ریتزوبت 👇🅰22
 ⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11364
-
-<div align="center"><video src="files/post_11364_tasiyanc_11364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11364_tasiyanc_11364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کارشناس مامایی بوی طبیعی واژن قرار نیست شبیه شکلات و نوتلا باشه!
-
-به گفته یک کارشناس مامایی، بوی طبیعی واژن معمولاً ملایم و کمی ترش‌ماننده
-اما بوی تند و شبیه ماهی، مخصوصاً اگر با علائم دیگه همراه باشه، می‌تونه نشونه عفونت باشه و نیاز به بررسی پزشکی داشته باشه.
-استفاده از عطرها و اسپری‌های مخصوص ناحیه تناسلی هم ممکنه باعث تحریک و برهم خوردن تعادل طبیعی این ناحیه بشه.
-قرار نیست بدن‌تون همیشه بوی عطر بده؛ سلامت مهم‌تر از خوشبو بودنه!
-
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11363
-
-<div align="center"><video src="files/post_11363_tasiyanc_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11363_tasiyanc_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه دختر خانم آنلاین‌شاپ لباس زنونه راه انداخته، ولی با یه مشکل عجیب روبه‌رو شده!
-
-میگه هرچی سیبیل ریختن فالوم کردن، هنوز حتی یه دختر هم فالوم نکرده! 😂
-
-💋 @Tasiyanc
 </div>
 

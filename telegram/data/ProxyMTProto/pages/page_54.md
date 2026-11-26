@@ -1,8 +1,34 @@
 # آرشیو کانال ProxyMTProto - صفحه 54
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52417
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: toleka79.mosswren.vip
+Port: 443
+Secret: ee6ce7aa9636179a5f67366aaab4702a26746f6c656b6137392e6d6f73737772656e2e766970
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52416
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 194.120.230.120
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52415
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🌐 Have a Telegram Web Proxy and want to share it? Submit via @SProxyRobot and get featured on @ProxyMTProto 🚀
+
+🌐 Есть Telegram Web Proxy? Добавьте его через @SProxyRobot и разместите в @ProxyMTProto 🚀
+</div>
 
 ## ProxyMTProto — post 52414
 
@@ -154,33 +180,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: fast.mishutkin.click
 Port: 443
 Secret: eef767ebee5708dadc985d58ad6e04560664726976652e676f6f676c652e636f6d
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52397
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: usb.neo-duo.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52396
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: rf.mishutkin.click
-Port: 443
-Secret: ee5a994c9e79b5e3ff7ec78e7d7e77eb0b72662e6d69736875746b696e2e636c69636b
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52395
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nfc.neo-duo.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

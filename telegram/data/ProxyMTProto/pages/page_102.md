@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 102
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 51456
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: server.syscloudio.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51455
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: relay.surfvpn.app
+Port: 443
+Secret: eedf44a4347c1eb8938c7e63340bd1ca4972656c61792e7375726676706e2e617070
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 51454
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir.macauley.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 51453
 
@@ -154,33 +181,6 @@ Secret: EERighJJvXrFGRMCIMjdCQ
 Server: media11.happtg.org
 Port: 443
 Secret: eeebd1e4235d2f40f68b3c3610b128157a686f66662e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51436
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir.engematica.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51435
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: nuxt.cdnwave.org
-Port: 443
-Secret: ddc9537655cdb0655d3ea08cc240c8f641
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 51434
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: darya.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

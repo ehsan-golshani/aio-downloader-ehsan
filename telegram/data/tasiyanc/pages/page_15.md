@@ -1,8 +1,33 @@
 # آرشیو کانال tasiyanc - صفحه 15
 
-📅 آخرین بروزرسانی: 1405/09/05 03:01
+📅 آخرین بروزرسانی: 1405/09/05 09:06
 
 ---
+
+## tasiyanc — post 11197
+
+<div align="center"><video src="files/post_11197_tasiyanc_11197.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11197_tasiyanc_11197.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اگه قصد دارید به‌زودی بچه‌دار بشید، پیشنهاد می‌کنم این ویدیو رو از دست ندید!
+
+از پوشک و شیرخشک گرفته تا لباس، دارو و هزار خرج ریز و درشت دیگه؛ نگهداری از یک نوزاد هزینه‌هایی داره که بهتره قبل از بچه‌دار شدن ازشون خبر داشته باشید!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11196
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
 
 ## tasiyanc — post 11195
 
@@ -297,29 +322,5 @@
 - ریزش 1.4 تریلیون دلاری در کمتر از 30 دقیقه
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 11175
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 تحولات مهم سیاسی اسرائیل 🇮🇱 ؛ کنار رفتن نتانیاهو از قدرت!
-
-رسانه‌های اسرائیلی : گادی آیزنکوت با حمایت ۶۷ کرسی، در برابر ۴۶ کرسی حامیان نتانیاهو، مأمور تشکیل کابینه جدید اسرائیل خواهد شد
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11174
-
-<div align="center"><video src="files/post_11174_tasiyanc_11174.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11174_tasiyanc_11174.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این همون چیزیه که باید به‌جای مهریه‌های نجومی ترند بشه!
-یک عروس خوش‌قلب برای مهریه‌اش نه سکه‌های میلیاردی خواسته، نه ماشین و خونه؛ فقط ۸۸ شاخه گل رز و هزینه تحصیل ۸ کودک بی‌سرپرست تا رسیدن به دانشگاه!
-کاش به‌جای مسابقه در سنگین‌تر کردن مهریه، مسابقه در مهربون‌تر بودن ترند بشه.
-
-💋 @Tasiyanc
 </div>
 

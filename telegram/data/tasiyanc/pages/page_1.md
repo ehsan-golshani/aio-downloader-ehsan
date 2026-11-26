@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/05 03:01
+📅 آخرین بروزرسانی: 1405/09/05 09:06
 
 ---
+
+## tasiyanc — post 11550
+
+<div align="center"><video src="files/post_11550_tasiyanc_11550.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11550_tasiyanc_11550.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵زن جـوان که هـوس خـیانـت زده به سرش، برای اولین بار با دوست‌پسرش توی یه خونه قرار گذاشته بود، به محض ورود با شـوهر خودش روبه‌رو میشه
+
+اما چیزی که خیلی آزارم داد، واکنش این جیندا خانم بود؛ به‌جای اینکه بابت خیانت و پنهان‌کاری خودش توضیح بده، طلبکارانه به مرد اعتراض میکنه که چرا با جعل هویت فریبش داده!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11549
+
+<div align="center"><video src="files/post_11549_tasiyanc_11549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11549_tasiyanc_11549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشـم‌ریزون‌ترین اتفاق تاریخ ف‍ـوتبال؛ داور سوری✌️ بازی مست کرده بود! 😂
+
+داور دیدار گل‌گهر و الجزیره، بین دو نیمه تعویض شد و داور چهارم جاش رو گرفت!
+گفته می‌شه ناظر بازی بین دو نیمه متوجه وضعیت غیرعادی داور شده؛ جالب‌تر اینکه مهدی رحمتی، سرمربی گل‌گهر هم اواخر نیمه اول رو به نیمکت تیمش گفته بود: «داور مسته!»
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11548
 
@@ -243,37 +270,5 @@ https://t.me/+Qej4hrwIZsU0NmQ0
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11530
-
-<div align="center"><video src="files/post_11530_tasiyanc_11530.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11530_tasiyanc_11530.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه پسر به شوخی زنگ می‌زنه به مادر دختره که بره «خواستگاری» ولی مادر دختر از همون اول چنان لیست توقعاتش رو می‌ذاره وسط که پسره نمی‌دونه داره خواستگاری می‌کنه یا پیش‌فاکتور خرید عروس می‌گیره!
-
-همین توقعات زیاد تو جامعه ای که اقتصادش داغونه باعث شده پسرا تن به ازدواج ندن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت
-💖 
-🎖️معتبرترین سایت روسی فعال در ایران
-🎖️ 
-⛔شارژ از طریق کارت بانکی،ارز،ووچر 
-⛔تسویه حساب سریع و امن بدون احرازهویت 
-💎هدایا سایت جهانی ژتون بت: 
-➕واریز اول 100% بونوس
-😍 
-➕15% فری بت هدیه برای شارژ بانکی 
-➕15%  شارژ اضافی برای شارژ ارزی 
-➕100…
 </div>
 

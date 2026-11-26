@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 53046
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: love.piglio.online/c1c7b0001f2c
+Port: 443
+Secret: dd8fbaa0a0124101a02dde083cd3613e09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53045
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.227.250
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53044
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd0f2ccdc8415ed484a3bf9da06a72d172
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53043
 
@@ -154,33 +181,6 @@ Secret: ee2c6cbde6f1e8947d8495ea1de476fc0b64726976652e676f6f676c652e636f6d
 Server: pofak.mikhay.co.uk
 Port: 8443
 Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53026
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: ddda1386b107b1d90b21c6c395105ef450
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53025
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: darya.saheledarya.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53024
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: x.shmelproxy.top
-Port: 443
-Secret: eefc2612ff65a557fddf1d1b334395ef237975672d6c696e6b2e7275
 @ProxyMTProto
 </div>
 

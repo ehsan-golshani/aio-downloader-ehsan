@@ -1,8 +1,35 @@
 # آرشیو کانال ProxyMTProto - صفحه 34
 
-📅 آخرین بروزرسانی: 1405/09/05 02:59
+📅 آخرین بروزرسانی: 1405/09/05 09:04
 
 ---
+
+## ProxyMTProto — post 52817
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 65.21.227.250
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52816
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: upyachka.bid
+Port: 443
+Secret: e6e22259be2e49be662189ee3b5ab606
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 52815
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 52814
 
@@ -158,33 +185,6 @@ Secret: ddda1386b107b1d90b21c6c395105ef450
 Server: darya.saheledarya.co.uk.
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52797
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: zolo25.quillmarsh.xyz
-Port: 8443
-Secret: ee24c8636b7e946779a023ee708370719b706574726f766963682e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52796
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dashi.estabonita.co.uk
-Port: 8443
-Secret: EERighJJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 52795
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: lozo34.copperwren.click
-Port: 8443
-Secret: eeae5ab45be1bccbba85eec21085b2fd2064726976652e676f6f676c652e636f6d
 @ProxyMTProto
 </div>
 
