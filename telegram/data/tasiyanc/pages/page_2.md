@@ -1,8 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/09/06 03:49
+📅 آخرین بروزرسانی: 1405/09/06 12:28
 
 ---
+
+## tasiyanc — post 11547
+
+<div align="center"><img src="files/post_11547_tasiyanc_11547.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+
+https://t.me/+Qej4hrwIZsU0NmQ0
+https://t.me/+Qej4hrwIZsU0NmQ0
+
+🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰4
+</div>
+
+## tasiyanc — post 11546
+
+<div align="center"><video src="files/post_11546_tasiyanc_11546.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11546_tasiyanc_11546.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نسـخه ایرانــی شکیــــرا هــم آنلـاک شـد !
+
+شکـیرا خبر نداره تو ایــران یه بـدل داره که با اجـــراهای تولــد داره حسابـی وایـرال میشه ؛
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11545
+
+<div align="center"><img src="files/post_11545_tasiyanc_11545.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵دیـشب بانو « جـنیـفر بـارتو » نماینده پورتوریکو، به عنوان زیـباتـرین زن جــهان در سال ۲۰۲۶ انتخـاب شد و تاج ملکه زیبایی رو گذاشت روی سرش؛ رقابتی که نماینده کشورهای مختلف توش حضور داشتن و در نهایت این عنوان به پورتوریکو رسید.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11544
+
+<div align="center"><video src="files/post_11544_tasiyanc_11544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11544_tasiyanc_11544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این بلاگر خانم با چند حرکت ساده نشون می‌ده چقدر چیزی که تو فضای مجازی می‌بینیم با واقعیت فرق داره؛ از چهره بزک‌شده و فیلترخورده تا ظاهر واقعی.
+
+جالب اینجاست که چهره طبیعی خودش هم هیچ مشکلی نداره، اتفاقاً به‌نظر زنده‌تر و دوست‌داشتنی‌تره؛ ولی اختلاف بین این دو چهره واقعاً زیاده. خلاصه اینستاگرام رو با واقعیت اشتباه نگیرید، خیلی چیزا اون چیزی نیست که بهتون نشون میدن.
+💋﻿ @Tasiyanc
+</div>
+
+## tasiyanc — post 11543
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
 
 ## tasiyanc — post 11542
 
@@ -258,68 +319,5 @@ https://jhet0n.online/fa/?btag=2786270
 👇
 
 🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 11526
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این مردک شُل‌مغز رو احتمالاً خیلی‌هاتون دیدید؛ همونی که به «پدر تشریفات خودآزاری ایران» معروف شده!
-
-کاری که این آقا می‌کنه و دکانی که برای خودش باز کرده، عملاً هیچ فرقی با پکیج‌فروش‌های اینستاگرامی نداره
-فقط به‌جای فروختن دوره و پکیج، با ادا و اطوار و نمایش‌های عجیب‌وغریب دنبال جلب توجهه!
-کافیه ببینید برای خوردن یه نارنگی چه نمایش مسخره‌ای راه می‌اندازه و چه گند و کثافتی به میز می‌زنه!
-اما بخش خنده‌دار ماجرا اینجاست که یه عده شُل‌مغز تر از خودش هم متعصبانه ازش دفاع می‌کنن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11525
-
-<div align="center"><img src="files/post_11525_tasiyanc_11525.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قیمت هر تتر رسیده به 285000 تومان 😐
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11524
-
-<div align="center"><video src="files/post_11524_tasiyanc_11524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11524_tasiyanc_11524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیوی وایرال‌شده از «ایونت مد و هنر » در نیاوران تهران
-
-جایی که ترکیب مد، هنر و استایل‌های متفاوت حسابی مورد توجه قرار گرفته.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11523
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب بصورت رایگان‼️                باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1323دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3 @ARON_TIP…
-</div>
-
-## tasiyanc — post 11522
-
-<div align="center"><img src="files/post_11522_tasiyanc_11522.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب بصورت رایگان‼️
-        
-     
-باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎
-
-💵خودم 500دلار زدم که میشه 1323دلار🔥
-                                 ⬇️👇⬇️
-            🚫فرم VIP رایگان شرطبندی↙️
-
-◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3
-
-@ARON_TIP @ARON_TIP  @ARON_TIP
-            💎💯   100درصد وینه💯💎
 </div>
 

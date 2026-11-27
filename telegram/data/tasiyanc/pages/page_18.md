@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 18
 
-📅 آخرین بروزرسانی: 1405/09/06 03:49
+📅 آخرین بروزرسانی: 1405/09/06 12:28
 
 ---
+
+## tasiyanc — post 11149
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔺 بانس‌های فوق خفن مل‌بت 🔺
+
+🫴 100 درصد پاداش اولین واریز
+😀 100 درصد بانس یکشنبه ها
+🎁 100 درصد بانس چهارشنبه ها
+🔹 هر روز 1 چرخش گردونه 1 یورویی
+😀 3 درصد باز پرداخت نقدی
+😀 بانس شرط رایگان 30 دلاری
+🎩 10 درصد باز پرداخت نقدی کازینو
+🎆 بانس هدیه روز تولد
+💵 و چندین بانس دیگر از جمله بانس خوش‌آمد گویی، بانس شرطبندی طولانی مدت، بانس 1750 یورویی کازینو و...
+
+💰 هنگام ثبت‌نام با وارد کردن کد هدیه Sport100 بانس 100 دلاری رایگان دریافت کنید!
+
+🆕 معرفی سایت و اپلیکیشن مل‌بت
+✅ ورود به سایت مل‌بت (فیلترشکن خاموش)
+</div>
+
+## tasiyanc — post 11148
+
+<div align="center"><video src="files/post_11148_tasiyanc_11148.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11148_tasiyanc_11148.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨 کنگره به دموکرات‌ها رسید , شکست جمهوری‌خواهان (حزب ترامپ) در انتخابات میان‌دوره‌ای
+
+•بر اساس پیش‌بینی رسانه‌های آمریکایی، دموکرات‌ها در انتخابات میان‌دوره‌ای ۲۰۲۶ هم مجلس نمایندگان و هم سنا را فتح کرده‌اند. این یک شکست سنگین برای ترامپ در دو سال پایانی دوره‌اش محسوب می‌شود و قدرت قانون‌گذاری و نظارت بر کاخ سفید را به طرف مخالف منتقل می‌کند.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11147
+
+<div align="center"><video src="files/post_11147_tasiyanc_11147.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11147_tasiyanc_11147.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵علی دایی، اسطوره فوتبال ایران، در جریان مراسم خاکسپاری حمید علیدوستی، پیشکسوت فوتبال، هنگام پخش سرود جمهوری اسلامی از جای خود برنخاست.
+پی‌نوشت : برخی چهره های شناخته شده و محبوب مثل عادل فردوسی‌پور و جعفر پناهی هم بلند نشدن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11146
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+فرصت محدود رفقا زود عضو شین 🆗
+اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11145
+
+<div align="center"><img src="files/post_11145_tasiyanc_11145.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰12
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
 
 ## tasiyanc — post 11144
 
@@ -222,52 +297,6 @@ https://t.me/+R2nwb5FUo0RjYTVk
 🚨فوری توییت فرماندهی تفنگداران ویژه دریایی ارتش ایالات متحده
 «آماده اعزام»
 
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11129
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام و درود رفقا ، عزیزای دلم «درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد» مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️ نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید…
-</div>
-
-## tasiyanc — post 11127
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سلام و درود رفقا ، عزیزای دلم
-«درصورت قطعی-جنگ که ایشالا پیش نیاد تاسیان مثل قدیم کنارتون هست و رایگان وصلتون خواهیم کرد»
-مراقب خودتون باشید ایشالا که اتفاق بدی رقم نخوره ❤️
-نوتیف 🔔 چنلو روشن کنید از الان در صورت نیاز اطلاع رسانی به موقع از طرفمون رو ببینید .
-</div>
-
-## tasiyanc — post 11126
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨طبق گزارشات صدای چندین انفجار در بندرعباس ، قشم شنیده شد
-</div>
-
-## tasiyanc — post 11125
-
-<div align="center"><video src="files/post_11125_tasiyanc_11125.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11125_tasiyanc_11125.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵رسانه های آمریکایی اعلام کردن اون بمب هسته ای که ترامپ میخواد در حمله احتمالی به ایران ازش استفاده کنه این هست :
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11124
-
-<div align="center"><img src="files/post_11124_tasiyanc_11124.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 جنایت هولناک در ارومیه؛ مانی زینالی پسر ۱۹ ساله به قتل رسید
-
-مانی دو روز پیش برای تفریح با دوستانش از خانه خارج شده بود که قربانی یک حادثه خشونت‌بار شد.
-گفته می‌شود دو مرد او را به خارج شهر برده‌اند و پس از مقاومت مانی در برابر تعرض، به او حمله کرده‌اند. مانی حتی موفق شده بود برای درخواست کمک با مادرش تماس بگیرد، اما مهاجمان دوباره به او دسترسی پیدا کردند و در نهایت جانش را گرفتند.
-حالا یک خانواده داغدار شده و یک مادر باید با جای خالی فرزند ۱۹ ساله‌اش زندگی کند...
 💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,71 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/06 03:49
+📅 آخرین بروزرسانی: 1405/09/06 12:28
 
 ---
+
+## tasiyanc — post 11526
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵این مردک شُل‌مغز رو احتمالاً خیلی‌هاتون دیدید؛ همونی که به «پدر تشریفات خودآزاری ایران» معروف شده!
+
+کاری که این آقا می‌کنه و دکانی که برای خودش باز کرده، عملاً هیچ فرقی با پکیج‌فروش‌های اینستاگرامی نداره
+فقط به‌جای فروختن دوره و پکیج، با ادا و اطوار و نمایش‌های عجیب‌وغریب دنبال جلب توجهه!
+کافیه ببینید برای خوردن یه نارنگی چه نمایش مسخره‌ای راه می‌اندازه و چه گند و کثافتی به میز می‌زنه!
+اما بخش خنده‌دار ماجرا اینجاست که یه عده شُل‌مغز تر از خودش هم متعصبانه ازش دفاع می‌کنن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11525
+
+<div align="center"><img src="files/post_11525_tasiyanc_11525.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر تتر رسیده به 285000 تومان 😐
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11524
+
+<div align="center"><video src="files/post_11524_tasiyanc_11524.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11524_tasiyanc_11524.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیوی وایرال‌شده از «ایونت مد و هنر » در نیاوران تهران
+
+جایی که ترکیب مد، هنر و استایل‌های متفاوت حسابی مورد توجه قرار گرفته.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11523
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب بصورت رایگان‼️                باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 1323دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3 @ARON_TIP…
+</div>
+
+## tasiyanc — post 11522
+
+<div align="center"><img src="files/post_11522_tasiyanc_11522.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب بصورت رایگان‼️
+        
+     
+باضریب⬅️2.46📊 گذاشتماینجا حتما استفاده کنید💎
+
+💵خودم 500دلار زدم که میشه 1323دلار🔥
+                                 ⬇️👇⬇️
+            🚫فرم VIP رایگان شرطبندی↙️
+
+◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r3
+
+@ARON_TIP @ARON_TIP  @ARON_TIP
+            💎💯   100درصد وینه💯💎
+</div>
 
 ## tasiyanc — post 11521
 
@@ -202,72 +265,5 @@ https://t.me/+Kj9X7ZcvJe02NTVk
 💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
 
 🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11506
-
-<div align="center"><img src="files/post_11506_tasiyanc_11506.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r2
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11505
-
-<div align="center"><video src="files/post_11505_tasiyanc_11505.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11505_tasiyanc_11505.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵وقتی واقعیت، از هر فیلمنامه‌ای اشک‌آورتر می‌شود…
-
-در جریان جنگ کره، سربازِ ترک 🇹🇷 به نام سلیمان دیلبیرلیگی دختربچه ۵ ساله‌ای را پیدا می‌کند که همه‌چیزش را از دست داده است. او نام دختر را «آیلا» می‌گذارد و ۱۵ ماه از او مثل فرزند خودش مراقبت می‌کند
-اما بازگشت به ترکیه و سپردن آیلا به پرورشگاه، جدایی ۶۰ ساله‌ای را رقم می‌زند؛
-در نهایت آیلا و سلیمان در سال ۲۰۱۰ پس از ۶۰ سال با کمک خبرنگار های حرفه ای به همدیگه رسیدند و « آیلا » تا لحظه مرگ سلیمان پیشش موند
-این اتفاق واقعی، الهام‌بخش فیلم سینمایی «آیلا: دختر جنگ» شد؛ فیلمی درباره عشق، فقدان و خانواده‌ای که با مهربانی شکل می‌گیرد.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11504
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰1 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11503
-
-<div align="center"><img src="files/post_11503_tasiyanc_11503.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-🅰1
-https://t.me/+gagcxCKK4QQzNGI8
-https://t.me/+gagcxCKK4QQzNGI8
-
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
-</div>
-
-## tasiyanc — post 11502
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ترامپ ک*ص ننت
 </div>
 

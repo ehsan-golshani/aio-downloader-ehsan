@@ -1,8 +1,44 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/09/06 03:49
+📅 آخرین بروزرسانی: 1405/09/06 12:28
 
 ---
+
+## tasiyanc — post 11064
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11063
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11062
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨 فوری
+
+گویا بلو بانک هک شده ، و دیتابیس کاربران لو رفته
+</div>
+
+## tasiyanc — post 11061
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+بوی جنگ میاد
+</div>
+
+## tasiyanc — post 11060
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔴 صرافی بایننس هک شد؛ ۲.۶ میلیارد دلار به سرقت رفت و بازار کریپتو ریخت!
+
+بزرگ‌ترین صرافی ارز دیجیتال دنیا هدف یه حمله سایبری سنگین قرار گرفته و طبق گزارش‌ها، ۲.۶ میلیارد دلار از دارایی‌ها به سرقت رفته!
+📉 خبر این هک بازار ارزهای دیجیتال رو به لرزه انداخته و فشار فروش بالا رفته؛ حالا همه چشم‌ها به واکنش بایننس و وضعیت بازار دوخته شده!
+⚡@Tasiyanc
+</div>
 
 ## tasiyanc — post 11059
 
@@ -241,58 +277,5 @@
 📌 تاریخ بارها نشون داده که هیچ قدرتی همیشگی نیست…
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11044
-
-<div align="center"><img src="files/post_11044_tasiyanc_11044.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 خوشتیپ‌ترین مردای جهان در سال ۲۰۲۶ معرفی شدن؛ ایران حتی تو لیست هم نیست!
-
-طبق این رتبه‌بندی، مردای اسپانیا 🇪🇸رتبه اول رو گرفتن؛ اما خبری از ایران توی این لیست نیست!
-
-ما رو کلاً از قلم انداختن یا سلیقه‌شون مشکل داره؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11043
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐 📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6 https://t.me/+VmekrTukXnphNmU0 https://t.me/+VmekrTukXnphNmU0 🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11042
-
-<div align="center"><img src="files/post_11042_tasiyanc_11042.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ مثل آماتورا بت می‌زنی، بعد باختتو می‌ندازی گردن شانس؟ 😐
-
-📊 آمار سیاوش جلو چشمته؛ ببین، بررسی کن، بعد تصمیم بگیر.✈️👇🅰g6
-
-https://t.me/+VmekrTukXnphNmU0
-https://t.me/+VmekrTukXnphNmU0
-
-🎯 سود 3 ملیونی از میکس لیگ برتر 🇮🇷💵
-</div>
-
-## tasiyanc — post 11041
-
-<div align="center"><img src="files/post_11041_tasiyanc_11041.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کری پَکِر قمار باز حرفه ای استرالیایی که چند وقت پیش توی بازی بلک جک ۴۰ میلیون دلار برنده شد عشقی ۱ میلیون دلارشو داد به گارسون رستوران تا حالشو ببره.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11040
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده 24 ساعت اخیر از رفتار پسرا داخل و خارج خونه، پیش دختر مورد علاقه‌شون :)) 💋 @Tasiyanc
 </div>
 
