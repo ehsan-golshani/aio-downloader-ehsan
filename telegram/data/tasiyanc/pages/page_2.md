@@ -1,8 +1,67 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/09/06 12:28
+📅 آخرین بروزرسانی: 1405/09/06 22:19
 
 ---
+
+## tasiyanc — post 11552
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب به صورت رایگان‼️                باضریب⬅️1.98📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 990دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r5 @ARON_TIP…
+</div>
+
+## tasiyanc — post 11551
+
+<div align="center"><img src="files/post_11551_tasiyanc_11551.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅میکس VIP امشب به صورت رایگان‼️
+        
+     
+باضریب⬅️1.98📊 گذاشتماینجا حتما استفاده کنید💎
+
+💵خودم 500دلار زدم که میشه 990دلار🔥
+                                 ⬇️👇⬇️
+            🚫فرم VIP رایگان شرطبندی↙️
+
+◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r5
+
+@ARON_TIP @ARON_TIP  @ARON_TIP
+            💎💯   100درصد وینه💯💎
+</div>
+
+## tasiyanc — post 11550
+
+<div align="center"><video src="files/post_11550_tasiyanc_11550.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11550_tasiyanc_11550.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵زن جـوان که هـوس خـیانـت زده به سرش، برای اولین بار با دوست‌پسرش توی یه خونه قرار گذاشته بود، به محض ورود با شـوهر خودش روبه‌رو میشه
+
+اما چیزی که خیلی آزارم داد، واکنش این جیندا خانم بود؛ به‌جای اینکه بابت خیانت و پنهان‌کاری خودش توضیح بده، طلبکارانه به مرد اعتراض میکنه که چرا با جعل هویت فریبش داده!
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11549
+
+<div align="center"><video src="files/post_11549_tasiyanc_11549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11549_tasiyanc_11549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشـم‌ریزون‌ترین اتفاق تاریخ ف‍ـوتبال؛ داور سوری✌️ بازی مست کرده بود! 😂
+
+داور دیدار گل‌گهر و الجزیره، بین دو نیمه تعویض شد و داور چهارم جاش رو گرفت!
+گفته می‌شه ناظر بازی بین دو نیمه متوجه وضعیت غیرعادی داور شده؛ جالب‌تر اینکه مهدی رحمتی، سرمربی گل‌گهر هم اواخر نیمه اول رو به نیمکت تیمش گفته بود: «داور مسته!»
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11548
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+Qej4hrwIZsU0NmQ0 https://t.me/+Qej4hrwIZsU0NmQ0 🎯نمونه سود…
+</div>
 
 ## tasiyanc — post 11547
 
@@ -206,118 +265,5 @@ https://t.me/+Qej4hrwIZsU0NmQ0
 https://t.me/+Qej4hrwIZsU0NmQ0
 
 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰3
-</div>
-
-## tasiyanc — post 11532
-
-<div align="center"><video src="files/post_11532_tasiyanc_11532.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11532_tasiyanc_11532.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آدم‌ربایی وحشتناک در شیراز؛ دزدیدن آرتین ۹ ساله و درخواست ۲۰ میلیارد باج!
-
-چند فرد مسلح در روز روشن و جلوی چشم مادرش، آرتین کامکار ۹ ساله رو ربودن و حالا برای آزاد کردن این بچه، از خانواده‌اش ۲۰ میلیارد تومان پول می‌خوان!
-آدم چقدر باید بی‌شرف و سنگدل باشه ؟
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11531
-
-<div align="center"><video src="files/post_11531_tasiyanc_11531.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11531_tasiyanc_11531.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵صحنه‌های باورنکردنی از واکنش‌های عجیب حس ششم انسان!
-
-گاهی بدن انسان پیش از آنکه چشم فرصت دیدن و مغز فرصت تحلیل داشته باشد، خطر را تشخیص می‌دهد و واکنشی برق‌آسا نشان می‌دهد؛ انگار غریزه، چند قدم از بینایی جلوتر حرکت می‌کند!
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11530
-
-<div align="center"><video src="files/post_11530_tasiyanc_11530.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11530_tasiyanc_11530.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه پسر به شوخی زنگ می‌زنه به مادر دختره که بره «خواستگاری» ولی مادر دختر از همون اول چنان لیست توقعاتش رو می‌ذاره وسط که پسره نمی‌دونه داره خواستگاری می‌کنه یا پیش‌فاکتور خرید عروس می‌گیره!
-
-همین توقعات زیاد تو جامعه ای که اقتصادش داغونه باعث شده پسرا تن به ازدواج ندن.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11529
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت
-💖 
-🎖️معتبرترین سایت روسی فعال در ایران
-🎖️ 
-⛔شارژ از طریق کارت بانکی،ارز،ووچر 
-⛔تسویه حساب سریع و امن بدون احرازهویت 
-💎هدایا سایت جهانی ژتون بت: 
-➕واریز اول 100% بونوس
-😍 
-➕15% فری بت هدیه برای شارژ بانکی 
-➕15%  شارژ اضافی برای شارژ ارزی 
-➕100…
-</div>
-
-## tasiyanc — post 11528
-
-<div align="center"><video src="files/post_11528_tasiyanc_11528.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11528_tasiyanc_11528.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت
-💖
-
-
-🎖️معتبرترین سایت روسی فعال در ایران
-🎖️
-
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-
-💎هدایا سایت جهانی ژتون بت:
-
-➕واریز اول 100% بونوس
-😍
-
-➕15% فری بت هدیه برای شارژ بانکی
-
-➕15%  شارژ اضافی برای شارژ ارزی
-
-➕100 اسپین رایگان هفتگی
-
-➕20% برگشت باخت روزانه برای بازی های کازینویی
-
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-
-🤩دنیای هدایا بی نظیر در ژتون بت
-
-
-🖥️ادرس ورود به سایت:🅰g3
-https://jhet0n.online/fa/?btag=2786270
-
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-
-💖کانال اطلاع رسانی:
-👇
-
-🔔https://t.me/+wZXhBXGTHmsxMTk0
 </div>
 

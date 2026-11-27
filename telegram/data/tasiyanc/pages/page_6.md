@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/06 12:28
+📅 آخرین بروزرسانی: 1405/09/06 22:19
 
 ---
+
+## tasiyanc — post 11470
+
+<div align="center"><img src="files/post_11470_tasiyanc_11470.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+هم اکنون حرکت هم‌زمان ۳ نفتکش ایران به سمت محاصره دریایی آمریکا !!
+صداسیما : درصورت حمله به کشتی های نفتی ایران تمامی تاسیسات کشورهای عربی رو ایران مورد اصابت قرار خواهد داد
+❌میدل ایست خبر خودشو اصلاح کرد و گفت این نفتکش ها همگی ایستادن و درحال حرکت نیستن!
+گزارشات راجب حرکت دو نفتکش ایرانی صحيح نیست، دو شناور مذکور با نام آیناز و شناور با کد ١٢۴۲۵ به ترتیب یدک‌کش و قایق تفریحی هستن.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11469
+
+<div align="center"><img src="files/post_11469_tasiyanc_11469.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شات های جدید بانو سیدنی سویینی با برند لباس زیرش 🔥
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11468
+
+<div align="center"><video src="files/post_11468_tasiyanc_11468.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11468_tasiyanc_11468.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از خیابون فرشته تهران که ماشین‌های کاستوم‌شده به سبک «GTA» رو کنار هم جمع کردن و یه دورهمی با حال‌وهوای گیم و ماشین راه انداختن؛ انگار لس‌سانتوس اومده وسط تهران.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11467
+
+<div align="center"><img src="files/post_11467_tasiyanc_11467.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه ایده تأسیس «اسرائیل 🇮🇱» رو ناصرالدین‌شاه 👑 داده!
+
+ناصرالدین‌شاه توی سفرش به فرانسه درسال 1873 روز 12 ژوئیه میلادی با چند نفر از خانواده روتشلید که خیلی ثروتمند بودن دیدار می‌کنه.
+روتشیلد شروع می‌کنه از یهودی‌های داخل ایران حمایت کردن.
+ناصرالدین‌شاه به تمسخر می‌گه:
+«خب که هزار کرور پول داری، پنجاه کرور بده و یه کشور بخر و هر چی یهودی توی دنیا هست جمع کن و یه کشور تشکیل بده.»
+اعضای روتشلید این حرفای ناصرالدین‌شاه رو جدی می‌گیره و چند سال بعد نخستین کنگره‌ی صهیونیستی ( اسم کنگره همین می‌باشد) تشکیل میشه که بعد ها منجر به تشکیل اسرائیل در سرزمین های فلسطین شد .
+منبع :
+The Diary of H.M. the Shah of Persia
+نویسنده: ناصرالدین‌شاه قاجار
+مترجم: جیمز ویلیام ردهاوس
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11466
+
+<div align="center"><video src="files/post_11466_tasiyanc_11466.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11466_tasiyanc_11466.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از یه خانم روسی🇷🇺 که شوهرش ایرانیه ، از خصوصیات مردای ایرانی میگه؛ از تفاوت فرهنگ و رفتار مردای ایرانی گرفته تا چیزایی که بعد از ازدواج با یه ایرانی تجربه کرده
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11465
 
@@ -225,102 +294,6 @@ https://t.me/+QfLVEylr-2c2YzQ0
 🔵ما هم خیلی دلمون می‌خواد بریم دبی، ولی متأسفانه اونجا کسی ما رو نمی‌کنه.
 
 
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11450
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
-</div>
-
-## tasiyanc — post 11449
-
-<div align="center"><img src="files/post_11449_tasiyanc_11449.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖
-
-🎖️معتبرترین سایت روسی فعال در ایران🎖️
-
-⛔شارژ از طریق کارت بانکی،ارز،ووچر
-⛔تسویه حساب سریع و امن بدون احرازهویت
-
-💎هدایا سایت جهانی ژتون بت:
-➕واریز اول 100% بونوس😍
-➕15% فری بت هدیه برای شارژ بانکی
-➕15%  شارژ اضافی برای شارژ ارزی
-➕100 اسپین رایگان هفتگی
-➕20% برگشت باخت روزانه برای بازی های کازینویی
-➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
-
-🤩دنیای هدایا بی نظیر در ژتون بت
-
-🖥️ادرس ورود به سایت:🅰g28
-https://jhet0n.online/fa/?btag=2786270
-🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
-💖کانال اطلاع رسانی:👇
-🔔https://t.me/+wZXhBXGTHmsxMTk0
-</div>
-
-## tasiyanc — post 11448
-
-<div align="center"><img src="files/post_11448_tasiyanc_11448.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵حادثه ی تلخی دیگر ، قتل هولناک دختر ۲۳ ساله در گیلان !
-
-صدف حق‌بین ۲۳ ساله شب گذشته در جشن تولدش هدف حمله دوست‌پسر سابقش قرار گرفت. گفته می‌شود پسر مسلح وارد مراسم شده، مهمانان را در اتاق حبس کرده و صدف را به زور به طبقه بالا برده است.
-این روایت حاکی از آن است که صدف پس از ضرب‌وشتم شدید و شکستن دست‌وپا و فک و بینی، با شلیک گلوله به قتل رسیده؛ گفته می‌شود دلیل این جنایت، فقط بخاطر مخالفت او با ازدواج بوده است.
-﻿
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11447
-
-<div align="center"><video src="files/post_11447_tasiyanc_11447.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11447_tasiyanc_11447.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 آپدیت جدید فیلترشکن سایفون؛ ارزش امتحان کردن داره!
-
-نسخه جدید سایفون منتشر شده و طبق تست‌هایی که انجام دادم، روی تمام اپراتورها و سرور کشورهای مختلف از جمله 
-🇩🇪 ، 
-🇸🇪 ، 
-🇺🇸 ، 
-🇮🇹 ، 
-🇳🇱 به‌ خوبی وصل می‌شه حتمااااا پیشنهاد میشه دانلود کنید .
-
-مشکل اتصال جمینای ، هوش مصنوعی هم رفع میشه با وصل شدن به کشور های اروپا و امریکا حتما تست کنید نسخه جدید رو و VPN های مخرب و ایرانی رو از گوشیتون حذف کنید
-
-▶️Android Play Store 
-🕹
-
-
-▶️iOS App Store 📱
-
-
-▶️Official Site Psiphon Team 
-📱
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11446
-
-<div align="center"><video src="files/post_11446_tasiyanc_11446.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11446_tasiyanc_11446.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این مرد روسی تو فضای مجازی با یه دختر اروپایی آشنا می‌شه، با کلی ذوق و امید هتل رزرو می‌کنه و برای دیدنش راهی یه کشور دیگه می‌شه؛ اما بعد از چند دقیقه ماچ و بوس، تازه می‌فهمه طرف مقابلش دختر نیست و مرده!
-
-حالا پاسپورتشو با خودش مقایسه میکنه پشماش ریخته
-😂
 
 💋 @Tasiyanc
 </div>

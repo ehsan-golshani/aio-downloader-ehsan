@@ -1,8 +1,89 @@
 # آرشیو کانال tasiyanc - صفحه 11
 
-📅 آخرین بروزرسانی: 1405/09/06 12:28
+📅 آخرین بروزرسانی: 1405/09/06 22:19
 
 ---
+
+## tasiyanc — post 11366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
+
+🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
+#شرطبندی
+♦️ آموزش شارژ حساب با کریپتو
+♦️ آموزش شارژ حساب ریالی در ریتزوبت
+</div>
+
+## tasiyanc — post 11365
+
+<div align="center"><video src="files/post_11365_tasiyanc_11365.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11365_tasiyanc_11365.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+👏یک بار شارژ کن ، دوبار شارژشو‌ این طرح اختصاصی ریتزوبت برای کاربرای فارسی زبان خودش رو از دست نده
+
+🔵اولین پلتفرم جهانی و اسپانسر لیگ هلند محیط امن و حرفه ای برای عاشقان شرط بندی فوتبال
+
+⚡️ واریز آنی با کریپتو
+⚡️ تسویه‌حساب سریع و مطمئن
+⚡️ دسترسی آسان و بدون دردسر
+⚡️ محیط حرفه‌ای برای شرط‌بندی و کازینو
+
+🚀 همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
+
+📲اپلیکیشن موبایل برای اندروید
+
+🌐 https://RitzoBet.com
+
+پشتیبان فارسی سایت ریتزوبت 👇🅰22
+⚡️@RitzoBetsupports
+</div>
+
+## tasiyanc — post 11364
+
+<div align="center"><video src="files/post_11364_tasiyanc_11364.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11364_tasiyanc_11364.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کارشناس مامایی بوی طبیعی واژن قرار نیست شبیه شکلات و نوتلا باشه!
+
+به گفته یک کارشناس مامایی، بوی طبیعی واژن معمولاً ملایم و کمی ترش‌ماننده
+اما بوی تند و شبیه ماهی، مخصوصاً اگر با علائم دیگه همراه باشه، می‌تونه نشونه عفونت باشه و نیاز به بررسی پزشکی داشته باشه.
+استفاده از عطرها و اسپری‌های مخصوص ناحیه تناسلی هم ممکنه باعث تحریک و برهم خوردن تعادل طبیعی این ناحیه بشه.
+قرار نیست بدن‌تون همیشه بوی عطر بده؛ سلامت مهم‌تر از خوشبو بودنه!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11363
+
+<div align="center"><video src="files/post_11363_tasiyanc_11363.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11363_tasiyanc_11363.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یه دختر خانم آنلاین‌شاپ لباس زنونه راه انداخته، ولی با یه مشکل عجیب روبه‌رو شده!
+
+میگه هرچی سیبیل ریختن فالوم کردن، هنوز حتی یه دختر هم فالوم نکرده! 😂
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11362
+
+<div align="center"><img src="files/post_11362_tasiyanc_11362.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پایان تلخ ماجرای ناپدید شدن پسر ۲۲ ساله در اسلامشهر!
+
+محمدمهدی ارجمندی از ۱۸ آبان ناپدید شده بود. آخرین تماسش با خانواده‌اش این بود که «دارم میام خونه»؛ اما بعد از اون تلفنش خاموش شد و دیگه خبری ازش نشد.
+حالا بعد از چند روز، جسد این جوان در باغ‌های اطراف اسلامشهر پیدا شده. طبق گزارش رکنا، تصاویر دوربین‌ها نشون می‌ده در آخرین مسیر بازگشتش، ظاهراً فردی داخل ماشین با اسلحه به سمتش نشونه رفته!
+گفته می‌شه دوستانش در این ماجرا دست داشتن و خودروی اون رو هم به سرقت بردن. پلیس هم از دستگیری قاتل خبر داده است.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11361
 
@@ -239,93 +320,5 @@
 #شرطبندی
 ♦️ آموزش شارژ حساب با کریپتو
 ♦️ آموزش شارژ حساب ریالی در ریتزوبت
-</div>
-
-## tasiyanc — post 11343
-
-<div align="center"><img src="files/post_11343_tasiyanc_11343.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👑واقعا چرا ریتزوبت انقدر در بین ایرانی ها محبوب شد ⁉️
-
-
-➕ریتزوبت اولین سایت پیش‌بینی فوتبال ، که تمام ارزهای دیجیتال رو برای شارژ حساب پوشش میده
-
-💳درگاه کارت به کارت امن ریالی برای کاربران ایرانی
-
-⚡️ اینجا با خیال راحت شرطبندی کن و درآمد دلاری کسب کن
-
-
-🚀همین حالا ثبت‌نام کن و تجربه‌ای متفاوت از شرط‌بندی آنلاین رو شروع کن.
-
-📲اپلیکیشن موبایل برای اندروید
-
-🌐 https://RitzoBet.com
-
-پشتیبان فارسی سایت ریتزوبت 👇🅰g21
-⚡️@RitzoBetsupports
-</div>
-
-## tasiyanc — post 11342
-
-<div align="center"><video src="files/post_11342_tasiyanc_11342.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11342_tasiyanc_11342.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵وایرال شدن یک ویدئو از بلاگر ترکیه‌ای 🇹🇷 در تبریز؛ حرف‌هایی که به مذاق رسانه‌های ترکیه خوش نیامد!
-
-چند روز پیش، یک بلاگر ترکیه‌ای هنگام صبحانه خوردن در تبریز مشغول فیلم‌برداری بود که با واکنش صریح یک شهروند ایرانی روبه‌رو شد.
-مرد ایرانی وقتی متوجه ملیت او شد، گفت:
-«ترکیه‌ای هستی؟ اصلاً از ترکیه خوشم نمیاد؛ سیاستمداران شما از پشت به ما خنجر زدن!»
-این ویدئو حالا در شبکه‌های اجتماعی ترکیه جنجالی شده و واکنش رسانه‌های این کشور را به دنبال داشته است.
-نظر شما چیه؟
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11341
-
-<div align="center"><video src="files/post_11341_tasiyanc_11341.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11341_tasiyanc_11341.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 عجیب‌ترین مسابقه‌ای که تا حالا دیدیم!
-
-قانونش خیلی ساده‌ست؛ هر شرکت‌کننده‌ای که بتونه باسن حریفش رو قرمزتر کنه، برنده مسابقه می‌شه! 😂
-
-از بهترین ورزشهای جهان 👍🏻
-💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11340
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-کانفیگ  فول سرعتی OpenVpn 📶
-
-آموزش اتصال ⛓
-
-دانلود برای اندروید 🕹
-
-دانلود برای آیفون📱
-
-مناسب دانلود ⬇️ وب‌گردی✈️ هوش‌مصنوعی🤖 اینستاگرام 📸
-
-در صورت ارور دو سه بار بزنید
-🩸 T.me/Tasiyanc
-</div>
-
-## tasiyanc — post 11339
-
-<div align="center"><video src="files/post_11339_tasiyanc_11339.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11339_tasiyanc_11339.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 اعتراضات گسترده در اسپانیا؛ ۵۵ هزار نفر به خیابون اومدن!
-
-دیشب بارسلون اسپانیا شاهد تجمع و اعتراض گسترده مردم بود؛ حدود ۵۵ هزار نفر به خیابون‌ها اومدن و علیه گرونی و شرایط اقتصادی اعتراض کردن.
-دلیل اصلی این اعتراضات، افزایش سرسام‌آور قیمت مسکن و اجاره‌بها و کاهش قدرت خرید مردم بوده
-💋 @Tasiyanc
 </div>
 

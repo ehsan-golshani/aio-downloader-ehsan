@@ -1,12 +1,69 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/06 12:28
+📅 آخرین بروزرسانی: 1405/09/06 22:19
 
 ---
 
-## tasiyanc — post 11567
+## tasiyanc — post 11572
 
-<div align="center"><a href="files/post_11567_@𝗧𝗮𝘀𝗶𝘆𝗮𝗻𝗰 𝗩𝗶𝗽 👑.zip" target="_blank" class="file-link" style="color:#2ea4d9;">📎 @𝗧𝗮𝘀𝗶𝘆𝗮𝗻𝗰 𝗩𝗶𝗽 👑.zip</a></div>
+<div align="center"><video src="files/post_11572_tasiyanc_11572.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11572_tasiyanc_11572.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اسم این پروژه عادی سازی نیست شهر بشدت طبقاتی شده !!
++ «ویدیو های وایرال شده از تهران»
+
+فقط کافیه به همین مناطق سر بزنید تا متوجه بشید یک ایران دیگه ای هم در کاره
+از همت به بالا تهران یه شهر دیگه است، حتی یه کشور دیگه است
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11571
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اگر روزی خواستید موفق بشید از این ٣ نفر الگو بگیرید.
+یکی کنار گوششون مُرد تخمشون نیست در حال چیدن پلن تریسام هستن :
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11570
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g6🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11569
+
+<div align="center"><img src="files/post_11569_tasiyanc_11569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g6🅰
+https://t.me/+Kj9X7ZcvJe02NTVk
+https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11568
+
+<div align="center"><video src="files/post_11568_tasiyanc_11568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11568_tasiyanc_11568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امکانات و خدمات عجیب یه اسنپ برای مسافراش ، که شبیه هتل سیار شده ، شرط می‌بندم پسر جماعت به همین اسنپ سلام کنه جوابشو نمی‌ده و مخصوص دختراس .
++ ک*صکش هول راس میگی پسر سوار کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11567
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 🔵مجموعه 15 کانفیگ وایرگارد «مخصوص گیم و دانلود » اختصاصی پرسرعت برای اندروید و آیفون برنامه WG TUNNEL & Windscribe
@@ -214,64 +271,5 @@ https://jhet0n.online/fa/?btag=2786270
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11552
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب به صورت رایگان‼️                باضریب⬅️1.98📊 گذاشتماینجا حتما استفاده کنید💎 💵خودم 500دلار زدم که میشه 990دلار🔥                                  ⬇️👇⬇️             🚫فرم VIP رایگان شرطبندی↙️ ◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r5 @ARON_TIP…
-</div>
-
-## tasiyanc — post 11551
-
-<div align="center"><img src="files/post_11551_tasiyanc_11551.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅میکس VIP امشب به صورت رایگان‼️
-        
-     
-باضریب⬅️1.98📊 گذاشتماینجا حتما استفاده کنید💎
-
-💵خودم 500دلار زدم که میشه 990دلار🔥
-                                 ⬇️👇⬇️
-            🚫فرم VIP رایگان شرطبندی↙️
-
-◀️رفقا اینجا(آرون تیپ) عضو گیری محدوده 👇🅰r5
-
-@ARON_TIP @ARON_TIP  @ARON_TIP
-            💎💯   100درصد وینه💯💎
-</div>
-
-## tasiyanc — post 11550
-
-<div align="center"><video src="files/post_11550_tasiyanc_11550.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11550_tasiyanc_11550.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵زن جـوان که هـوس خـیانـت زده به سرش، برای اولین بار با دوست‌پسرش توی یه خونه قرار گذاشته بود، به محض ورود با شـوهر خودش روبه‌رو میشه
-
-اما چیزی که خیلی آزارم داد، واکنش این جیندا خانم بود؛ به‌جای اینکه بابت خیانت و پنهان‌کاری خودش توضیح بده، طلبکارانه به مرد اعتراض میکنه که چرا با جعل هویت فریبش داده!
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11549
-
-<div align="center"><video src="files/post_11549_tasiyanc_11549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11549_tasiyanc_11549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشـم‌ریزون‌ترین اتفاق تاریخ ف‍ـوتبال؛ داور سوری✌️ بازی مست کرده بود! 😂
-
-داور دیدار گل‌گهر و الجزیره، بین دو نیمه تعویض شد و داور چهارم جاش رو گرفت!
-گفته می‌شه ناظر بازی بین دو نیمه متوجه وضعیت غیرعادی داور شده؛ جالب‌تر اینکه مهدی رحمتی، سرمربی گل‌گهر هم اواخر نیمه اول رو به نیمکت تیمش گفته بود: «داور مسته!»
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+Qej4hrwIZsU0NmQ0 https://t.me/+Qej4hrwIZsU0NmQ0 🎯نمونه سود…
 </div>
 
