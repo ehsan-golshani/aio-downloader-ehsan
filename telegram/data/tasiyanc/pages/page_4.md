@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/05 19:25
+📅 آخرین بروزرسانی: 1405/09/06 03:49
 
 ---
+
+## tasiyanc — post 11501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطعی بشه مام میشیم عزیز دل خیلیا مثل جنگ ۴۰ روزه!
+</div>
+
+## tasiyanc — post 11500
+
+<div align="center"><video src="files/post_11500_tasiyanc_11500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11500_tasiyanc_11500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از حرکات دیدنی و خارج از تصور منصور بهرامی،تنیسور ایرانی🇮🇷 که با سبک بازی متفاوتش تماشاگرها رو غافلگیر می‌کنه؛ حرکاتی که بیشتر از یه مسابقه تنیس، شبیه اجرای زنده و نمایش هنریه!
+
+فقط یه ایرانی می‌تونه اینقدر کسخل و باحال باشه😂😂
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11499
+
+<div align="center"><video src="files/post_11499_tasiyanc_11499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11499_tasiyanc_11499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دلقکی رفته 15 ساعت پشت هم با لوسیا تو GTA 6 بدنسازی کار کرده , لوسیارو تبدیل کرده به رونی کولمن با جیسون داره دمبل میزنه 🤣
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11498
+
+<div align="center"><img src="files/post_11498_tasiyanc_11498.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵۱۰ سال انتظار برای انتقام قتل خواهر؛ بهرام ۱۲ نفر از اعضای خانواده‌اش را کشت!
+
+بهرام، معلم جوان ۲۲ ساله اهل فاریاب کرمان، پس از قتل خواهرش توسط پدر، برادرهای بزرگ‌تر و چند نفر از بستگان، به‌دلیل صحبت کردن او با یک پسر، ۱۰ سال با این ماجرا زندگی کرد تا سرانجام دست به انتقام زد.
+او در اقدامی خونین، پدر، برادرهایش و دیگر افراد دخیل در قتل خواهرش را با کلا*شنیکف هدف قرار داد
+در مجموع ۱۲ نفر کشته شدن. بهرام هم در جریان دستگیری و درگیری با پلیس کشته شد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
+</div>
 
 ## tasiyanc — post 11496
 
@@ -209,73 +261,5 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30 https://t.me/+yuNWNQ9zSYFhMWJk https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11480
-
-<div align="center"><img src="files/post_11480_tasiyanc_11480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
-https://t.me/+yuNWNQ9zSYFhMWJk
-https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11479
-
-<div align="center"><video src="files/post_11479_tasiyanc_11479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11479_tasiyanc_11479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 چهره‌ای از دل تاریخ؛ ویدیویی شگفت‌انگیز از احیای چهره «بانو رای»، پرستار سلطنتی فرعون در مصر باستان!
-
-بانو رای حدود ۳۵۰۰ سال پیش زندگی می‌کرد و وظیفه نگهداری و مراقبت از کودکان خاندان سلطنتی مصر رو برعهده داشت.
-مومیایی او در مقبره DB320 در دیرالبحری کشف شد؛ نکته جالب اینکه موهای این زن پس از گذشت هزاران سال همچنان در وضعیت نسبتاً خوبی باقی مونده!
-بازسازی چهره او به کمک بقایای مومیایی، تصویری شگفت‌انگیز از زنی ارائه می‌ده که بیش از سه هزار سال پیش زندگی می‌کرده.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11478
-
-<div align="center"><video src="files/post_11478_tasiyanc_11478.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11478_tasiyanc_11478.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ترامپ برای بار اِنُم دستگیر شد؛ این‌بار در مشهد!
-
-نیروهای جان‌فدا طی یک عملیات ضربتی، دونالد جی. ترامپ رو وسط خیابون‌های مشهد، بازداشت کردن و براش دادگاه تشکیل دادن:
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11477
-
-<div align="center"><video src="files/post_11477_tasiyanc_11477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11477_tasiyanc_11477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پشماتون بریزه؛ دیگه حتی برای بازی کردن GTA هم لازم نیست دست داشته باشی!
-
-یکی از شرکت‌کننده‌های آزمایش نورالینک ایلان ماسک، با کمک تراشه مغزی تونسته بدون لمس کنترلر توی GTA VI قایق برونه، هواپیما هدایت کنه و حتی وارد مبارزه بشه!
-این تراشه سیگنال‌های مغز رو به فرمان‌های بازی تبدیل می‌کنه؛ یعنی فقط با فکر کردن به حرکت، شخصیت بازی هم همون کار رو انجام می‌ده. تکنولوژی‌ای که می‌تونه برای افراد دارای معلولیت، دنیای گیم رو متحول کنه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

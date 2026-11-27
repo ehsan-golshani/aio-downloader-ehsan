@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/05 19:25
+📅 آخرین بروزرسانی: 1405/09/06 03:49
 
 ---
+
+## tasiyanc — post 11521
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه ۹ سرور اختصاصی روسیه 🇷🇺 پرسرعت برای اندروید و آیفون برنامه NPV Tunnel 🌟
+
+تست شده با تمام اوپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن این فایل داخل نپستر ۹ کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید
+آموزش اتصال ⚡
+
+برنامه اندروید🕹
+
+دانلود برنامه آیفون 📱
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 11520
+
+<div align="center"><img src="files/post_11520_tasiyanc_11520.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵چه خبره ؟! یه جنایت هولناک دیگه از طرف پدر و مادر ؛ این‌بار در سنندج...
+
+«هلیا فتاحی» دختر ۱۶ ساله اهل سنندج، ۳۰ آبان به دست پدر و مادرش و به دلایل ناموسی به قتل رسیده.
+پدر و مادر « هلیا » با قرص خواب‌آور اورا بیهوش کرده و با قرار دادن بالش روی صورت خفه‌اش میکنن و بچه کشته میشه ، و بعدش میرن خودشونو تحویل میدن و با افتخار میگن کشتیم
++برخی از دوستای هلیا میگن که از دوس‌پسرش حامله بوده، که ما نمی‌تونیم این موضوع رو تایید یا تکذیب کنیم
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11519
+
+<div align="center"><video src="files/post_11519_tasiyanc_11519.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11519_tasiyanc_11519.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از جا انداختن مهره‌های یه شیر!
+
+الکس، شیر بازیگوشی که چند جای گردن و کمرش مهره‌ها از جا دررفته بود، توسط یه دکتر متخصص ارتوپدی حیوانات معالجه میشه و مهره‌هاش رو جا میندازه
+الکس هم بعد از درمان، از درد خلاص میشه و انگار حسابی حالش جا میاد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11518
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰2
+</div>
+
+## tasiyanc — post 11517
+
+<div align="center"><img src="files/post_11517_tasiyanc_11517.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+4iOoNe8EvMNkY2Vk
+https://t.me/+4iOoNe8EvMNkY2Vk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰2
+</div>
 
 ## tasiyanc — post 11516
 
@@ -201,57 +269,5 @@ https://t.me/+gagcxCKK4QQzNGI8
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 ترامپ ک*ص ننت
-</div>
-
-## tasiyanc — post 11501
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-قطعی بشه مام میشیم عزیز دل خیلیا مثل جنگ ۴۰ روزه!
-</div>
-
-## tasiyanc — post 11500
-
-<div align="center"><video src="files/post_11500_tasiyanc_11500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11500_tasiyanc_11500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ویدیو وایرال شده از حرکات دیدنی و خارج از تصور منصور بهرامی،تنیسور ایرانی🇮🇷 که با سبک بازی متفاوتش تماشاگرها رو غافلگیر می‌کنه؛ حرکاتی که بیشتر از یه مسابقه تنیس، شبیه اجرای زنده و نمایش هنریه!
-
-فقط یه ایرانی می‌تونه اینقدر کسخل و باحال باشه😂😂
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11499
-
-<div align="center"><video src="files/post_11499_tasiyanc_11499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11499_tasiyanc_11499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-یه دلقکی رفته 15 ساعت پشت هم با لوسیا تو GTA 6 بدنسازی کار کرده , لوسیارو تبدیل کرده به رونی کولمن با جیسون داره دمبل میزنه 🤣
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11498
-
-<div align="center"><img src="files/post_11498_tasiyanc_11498.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵۱۰ سال انتظار برای انتقام قتل خواهر؛ بهرام ۱۲ نفر از اعضای خانواده‌اش را کشت!
-
-بهرام، معلم جوان ۲۲ ساله اهل فاریاب کرمان، پس از قتل خواهرش توسط پدر، برادرهای بزرگ‌تر و چند نفر از بستگان، به‌دلیل صحبت کردن او با یک پسر، ۱۰ سال با این ماجرا زندگی کرد تا سرانجام دست به انتقام زد.
-او در اقدامی خونین، پدر، برادرهایش و دیگر افراد دخیل در قتل خواهرش را با کلا*شنیکف هدف قرار داد
-در مجموع ۱۲ نفر کشته شدن. بهرام هم در جریان دستگیری و درگیری با پلیس کشته شد.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11497
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
 </div>
 

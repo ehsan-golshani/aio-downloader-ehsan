@@ -1,8 +1,76 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/05 19:25
+📅 آخرین بروزرسانی: 1405/09/06 03:49
 
 ---
+
+## tasiyanc — post 11480
+
+<div align="center"><img src="files/post_11480_tasiyanc_11480.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
+https://t.me/+yuNWNQ9zSYFhMWJk
+https://t.me/+yuNWNQ9zSYFhMWJk
+</div>
+
+## tasiyanc — post 11479
+
+<div align="center"><video src="files/post_11479_tasiyanc_11479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11479_tasiyanc_11479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 چهره‌ای از دل تاریخ؛ ویدیویی شگفت‌انگیز از احیای چهره «بانو رای»، پرستار سلطنتی فرعون در مصر باستان!
+
+بانو رای حدود ۳۵۰۰ سال پیش زندگی می‌کرد و وظیفه نگهداری و مراقبت از کودکان خاندان سلطنتی مصر رو برعهده داشت.
+مومیایی او در مقبره DB320 در دیرالبحری کشف شد؛ نکته جالب اینکه موهای این زن پس از گذشت هزاران سال همچنان در وضعیت نسبتاً خوبی باقی مونده!
+بازسازی چهره او به کمک بقایای مومیایی، تصویری شگفت‌انگیز از زنی ارائه می‌ده که بیش از سه هزار سال پیش زندگی می‌کرده.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11478
+
+<div align="center"><video src="files/post_11478_tasiyanc_11478.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11478_tasiyanc_11478.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ترامپ برای بار اِنُم دستگیر شد؛ این‌بار در مشهد!
+
+نیروهای جان‌فدا طی یک عملیات ضربتی، دونالد جی. ترامپ رو وسط خیابون‌های مشهد، بازداشت کردن و براش دادگاه تشکیل دادن:
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11477
+
+<div align="center"><video src="files/post_11477_tasiyanc_11477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11477_tasiyanc_11477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 پشماتون بریزه؛ دیگه حتی برای بازی کردن GTA هم لازم نیست دست داشته باشی!
+
+یکی از شرکت‌کننده‌های آزمایش نورالینک ایلان ماسک، با کمک تراشه مغزی تونسته بدون لمس کنترلر توی GTA VI قایق برونه، هواپیما هدایت کنه و حتی وارد مبارزه بشه!
+این تراشه سیگنال‌های مغز رو به فرمان‌های بازی تبدیل می‌کنه؛ یعنی فقط با فکر کردن به حرکت، شخصیت بازی هم همون کار رو انجام می‌ده. تکنولوژی‌ای که می‌تونه برای افراد دارای معلولیت، دنیای گیم رو متحول کنه.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11476
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11475
 
@@ -233,84 +301,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11459
-
-<div align="center"><img src="files/post_11459_tasiyanc_11459.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r29
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11458
-
-<div align="center"><video src="files/post_11458_tasiyanc_11458.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11458_tasiyanc_11458.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-فضاپیمای وویجر 1🛸 سفیر زمینی‌ها در مرزهای ناشناخته کیهان!
-
-فضاپیمای وویجر ۱ که ۴۹ سال پیش توسط ناسا به فضا پرتاب شد، حالا به فاصله‌ای رسیده که نور برای رسیدن از زمین به اون تقریباً ۲۴ ساعت زمان نیاز داره! یعنی بیش از ۲۵ میلیارد کیلومتر دورتر از ما.
-اما عجیب‌ترین بخش ماجرا، پیامیه که همراه خودش حمل می‌کنه؛ یک صفحه طلایی حاوی تصاویر، صداها، موسیقی و پیام‌هایی به ۵۵ زبان مختلف، برای اینکه اگر روزی تمدنی بیگانه پیداش کرد، با انسان‌ها و زمین آشنا بشه.
-++حتی یک پیام فارسی هم روی این صفحه ثبت شده، با شعر جاودانه حضرت سعدی:
-«درود بر ساکنین ماورای آسمان‌ها»
-بنی‌آدم اعضای یک پیکرند
-که در آفرینش ز یک گوهرند
-چو عضوی به درد آورد روزگار
-دگر عضوها را نماند قرار
-تصور کن یه روز، در دوردست‌ترین نقطه‌های کیهان، موجوداتی این پیامهارو رو پیدا کنن....
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11457
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+QfLVEylr-2c2YzQ0 https://t.me/+QfLVEylr-2c2YzQ0 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
-</div>
-
-## tasiyanc — post 11456
-
-<div align="center"><img src="files/post_11456_tasiyanc_11456.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+QfLVEylr-2c2YzQ0
-https://t.me/+QfLVEylr-2c2YzQ0
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰28
 </div>
 

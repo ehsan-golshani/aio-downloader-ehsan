@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/09/05 19:25
+📅 آخرین بروزرسانی: 1405/09/06 03:49
 
 ---
+
+## tasiyanc — post 11397
+
+<div align="center"><img src="files/post_11397_tasiyanc_11397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مدال افتخار دولت لهستان🇵🇱 به زوج‌هایی که ۵۰ سال عاشق هم موندن!
+
+در لهستان، زوج‌هایی که بیش از ۵۰ سال زندگی مشترک داشته باشن، از طرف دولت با مدالی ویژه مورد تقدیر قرار می‌گیرن.
+این سنت از سال ۱۹۶۰ آغاز شده و تا امروز ادامه داره؛ نوعی قدردانی از زوج‌هایی که بیش از نیم‌قرن در کنار هم موندن و زندگی مشترکشون رو حفظ کردن.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11396
+
+<div align="center"><video src="files/post_11396_tasiyanc_11396.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11396_tasiyanc_11396.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ویدیو وایرال شده از پیتزا با چاشنی مورچه؛ جدیدترین غذای عجیب برزیلی‌ها! 🐜🍕
+
+یه رستوران تو برزیل با ریختن مورچه‌های برگ‌بُر روی پیتزا، ترکیب غذایی عجیبی ساخته که برخلاف انتظار، حسابی طرفدار پیدا کرده!
+ظاهراً مردم برای خوردن این پیتزای متفاوت حاضرن ساعت‌ها تپ صف منتظر بمونن😐
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11394
+
+<div align="center"><video src="files/post_11394_tasiyanc_11394.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11394_tasiyanc_11394.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ماجرای تکان‌دهنده خودکشی یک پسر ۱۳ ساله در تهران؛ دست‌نوشته‌ای که راز عجیب زندگی پدر و مادرش رو فاش کرد!
+
+طبق روایت منتشرشده، پدر و مادر این نوجوان با یک زوج آشنا رابطه جنسی گروهی داشتن و پسر بعداً از این ماجرا باخبر می‌شه!
+شوک بزرگ‌تر زمانی بوده که متوجه شباهت‌های ظاهری خودش به دوست پدرش می‌شه و به این احتمال شک می‌کنه که شاید پدر واقعی‌اش شخص دیگه‌ای باشه!
+این نوجوان تمام ماجرا رو در دست‌نوشته‌ای خطاب به معلم پرورشی‌اش روایت کرده؛ اتفاقی تلخ که با خودکشی او همراه شده.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11393
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+چشمم زدید؟!🧿🤬
+
+منکه با لایو جبران کردم ، ولی تنگ نظر نباشید 😕
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+بعد از پنج شب برد متوالی ، دیشب 5 میلیون باختم 😕
+</div>
+
+## tasiyanc — post 11392
+
+<div align="center"><img src="files/post_11392_tasiyanc_11392.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+دیشب باختیم ، اونم سر تیمی که فقد بازیکناش ادعا بودن!!
+
+تقصیر پرتغال بود یا اشتباه خودم؟👇😞
+
+https://t.me/+hyp2m5whNPg2Y2I8
+https://t.me/+hyp2m5whNPg2Y2I8
+
+این همه گفتید سیاوش فقد میبری ، بلاخره باختم 🤦❌🅰g24
+</div>
 
 ## tasiyanc — post 11391
 
@@ -210,76 +281,6 @@ https://t.me/+gYDRnUG5OX03MWJk
 فایل ZIP را در برنامه WG TUNNEL باز کنید
 
 اتصال امن برای همه 🇮🇷
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11376
-
-<div align="center"><video src="files/post_11376_tasiyanc_11376.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11376_tasiyanc_11376.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اگه عقلتونو بدید دست دودولتون، آخرش همچین فاجعه‌ای بزرگ به بار میاد!
-
-شاهکاری که جنسن هوانگ « مدیرعامل انویدیا» رقم زده، رسماً در حد یک بگایی تاریخی بوده؛ نه‌تنها زندگی شخصی خودش رو به فنا داده، بلکه ماجرا به ضرر و زیان 200.000.000.000 میلیارد دلاری و ضربه‌ای سنگین به انویدیا هم کشید و این شرکت نزدیک بگایی رفته !
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11375
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-عضو کانال سیاوش شید ، تیپ هاش حرف نداره 💵
-
-https://t.me/+OwxQ7mRMaxpjOTQ8
-
-ده دقیقه دیگ پاک میکنم لینکو
-</div>
-
-## tasiyanc — post 11374
-
-<div align="center"><img src="files/post_11374_tasiyanc_11374.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-❌ اگه هر هفته می‌بازی، شاید وقتشه قبول کنی روش قبلیت جواب نمی‌ده.😐
-
-⚽️ بازی‌های ملی دوبارع شروع شده و بازار پیش‌بینی و شرطبندی دوباره داغ شده 🔥
-
-
-https://t.me/+OwxQ7mRMaxpjOTQ8
-https://t.me/+OwxQ7mRMaxpjOTQ8
-
-⚡️ قبل از پیش‌بینی بعدیت، یه سر به داش سیاوش بزن 🐍🅰g23
-</div>
-
-## tasiyanc — post 11373
-
-<div align="center"><img src="files/post_11373_tasiyanc_11373.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بابک ماسک:
-فروش تتر ۲۴۹ هزار تومنی رو شروع کردم و به مدت ۱ ماه ادامه داره تا ۱ میلیارد دلار بفروشم. هرکسیم میگه اینا تترهای تحریمیه و مال پولشوییه؛ حسوده و میترسه کاسبی خودش خراب نشه.
-این درحالیه که امروز قیمت دلار نه تنها کاهش پیدا نکرده بلکه افزایش پیدا کرده و به ۲۷۴ هزار تومن رسیده.
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11372
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨 اتفاقات عجیب در ۲۴ ساعت اخیر ایالات متحده آمریکا که به وقوع پیوسته و مشخص نیست پشت داستان چیه 🇺🇸
-
-از دسترس خارج شدن سرویس ایمیل مایکروسافت!
-ورود پهپاد به دو پایگاه نظامی آمریکا در بریتانیا.
-لغو تمام پروازها در سراسر آمریکا.
-اختلال در رادارهای هواشناسی در سراسر آمریکا.
-برخورد تانکر با کشتی کروز و زخمی شدن ۳۲ نفر در رودخانه می‌سی‌سی‌پی آمریکا
-
 
 💋 @Tasiyanc
 </div>

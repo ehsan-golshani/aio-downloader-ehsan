@@ -1,8 +1,74 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/05 19:25
+📅 آخرین بروزرسانی: 1405/09/06 03:49
 
 ---
+
+## tasiyanc — post 11562
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+vzPDG_6Rg9E5YmNk https://t.me/+vzPDG_6Rg9E5YmNk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰5
+</div>
+
+## tasiyanc — post 11561
+
+<div align="center"><img src="files/post_11561_tasiyanc_11561.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+vzPDG_6Rg9E5YmNk
+https://t.me/+vzPDG_6Rg9E5YmNk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰5
+</div>
+
+## tasiyanc — post 11560
+
+<div align="center"><video src="files/post_11560_tasiyanc_11560.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11560_tasiyanc_11560.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵دیروز تو «دزفول» خوزستان پدر یکی از دانش‌آموزها بخاطر اینکه پسرش تو مدرسه دعوا کرده و کتک خورده بود؛ اينجوری وحشیانه به مدرسه حمله کرد و ۲ دانش‌آموز رو به شدید‌ترین شکل ممکن و تا حد مرگ کتک زد امروز این حرو*مزاده توسط پلیس توسط دستگیر شد.
+حاوی تصاویر دلخراش دلشو نداری نبین ⚠️
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11559
+
+<div align="center"><img src="files/post_11559_tasiyanc_11559.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💬 آپدیت جدید تلگرام؛ ممکنه طرف پیامتو دیده باشه ولی هنوز سین نخوره!
+
+تلگرام یه تغییر سمت سرور اعمال کرده که اگه با کسی چت می‌کنید و توی لیست مخاطب‌های همدیگه نیستید، تا وقتی طرف به پیامتون جواب نده، ممکنه همچنان پیام شما یک تیک باقی بمونه!
+
+یعنی طرف می‌تونه پیام رو ببینه، حتی ری‌اکشن بزنه، اما تا وقتی جوابتون رو نداده، برای شما همچنان یک تیک نمایش داده بشه و متوجه سین شدن پیام نشید.
+این تغییر به‌صورت سیستمی و سمت سرور برای کاربران اعمال شده، اما ظاهراً یه سری استثناها و شرط‌وشروط هم داره؛ از جمله برای شروع‌کننده چت و پیام‌های بعدی بین دو طرف. فعلاً منطق دقیق این قابلیت کاملاً مشخص نیست و به نظر می‌رسه تلگرام هنوز همه جزئیاتش رو روشن نکرده.
+پس از این به بعد، یه تیک تو تلگرام لزوماً به معنی ندیده شدن پیامت نیست!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11558
+
+<div align="center"><img src="files/post_11558_tasiyanc_11558.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تکان‌دهنده ترین تصاویر دنیا؛ ۹۱۸ نفر در یکی از هولناک‌ترین خودکشی‌های دسته‌جمعی تاریخ، با سیـ‌انور جان خودشون رو از دست دادن!
+
+شاید با دیدن این عکس‌ها فکر کنید با انبوهی از زباله روبه‌رو هستید، اما این‌ها پیکر انسان‌هایی هستن که حدود ۴۰ سال پیش در فاجعه جونزتاون جان باختن.
+جیم جونز، رهبر یک فرقه، با سوءاستفاده از نفوذ و کنترل روانی اعضا، بهشون القا کرده بود که دنیا علیه اون‌هاست و راهی جز مرگ وجود نداره. در نهایت صدها نفر در یک خ*ودکشی دسته‌جمعی با س*یانور جان خودشون رو از دست دادن؛
+فاجعه‌ای که هنوز یکی از تلخ‌ترین نمونه‌های سوءاستفاده از قدرت و شست‌وشوی فکری در تاریخه.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11557
 
@@ -198,76 +264,5 @@ https://t.me/+Qej4hrwIZsU0NmQ0
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11542
-
-<div align="center"><img src="files/post_11542_tasiyanc_11542.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰
-https://t.me/+Kj9X7ZcvJe02NTVk
-https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11541
-
-<div align="center"><video src="files/post_11541_tasiyanc_11541.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11541_tasiyanc_11541.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چه خبرتونه ناموسا ؟ یـه زن تو تـهران بـا قـرص بـرنـج شوهـرشو به قتل رسونده؛
-
-تو مصاحبه با خبرنگار میگه:
-شوهرم سال ۱۴۰۰ سال با یه زن دیگه به من خیانت کرده بود و از اون بعد دیگه رابطه‌ای نداشتیم و اختلاف بینمون زیاد بود
-منم برای اینکه بهش اسیب بزنم رفتم قرص برنج خریدم و یک چهارمشو انداختم تو کپسول قرصی که هر روز صبح میخورد تا کشته بشه
-البته قصد کشتنش رو نداشتم فقط میخواستم بهش آسیب بزنم حتی پشیمون شدم خواستم برگردم قرص رو بردارم نخوره ولی سرکار بودم دیگه.
-اگه میدونستم موقعیت شغلیم خراب میشه هیچ وقت قرص برنج بهش نمیدادم.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11540
-
-<div align="center"><video src="files/post_11540_tasiyanc_11540.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11540_tasiyanc_11540.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵چندتا از دخترای مملکت‌مون که دانشجو بودن از بس که تعداد نفراتشون بالا بوده، یه فکر بکر به سرشون میزنه؛
-
-و با وانت اسنپ به سمت دانشگاه راهی میشن:
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11539
-
-<div align="center"><video src="files/post_11539_tasiyanc_11539.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11539_tasiyanc_11539.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵روایـت تلـخ خانم دکتر از دخـتر دانشـجو که قـربانی اعـتمادش شد
-دو سه ماه پیش یه بیمار داشتم که دختر دانشجو بود و بدون ازدواج حامله شده بود قضیه رو که جویا شدم گفت:
-یکی از پسرای پولدار دانشگاهمون بهم گفت یه مهمونی هست تو خونمون و دعوتم کرد، لحظه اخر همه کنسل کردن،
-ولی من با پسره و دو تا از دوستاش رفتم خونشون و درینک خوردیم و بعدش بیهوش شدم تا اینکه تو یکی از بیابونای اطراف شهر به‌هوش اومدم و بعدش متوجه شدم هر سه نفرشون بهم تجاوز کردن و الانم حاملم.
-بخاطر ترس از پدر و مادرمم جرئت شکایت کرده و پزشک قانونی رفتن نداشتم.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11538
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
