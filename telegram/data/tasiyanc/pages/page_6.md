@@ -1,8 +1,65 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11484
+
+<div align="center"><video src="files/post_11484_tasiyanc_11484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11484_tasiyanc_11484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
+
+طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11483
+
+<div align="center"><video src="files/post_11483_tasiyanc_11483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11483_tasiyanc_11483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 مدیرعامل دیوار: بابت انتشار آگهی‌های کفش و ماساژ به یک سال حبس محکوم شدم!
+
+آرمندهی می‌گوید بسیاری از این آگهی‌ها مربوط به خدمات جنسی بوده، اما امکان تشخیص نیت واقعی آگهی‌دهندگان را نداشته و با این حال، به اتهام فراهم‌کردن مکان فساد به یک سال حبس محکوم شده است.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11482
+
+<div align="center"><img src="files/post_11482_tasiyanc_11482.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 بعد از موج قتل دختران به دست پدرانشان، مجلس به فکر تغییر قانون افتاد!
+
+نمایندگان مجلس طرح دوفوریتی‌ای را مطرح کرده‌اند که بر اساس آن، حداقل مجازات قتل فرزند توسط پدر از ۳ تا ۱۰ سال حبس به ۲۵ سال زندان افزایش پیدا می‌کند و محکومان مشمول هیچ‌گونه بخششی نخواهند شد.
+حالا باید دید این طرح به تصویب می‌رسد یا نه...
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11481
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30 https://t.me/+yuNWNQ9zSYFhMWJk https://t.me/+yuNWNQ9zSYFhMWJk
+</div>
+
+## tasiyanc — post 11480
+
+<div align="center"><img src="files/post_11480_tasiyanc_11480.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
+https://t.me/+yuNWNQ9zSYFhMWJk
+https://t.me/+yuNWNQ9zSYFhMWJk
+</div>
 
 ## tasiyanc — post 11479
 
@@ -211,94 +268,5 @@ The Diary of H.M. the Shah of Persia
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 سود 19 میلیونی ما از میکس شب گذشته😍💵 🔥توم میخوای هر شب سود کنی؟ همین حالا بیا توی کانال انتن بت 💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍 🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌 ادرس عضویت کانال👇🅰g28 https://t.me/+gYDRnUG5OX03MWJk…
-</div>
-
-## tasiyanc — post 11464
-
-<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰g28
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11463
-
-<div align="center"><video src="files/post_11463_tasiyanc_11463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11463_tasiyanc_11463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 این ویدیو گیم‌پلی GTA VI نیست، متروی تهرانه که وایرال شده!
-
-امروز توی مترو تهران دو نفر با هم درگیر می‌شن که یهو یکی‌شون چاقو درمیاره و ماجرا از یه دعوای معمولی به یه صحنه عجیب و پرتنش تبدیل می‌شه.
-تهران هر روز یه DLC جدید می‌ده بیرون
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11462
-
-<div align="center"><video src="files/post_11462_tasiyanc_11462.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11462_tasiyanc_11462.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 تو GTA 6 ظاهراً باید حواست به اعصاب زن‌ها وقتی پریود هستن باشه!
-
-اگه طرف پریود باشه و عصبی شده باشه، بهتره بی‌خیالش بشی و کاری به کارش نداشته باشی؛ حتی اگه قصد داری ماشینشو بدزدی 😂😂
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11461
-
-<div align="center"><img src="files/post_11461_tasiyanc_11461.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 معرفی «Defyx VPN 📱» یه فیلترشکن جدید برای تست بنر پست حتما باز کنید
-(برای دوستانی که نتونستن با سایفون وصل شن)
-
-اگه دنبال یه VPN جدید هستید، Defyx رو هم امتحان کنید.
-پایبند به حریم خصوصی و No-Logs
-متن‌باز با مجوز MIT
-از روش‌های اتصال مختلف پشتیبانی می‌کنه اگه تیک های زده شده در بنر براتون کار نکرد از پروتکل های دیگر استفاده کنید مثل WARP - MITM
-🔴تنظیمات پیشنهادی و راهنمای اتصال رو قدم به قدم داخل بنر گذاشتم؛ قبل از اتصال حتماً عکس رو ببینید.
-
-دانلود نسخه اندروید 🕹
-دانلود نسخه آیفون 📱
-
-اطلاعات تکمیلی درباره پروژه Defyx 📱
-
-توسعه‌دهنده: UnboundTech UG (haftungsbeschränkt)
-برلین، آلمان
-نظراتتون از طریق دایرکت کانال یا گروه به اشتراک بزارید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11460
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

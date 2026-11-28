@@ -1,8 +1,77 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11589
+
+<div align="center"><video src="files/post_11589_tasiyanc_11589.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11589_tasiyanc_11589.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵اینجا زندانِ جزیره «فوکوک» در ویتنامه؛ جایی که اسرای جنگی فقط با یه قاشق و قوطی حلبی تونستن زیرِ زمین تونل بزنن و از این جهنم فرار کنن.
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11588
+
+<div align="center"><video src="files/post_11588_tasiyanc_11588.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11588_tasiyanc_11588.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵یکی از عجیب‌ترین و ترسناکترین چیزی که انسان جدیدا ساخته این دستگاهه به راحتی فلز ، آلومینیوم رو ذوب می‌کنه فک کن چه بلایی سر گوشت انسان میاره!!
+
+عجیب‌تر اینجاست که خیل راحت توی مارکتی مثل علی‌بابا هم فروخته می‌شه ...
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11587
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰 💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰 ✅ شرط رایگان دریافت کن 💯 کد طرح تشویقی: 888 💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸 🕔 همین حالا ثبت‌نام کن G7🅰 🛒 ورود به سایت 👇 ✅ https://hkowkdix.shop/fa/affiliates/?bta…
+</div>
+
+## tasiyanc — post 11586
+
+<div align="center"><img src="files/post_11586_tasiyanc_11586.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😎 ۱۰۰,۰۰۰,۰۰۰ تومان! 🎁🫰
+
+💰فقط با یک ثبت‌نام ساده در BerryBet می‌تونی وارد این آفر بشی! 💰
+
+✅ شرط رایگان دریافت کن
+
+💯 کد طرح تشویقی: 888
+
+💸 شانس برد تا 🔢🔢🔢 میلیون تومان💸
+
+🕔 همین حالا ثبت‌نام کن
+G7🅰
+🛒 ورود به سایت 👇
+✅ https://hkowkdix.shop/fa/affiliates/?btag=914641_l303106
+
+⚡️ کانال رسمی ما در تلگرام 👇
+✅ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 11585
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 صحنه‌ای هولناک و پشم‌ریزون از یک سرقت مسلحانه مرگبار در پرو از بزرگترین تاجر جواهرات این کشور🇵🇪!
+
+گروهی از سارقان مسلح با حمله به دو خودروی حامل یک تاجر جواهرات و تیم محافظانش، دست به جنایتی خونین زدند.
+در جریان این حمله، تمامی سرنشینان دو خودرو و محافظان به قتل رسیدند.
+مهاجمان پس از این کشتار، با دو چمدان حاوی شمش‌های طلا و جواهرات گران‌بها از محل گریختند.
+پلیس تاکنون موفق به دستگیری هیچ‌یک از عاملان این سرقت نشده است.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11584
 
@@ -215,57 +284,5 @@ https://t.me/+Kj9X7ZcvJe02NTVk
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11566
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨با دو میلیون تومن 84 میلیون بردم 🚨 ⭐فقط رو فرمایی که می‌ذاره بکار صدرصد میگیره همه ی بازیاش لامصب ✔️💲 بیا تو قاب جا نمونی 📱🙂🅰r6 https://t.me/+RrGdOLHKcxVhNWM0
-</div>
-
-## tasiyanc — post 11565
-
-<div align="center"><img src="files/post_11565_tasiyanc_11565.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨با دو میلیون تومن 84 میلیون بردم 🚨
-
-⭐فقط رو فرمایی که می‌ذاره بکار صدرصد
-
-میگیره همه ی بازیاش لامصب ✔️💲
-
-بیا تو قاب جا نمونی 📱🙂🅰r6
-https://t.me/+RrGdOLHKcxVhNWM0
-</div>
-
-## tasiyanc — post 11564
-
-<div align="center"><img src="files/post_11564_tasiyanc_11564.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دوستان گلم این جزیره‌ها تخفیف بلک فرایدی خورده تا آخر امروز وقت دارید بخرید
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11563
-
-<div align="center"><video src="files/post_11563_tasiyanc_11563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11563_tasiyanc_11563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵دوسـت دخـترتون وقتی میخواد جاهای حــساس بدنش (مـ‌*مه و بالای کصـ‌*ش) تتو بزنه اینجوری شما رو می‌پیچونه :
-
-+ مجبور بودم پستش کنم تا سرتون نیاد 🤣
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11562
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+vzPDG_6Rg9E5YmNk https://t.me/+vzPDG_6Rg9E5YmNk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰5
 </div>
 

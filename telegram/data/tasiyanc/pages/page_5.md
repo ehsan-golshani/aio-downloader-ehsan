@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11505
+
+<div align="center"><video src="files/post_11505_tasiyanc_11505.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11505_tasiyanc_11505.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵وقتی واقعیت، از هر فیلمنامه‌ای اشک‌آورتر می‌شود…
+
+در جریان جنگ کره، سربازِ ترک 🇹🇷 به نام سلیمان دیلبیرلیگی دختربچه ۵ ساله‌ای را پیدا می‌کند که همه‌چیزش را از دست داده است. او نام دختر را «آیلا» می‌گذارد و ۱۵ ماه از او مثل فرزند خودش مراقبت می‌کند
+اما بازگشت به ترکیه و سپردن آیلا به پرورشگاه، جدایی ۶۰ ساله‌ای را رقم می‌زند؛
+در نهایت آیلا و سلیمان در سال ۲۰۱۰ پس از ۶۰ سال با کمک خبرنگار های حرفه ای به همدیگه رسیدند و « آیلا » تا لحظه مرگ سلیمان پیشش موند
+این اتفاق واقعی، الهام‌بخش فیلم سینمایی «آیلا: دختر جنگ» شد؛ فیلمی درباره عشق، فقدان و خانواده‌ای که با مهربانی شکل می‌گیرد.
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11504
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰1 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
+</div>
+
+## tasiyanc — post 11503
+
+<div align="center"><img src="files/post_11503_tasiyanc_11503.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+🅰1
+https://t.me/+gagcxCKK4QQzNGI8
+https://t.me/+gagcxCKK4QQzNGI8
+
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11502
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+ترامپ ک*ص ننت
+</div>
+
+## tasiyanc — post 11501
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قطعی بشه مام میشیم عزیز دل خیلیا مثل جنگ ۴۰ روزه!
+</div>
 
 ## tasiyanc — post 11500
 
@@ -211,62 +263,5 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 اگه از امشب تا ۷ روز آینده برای بچه‌دار شدن اقدام کنید، احتمالاً بچه‌تون سال آینده دقیقاً ۰۶/۰۶/۰۶ به دنیا میاد!
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11484
-
-<div align="center"><video src="files/post_11484_tasiyanc_11484.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11484_tasiyanc_11484.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵شادی خیری، دانشجوی کارشناسی ترم آخر مهندسی شیمی دانشگاه شریف، با سقوط از طبقه دوم خوابگاه دانشگاه به زندگی خود پایان داد
-
-طبق روایت‌های منتشرشده، این دانشجو با فشارهای روحی و روانی شدیدی مواجه بوده و به همین دلیل خودکشی کرده
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11483
-
-<div align="center"><video src="files/post_11483_tasiyanc_11483.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11483_tasiyanc_11483.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 مدیرعامل دیوار: بابت انتشار آگهی‌های کفش و ماساژ به یک سال حبس محکوم شدم!
-
-آرمندهی می‌گوید بسیاری از این آگهی‌ها مربوط به خدمات جنسی بوده، اما امکان تشخیص نیت واقعی آگهی‌دهندگان را نداشته و با این حال، به اتهام فراهم‌کردن مکان فساد به یک سال حبس محکوم شده است.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11482
-
-<div align="center"><img src="files/post_11482_tasiyanc_11482.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 بعد از موج قتل دختران به دست پدرانشان، مجلس به فکر تغییر قانون افتاد!
-
-نمایندگان مجلس طرح دوفوریتی‌ای را مطرح کرده‌اند که بر اساس آن، حداقل مجازات قتل فرزند توسط پدر از ۳ تا ۱۰ سال حبس به ۲۵ سال زندان افزایش پیدا می‌کند و محکومان مشمول هیچ‌گونه بخششی نخواهند شد.
-حالا باید دید این طرح به تصویب می‌رسد یا نه...
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11481
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30 https://t.me/+yuNWNQ9zSYFhMWJk https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11480
-
-<div align="center"><img src="files/post_11480_tasiyanc_11480.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
-https://t.me/+yuNWNQ9zSYFhMWJk
-https://t.me/+yuNWNQ9zSYFhMWJk
 </div>
 

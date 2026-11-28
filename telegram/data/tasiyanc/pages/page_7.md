@@ -1,8 +1,97 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11464
+
+<div align="center"><img src="files/post_11464_tasiyanc_11464.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+سود 19 میلیونی ما از میکس شب گذشته😍💵
+
+🔥توم میخوای هر شب سود کنی؟
+همین حالا بیا توی کانال انتن بت
+
+💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
+
+🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
+
+ادرس عضویت کانال👇🅰g28
+https://t.me/+gYDRnUG5OX03MWJk
+https://t.me/+gYDRnUG5OX03MWJk
+</div>
+
+## tasiyanc — post 11463
+
+<div align="center"><video src="files/post_11463_tasiyanc_11463.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11463_tasiyanc_11463.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 این ویدیو گیم‌پلی GTA VI نیست، متروی تهرانه که وایرال شده!
+
+امروز توی مترو تهران دو نفر با هم درگیر می‌شن که یهو یکی‌شون چاقو درمیاره و ماجرا از یه دعوای معمولی به یه صحنه عجیب و پرتنش تبدیل می‌شه.
+تهران هر روز یه DLC جدید می‌ده بیرون
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11462
+
+<div align="center"><video src="files/post_11462_tasiyanc_11462.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11462_tasiyanc_11462.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 تو GTA 6 ظاهراً باید حواست به اعصاب زن‌ها وقتی پریود هستن باشه!
+
+اگه طرف پریود باشه و عصبی شده باشه، بهتره بی‌خیالش بشی و کاری به کارش نداشته باشی؛ حتی اگه قصد داری ماشینشو بدزدی 😂😂
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11461
+
+<div align="center"><img src="files/post_11461_tasiyanc_11461.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 معرفی «Defyx VPN 📱» یه فیلترشکن جدید برای تست بنر پست حتما باز کنید
+(برای دوستانی که نتونستن با سایفون وصل شن)
+
+اگه دنبال یه VPN جدید هستید، Defyx رو هم امتحان کنید.
+پایبند به حریم خصوصی و No-Logs
+متن‌باز با مجوز MIT
+از روش‌های اتصال مختلف پشتیبانی می‌کنه اگه تیک های زده شده در بنر براتون کار نکرد از پروتکل های دیگر استفاده کنید مثل WARP - MITM
+🔴تنظیمات پیشنهادی و راهنمای اتصال رو قدم به قدم داخل بنر گذاشتم؛ قبل از اتصال حتماً عکس رو ببینید.
+
+دانلود نسخه اندروید 🕹
+دانلود نسخه آیفون 📱
+
+اطلاعات تکمیلی درباره پروژه Defyx 📱
+
+توسعه‌دهنده: UnboundTech UG (haftungsbeschränkt)
+برلین، آلمان
+نظراتتون از طریق دایرکت کانال یا گروه به اشتراک بزارید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11460
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11459
 
@@ -281,76 +370,5 @@ https://jhet0n.online/fa/?btag=2786270
 
 
 🚨 برای ورود به سایت، حتما از فیلترشکن با سرورهای آلمان، کانادا و سرورهای آسیایی استفاده نمایید.🅰r28
-</div>
-
-## tasiyanc — post 11444
-
-<div align="center"><img src="files/post_11444_tasiyanc_11444.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 165 هزار امضا ( در ساعت اشتراک گذاری پست در کانال ) برای اعدام پدر سوگند صیادی؛ کارزار مطالبه اجرای حکم به راه افتاد!
-
-بعد از قتل سوگند صیادی توسط پدرش، کارزاری برای مطالبه اجرای حکم اعدام او شکل گرفته که طبق اعلام سایت کارزار ، تا الان 165 هزار نفر امضاش کردن.
-
-اگه موافق این مطالبه‌اید، لینک کارزار رو توی گروه‌ها و کانال‌هاتون پخش کنید تا صدای این مطالبه بیشتر شنیده بشه و پرونده به فراموشی سپرده نشه.
-
-🔗 https://www.karzar.net/360146
-
-
-کمپین : #سوگند_تنها_نیست
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11443
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰27 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11442
-
-<div align="center"><img src="files/post_11442_tasiyanc_11442.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-🅰27
-https://t.me/+gagcxCKK4QQzNGI8
-https://t.me/+gagcxCKK4QQzNGI8
-
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
-</div>
-
-## tasiyanc — post 11441
-
-<div align="center"><video src="files/post_11441_tasiyanc_11441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11441_tasiyanc_11441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 نجات معجزه‌آسای یک دانشجو از حادثه ریزش کمددیواری!
-
-ویدیویی از خوابگاهی در شهر «کوتا» هند وایرال شده که لحظه سقوط ناگهانی یک کمد دیواری رو درست کنار یک دانشجو نشون می‌ده. کمد در آستانه سقوط روی سرش بود، اما دانشجو با خوش‌شانسی از این حادثه جون سالم به در برد!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11440
-
-<div align="center"><img src="files/post_11440_tasiyanc_11440.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ۱۴۶ سال زندان برای زنی که خودش را دختر ۱۳ ساله جا زده بود و با پسرای کم سن سال سکس میکرد!
-
-آلیسا زینگر، زن ۲۲ ساله آمریکایی در فلوریدا، به اتهام سوءاستفاده جنسی (سکس) از چندین پسر ۱۳ و ۱۴ ساله به ۱۴۶ سال زندان محکوم شده.
-این زن با جا زدن خودش به‌عنوان یک نوجوان ۱۳ ساله، اعتماد قربانی‌ها رو جلب می‌کرد، از اون‌ها سوءاستفاده می‌کرد و از روابطشون فیلم می‌گرفت.
-ماجرا وقتی لو رفت که یکی از قربانی‌ها بیمار شد و خانواده‌اش پیگیر ماجرا شدن.
-
-💋 @Tasiyanc
 </div>
 

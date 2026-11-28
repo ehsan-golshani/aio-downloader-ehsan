@@ -1,8 +1,60 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11566
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨با دو میلیون تومن 84 میلیون بردم 🚨 ⭐فقط رو فرمایی که می‌ذاره بکار صدرصد میگیره همه ی بازیاش لامصب ✔️💲 بیا تو قاب جا نمونی 📱🙂🅰r6 https://t.me/+RrGdOLHKcxVhNWM0
+</div>
+
+## tasiyanc — post 11565
+
+<div align="center"><img src="files/post_11565_tasiyanc_11565.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨با دو میلیون تومن 84 میلیون بردم 🚨
+
+⭐فقط رو فرمایی که می‌ذاره بکار صدرصد
+
+میگیره همه ی بازیاش لامصب ✔️💲
+
+بیا تو قاب جا نمونی 📱🙂🅰r6
+https://t.me/+RrGdOLHKcxVhNWM0
+</div>
+
+## tasiyanc — post 11564
+
+<div align="center"><img src="files/post_11564_tasiyanc_11564.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+دوستان گلم این جزیره‌ها تخفیف بلک فرایدی خورده تا آخر امروز وقت دارید بخرید
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11563
+
+<div align="center"><video src="files/post_11563_tasiyanc_11563.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11563_tasiyanc_11563.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵دوسـت دخـترتون وقتی میخواد جاهای حــساس بدنش (مـ‌*مه و بالای کصـ‌*ش) تتو بزنه اینجوری شما رو می‌پیچونه :
+
++ مجبور بودم پستش کنم تا سرتون نیاد 🤣
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11562
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+vzPDG_6Rg9E5YmNk https://t.me/+vzPDG_6Rg9E5YmNk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰5
+</div>
 
 ## tasiyanc — post 11561
 
@@ -215,61 +267,5 @@ https://t.me/+Qej4hrwIZsU0NmQ0
 https://t.me/+Qej4hrwIZsU0NmQ0
 
 🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰4
-</div>
-
-## tasiyanc — post 11546
-
-<div align="center"><video src="files/post_11546_tasiyanc_11546.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11546_tasiyanc_11546.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 نسـخه ایرانــی شکیــــرا هــم آنلـاک شـد !
-
-شکـیرا خبر نداره تو ایــران یه بـدل داره که با اجـــراهای تولــد داره حسابـی وایـرال میشه ؛
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11545
-
-<div align="center"><img src="files/post_11545_tasiyanc_11545.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵دیـشب بانو « جـنیـفر بـارتو » نماینده پورتوریکو، به عنوان زیـباتـرین زن جــهان در سال ۲۰۲۶ انتخـاب شد و تاج ملکه زیبایی رو گذاشت روی سرش؛ رقابتی که نماینده کشورهای مختلف توش حضور داشتن و در نهایت این عنوان به پورتوریکو رسید.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11544
-
-<div align="center"><video src="files/post_11544_tasiyanc_11544.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11544_tasiyanc_11544.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵این بلاگر خانم با چند حرکت ساده نشون می‌ده چقدر چیزی که تو فضای مجازی می‌بینیم با واقعیت فرق داره؛ از چهره بزک‌شده و فیلترخورده تا ظاهر واقعی.
-
-جالب اینجاست که چهره طبیعی خودش هم هیچ مشکلی نداره، اتفاقاً به‌نظر زنده‌تر و دوست‌داشتنی‌تره؛ ولی اختلاف بین این دو چهره واقعاً زیاده. خلاصه اینستاگرام رو با واقعیت اشتباه نگیرید، خیلی چیزا اون چیزی نیست که بهتون نشون میدن.
-💋﻿ @Tasiyanc
-</div>
-
-## tasiyanc — post 11543
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11542
-
-<div align="center"><img src="files/post_11542_tasiyanc_11542.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g4🅰
-https://t.me/+Kj9X7ZcvJe02NTVk
-https://t.me/+Kj9X7ZcvJe02NTVk
 </div>
 

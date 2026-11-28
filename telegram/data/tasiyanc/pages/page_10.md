@@ -1,8 +1,83 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11402
+
+<div align="center"><video src="files/post_11402_tasiyanc_11402.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11402_tasiyanc_11402.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیویی از یه زوج ایرانی وایرال شده که سال ۲۰۲۳ ازدواج کردن، سال ۲۰۲۴ صاحب اولین دخترشون شدن، سال ۲۰۲۶ هم دختر دومشون به دنیا اومده و حالا سومی‌ام تو راهه!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11401
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
+</div>
+
+## tasiyanc — post 11400
+
+<div align="center"><img src="files/post_11400_tasiyanc_11400.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول 100% بونوس😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15%  شارژ اضافی برای شارژ ارزی
+➕100 اسپین رایگان هفتگی
+➕20% برگشت باخت روزانه برای بازی های کازینویی
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🤩دنیای هدایا بی نظیر در ژتون بت
+
+🖥️ادرس ورود به سایت:24🅰
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 11398
+
+<div align="center"><img src="files/post_11398_tasiyanc_11398.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 «سوگند صیادی» دختر 16 ساله اهل کرمانشاه، به دست پدرش به قتل رسید!
+
+سوگند لزبین بود و با یک دختر رابطه عاطفی داشت. همکلاسی‌هایی که باهاش مشکل داشتن، موضوع رو به مدیر مدرسه اطلاع می‌دن و سوگند رو لو می‌دن.
+سوگند در دفتر مدیر بهش التماس می‌کنه که به پدرش چیزی نگه، چون می‌ترسیده پدرش جونش رو بگیره؛ اما مدیر با پدرش تماس می‌گیره و ماجرا رو کامل تعریف می‌کنه.
+پدر سوگند به مدرسه میاد و دخترش رو به خونه می‌بره، بعد از کتک زدن و شکنجه سوگند، اون رو از طبقه پنجم به پایین پرت می‌کنه و این دختر ۱۶ ساله جانش رو از دست می‌ده.
+تلخ‌تر اینکه ، پدرش گفته: «این دختر من نیست، شهرداری بیاد ببرتش و خاکش کنه!»
+فقط سه روز به تولد سوگند مونده بود...🖤
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11397
+
+<div align="center"><img src="files/post_11397_tasiyanc_11397.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مدال افتخار دولت لهستان🇵🇱 به زوج‌هایی که ۵۰ سال عاشق هم موندن!
+
+در لهستان، زوج‌هایی که بیش از ۵۰ سال زندگی مشترک داشته باشن، از طرف دولت با مدالی ویژه مورد تقدیر قرار می‌گیرن.
+این سنت از سال ۱۹۶۰ آغاز شده و تا امروز ادامه داره؛ نوعی قدردانی از زوج‌هایی که بیش از نیم‌قرن در کنار هم موندن و زندگی مشترکشون رو حفظ کردن.
+💋@Tasiyanc
+</div>
 
 ## tasiyanc — post 11396
 
@@ -222,69 +297,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 عشق گربه ای دیده بودید؟ همینه
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11380
-
-<div align="center"><img src="files/post_11380_tasiyanc_11380.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⏺بابک زنجانی یه ویدیو از خودشو گربش گذاشت و اما کامنتای مردم دیدنیه:
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11379
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-شما هم ویروسی گرفتید خوب نمیشید؟ 😐 ۷ روزه درگیرم
-</div>
-
-## tasiyanc — post 11378
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-𝐓.𝐦𝐞__𝐓𝐚𝐬𝐢𝐲𝐚𝐧𝐜 🔥.zip
-</div>
-
-## tasiyanc — post 11377
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-👼15 کانفیگ نامحدود و پرسرعت اختصاصی « وایرگارد» 👼
-
-مناسب دانلود ⬇️ گیم 🎮 اینستاگرام 📸
-
-حجم و کاربر نامحدود 🟢
-
-تست شده با تمام اپراتورها
-
-دانلود 📱Android🕹  iOS
-
-آموزش اتصال با WgTunnel ⛓
-
-آموزش اتصال با فیلترشکن Windscribe ⛓
-
-
-فایل ZIP را در برنامه WG TUNNEL باز کنید
-
-اتصال امن برای همه 🇮🇷
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11376
-
-<div align="center"><video src="files/post_11376_tasiyanc_11376.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11376_tasiyanc_11376.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵اگه عقلتونو بدید دست دودولتون، آخرش همچین فاجعه‌ای بزرگ به بار میاد!
-
-شاهکاری که جنسن هوانگ « مدیرعامل انویدیا» رقم زده، رسماً در حد یک بگایی تاریخی بوده؛ نه‌تنها زندگی شخصی خودش رو به فنا داده، بلکه ماجرا به ضرر و زیان 200.000.000.000 میلیارد دلاری و ضربه‌ای سنگین به انویدیا هم کشید و این شرکت نزدیک بگایی رفته !
-
-
-💋 @Tasiyanc
 </div>
 

@@ -1,8 +1,79 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/09/07 13:12
+📅 آخرین بروزرسانی: 1405/09/07 21:31
 
 ---
+
+## tasiyanc — post 11444
+
+<div align="center"><img src="files/post_11444_tasiyanc_11444.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 165 هزار امضا ( در ساعت اشتراک گذاری پست در کانال ) برای اعدام پدر سوگند صیادی؛ کارزار مطالبه اجرای حکم به راه افتاد!
+
+بعد از قتل سوگند صیادی توسط پدرش، کارزاری برای مطالبه اجرای حکم اعدام او شکل گرفته که طبق اعلام سایت کارزار ، تا الان 165 هزار نفر امضاش کردن.
+
+اگه موافق این مطالبه‌اید، لینک کارزار رو توی گروه‌ها و کانال‌هاتون پخش کنید تا صدای این مطالبه بیشتر شنیده بشه و پرونده به فراموشی سپرده نشه.
+
+🔗 https://www.karzar.net/360146
+
+
+کمپین : #سوگند_تنها_نیست
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11443
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 🅰27 https://t.me/+gagcxCKK4QQzNGI8 https://t.me/+gagcxCKK4QQzNGI8 🎯نمونه سود…
+</div>
+
+## tasiyanc — post 11442
+
+<div align="center"><img src="files/post_11442_tasiyanc_11442.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
+
+اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
+
+📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
+🅰27
+https://t.me/+gagcxCKK4QQzNGI8
+https://t.me/+gagcxCKK4QQzNGI8
+
+🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
+</div>
+
+## tasiyanc — post 11441
+
+<div align="center"><video src="files/post_11441_tasiyanc_11441.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11441_tasiyanc_11441.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 نجات معجزه‌آسای یک دانشجو از حادثه ریزش کمددیواری!
+
+ویدیویی از خوابگاهی در شهر «کوتا» هند وایرال شده که لحظه سقوط ناگهانی یک کمد دیواری رو درست کنار یک دانشجو نشون می‌ده. کمد در آستانه سقوط روی سرش بود، اما دانشجو با خوش‌شانسی از این حادثه جون سالم به در برد!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11440
+
+<div align="center"><img src="files/post_11440_tasiyanc_11440.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ۱۴۶ سال زندان برای زنی که خودش را دختر ۱۳ ساله جا زده بود و با پسرای کم سن سال سکس میکرد!
+
+آلیسا زینگر، زن ۲۲ ساله آمریکایی در فلوریدا، به اتهام سوءاستفاده جنسی (سکس) از چندین پسر ۱۳ و ۱۴ ساله به ۱۴۶ سال زندان محکوم شده.
+این زن با جا زدن خودش به‌عنوان یک نوجوان ۱۳ ساله، اعتماد قربانی‌ها رو جلب می‌کرد، از اون‌ها سوءاستفاده می‌کرد و از روابطشون فیلم می‌گرفت.
+ماجرا وقتی لو رفت که یکی از قربانی‌ها بیمار شد و خانواده‌اش پیگیر ماجرا شدن.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11439
 
@@ -233,62 +304,5 @@ http://my.sanjesh.org/
 📌 نکته قابل‌توجه برای ایران، تأکید ویژه اکونومیست بر پیامدهای جنگ ایران است؛ موضوعی که به اعتقاد این نشریه می‌تواند فراتر از خاورمیانه، بازار انرژی و امنیت غذایی جهان را نیز تحت تأثیر قرار دهد.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11424
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دبل وین با دوتا «گل‌گل» ✅💚 ⚽️ اسپانیا – انگلیس | هر دو تیم گل می‌زنند ✅ ⚽️ بلژیک – ایتالیا | هر دو تیم گل می‌زنند ✅ 💵 مبلغ هر شرط: ۴۰ میلیون تومان 📈 ضریب هر دو: ۱.۵۶ 💰 دریافتی مجموع: ۱۲۴.۸ میلیون تومان 🔥 سود خالص دو شرط: ۴۴.۸ میلیون تومان g26🅰 مبارک رفقایی…
-</div>
-
-## tasiyanc — post 11423
-
-<div align="center"><img src="files/post_11423_tasiyanc_11423.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دبل وین با دوتا «گل‌گل» ✅💚
-⚽️ اسپانیا – انگلیس | هر دو تیم گل می‌زنند ✅
-⚽️ بلژیک – ایتالیا | هر دو تیم گل می‌زنند ✅
-💵 مبلغ هر شرط: ۴۰ میلیون تومان
-📈 ضریب هر دو: ۱.۵۶
-💰 دریافتی مجموع: ۱۲۴.۸ میلیون تومان
-🔥 سود خالص دو شرط: ۴۴.۸ میلیون تومان
-g26🅰
-مبارک رفقایی که همراه بودن 🤝💚
-🆔 @Tipster_Persians | تیپستر پرشین
-</div>
-
-## tasiyanc — post 11422
-
-<div align="center"><video src="files/post_11422_tasiyanc_11422.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11422_tasiyanc_11422.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵« فیلم وایرال شده » از یه دختر تهرانی که بعد از خوردن چند پیک مشروب، سر از جوی آب درآورده و دیگه توان بیرون اومدن ازش رو نداره!
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11421
-
-<div align="center"><video src="files/post_11421_tasiyanc_11421.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11421_tasiyanc_11421.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵خبر تکمیلی از دختر کرمانشاهی که پدرش بی‌رحمانه بقتلش رساند آگهی ترحیم سوگند صیادی نکته جالب داره که اسم پدرش (قاتلش) هم روی اعلامیه هست!! همسایه خونه سوگند: تا یک ساعت بعد از اینکه بابای سوگند اونو از طبقه پنجم ساختمون پرت کرده بود پایین، اصلاً نرفت ببینه…
-</div>
-
-## tasiyanc — post 11420
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 
