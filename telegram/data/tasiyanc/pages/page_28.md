@@ -1,8 +1,39 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/09/07 21:31
+📅 آخرین بروزرسانی: 1405/09/08 03:21
 
 ---
+
+## tasiyanc — post 10966
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨سفیر آمریکا در ترکیه احتمال حمله به ایران در شنبه یا یکشنبه رو تأیید کرد!
+
+تام باراک در پاسخ به احتمال حمله آمریکا به ایران در 48 ساعت آینده گفت: قطعا، ممکنه
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10965
+
+<div align="center"><img src="files/post_10965_tasiyanc_10965.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵تفاوت پشم ریزون گرافیک GTA 5 و GTA 6 رو ببینید
+
+از گرافیک و جزئیات پوست و لباس گرفته تا نورپردازی و محیط بازی، راکستار حسابی سطح رو برده بالا!
+
+
+⚡ @Tasiyanc
+</div>
+
+## tasiyanc — post 10964
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵همزمان با عبور انفجاری قیمت نفت از 117 118 دلار ، طلای جهانی حمایت 4هزار دلاری رو از دست داده و بورس آمریکا تماما قرمز شده !!!! خبریه؟
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 10963
 
@@ -248,46 +279,5 @@ G30🅰
 
 ⚡️ کانال رسمی ما در تلگرام 👇
 ✅ https://t.me/BerryBetOfficial
-</div>
-
-## tasiyanc — post 10946
-
-<div align="center"><video src="files/post_10946_tasiyanc_10946.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10946_tasiyanc_10946.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 شرکت چینی Unitree از ربات بادیگارد خود با قابلیت اجرای حرکات رزمی و قدرت ضربات بالا رونمایی کرد.
-
-طبق ویدئوی منتشرشده، این ربات قادر است ضربات قدرتمندی وارد کند که به بدنه خودرو آسیب می‌زند.
-
-نکته قابل‌توجه، تأکید شرکت سازنده بر استفاده «دوستانه و ایمن» از این ربات است؛ هشداری که با توجه به توانایی‌های فیزیکی آن، اهمیت ویژه‌ای دارد
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10945
-
-<div align="center"><img src="files/post_10945_tasiyanc_10945.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مهدی خراتیان کارشناس صداوسیما:
-
-«سامانهٔ پاسخ هسته‌ای خودکار فعال شد.»
-
-یعنی اگه آمریکا و اسرائیل به فرماندهان ارشد ایران حمله و اونارو ترور کنن، به صورت خودکار حتی بدون وجودشون، به اهداف از پیش تعیین شده حمله هسته‌ای صورت میگیره!
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10943
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پرزیدنت دونالد ترامپ:
-
-مذاکره با ایران تقریبا برام تموم شدست. به زودی اتفاقی در ایران رقم میزنیم. خیلیا فکر میکنن این اتفاق بعد از انتخابات میفته ولی خواهیم دید چه خواهد شد.
-
-قطعی اینترنت از رگ گردن نزدیک‌تره!!!!
-
-💋 @Tasiyanc
 </div>
 

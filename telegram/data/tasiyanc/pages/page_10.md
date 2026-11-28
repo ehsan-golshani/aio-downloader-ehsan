@@ -1,8 +1,55 @@
 # آرشیو کانال tasiyanc - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/09/07 21:31
+📅 آخرین بروزرسانی: 1405/09/08 03:21
 
 ---
+
+## tasiyanc — post 11405
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
+
+## tasiyanc — post 11404
+
+<div align="center"><img src="files/post_11404_tasiyanc_11404.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
+✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
+
+✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
+
+⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
+⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
+⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
+⬅️ برداشت‌های آنی و بدون معطلی
+⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
+_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
+✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r25
+✅ https://DerbyBet.com
+📩 @Derbybet
+</div>
+
+## tasiyanc — post 11403
+
+<div align="center"><video src="files/post_11403_tasiyanc_11403.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11403_tasiyanc_11403.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵افتتاحیه‌ای که به ورشکستگی ختم شد؛ فلافلی آبادان زیر هجوم وحمله مردم به سلف سرویس دوام نیاورد!
+
+یه فلافلی تو آبادان به مناسبت افتتاح شعبه جدیدش، سلف‌سرویس رایگان راه انداخته بود؛ اما هجوم مردم به سلف سرویس و ساندویچ‌هایی که انگار با بیل پر شده بودن، کار رو به جایی رسوند که صاحب مغازه مجبور شد کل شعبه رو تعطیل کنه و اعلام ورشکستگی کنه!
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11402
 
@@ -251,51 +298,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 فرصت محدود رفقا زود عضو شین 🆗
 اینجا خاص ترین و کم ریسک ترین اپشنا قرار میدن راحت سود میکنی🚀
 https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11383
-
-<div align="center"><img src="files/post_11383_tasiyanc_11383.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-سود 19 میلیونی ما از میکس شب گذشته😍💵
-
-🔥توم میخوای هر شب سود کنی؟
-همین حالا بیا توی کانال انتن بت
-
-💵اگ هر شب با 500هزارتومن بیای کانال ما حداقل با 5 میلیون برمیگردی 😍
-
-🔥عضو کانال شو و ببین چطور همه دارن سود میکنن👌
-
-ادرس عضویت کانال👇🅰23
-https://t.me/+gYDRnUG5OX03MWJk
-https://t.me/+gYDRnUG5OX03MWJk
-</div>
-
-## tasiyanc — post 11382
-
-<div align="center"><img src="files/post_11382_tasiyanc_11382.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🚨پیتر جرمانوس تحلیلگر مشهور لبنانی:
-
-تا ۷۲ ساعت دیگه اتفاق بزرگی رخ میده که جهان رو تکون خواهد داد.
-
-جنگ جهانی!
-
-@Tasiyanc
-</div>
-
-## tasiyanc — post 11381
-
-<div align="center"><video src="files/post_11381_tasiyanc_11381.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11381_tasiyanc_11381.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-دیت عاشقانه دو تا گربه و میک‌لاوشون انقدر دلبر و بامزه از آب دراومده که این کلیپ به پربازدیدترین ویدیوی ۲۴ ساعت اخیر تبدیل شده! 😂💘
-
-عشق گربه ای دیده بودید؟ همینه
-💋@Tasiyanc
 </div>
 

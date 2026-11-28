@@ -1,8 +1,48 @@
 # آرشیو کانال tasiyanc - صفحه 1
 
-📅 آخرین بروزرسانی: 1405/09/07 21:31
+📅 آخرین بروزرسانی: 1405/09/08 03:21
 
 ---
+
+## tasiyanc — post 11592
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🏆 یک گل جلو بیفت، برنده شو! ☑️ با قابلیت جدید «یک گل جلو» در بری بت، لازم نیست تا سوت پایان منتظر بمونی! 🧭🆗 کافیه روی بازی‌های فوتبال لیگ‌های منتخب، قبل از شروع مسابقه شرط تکی یا میکس ببندی. اگه تیم انتخابی‌ات حتی برای یک لحظه یک گل جلو بیفته، شرطت برنده…
+</div>
+
+## tasiyanc — post 11591
+
+<div align="center"><img src="files/post_11591_tasiyanc_11591.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔥🏆 یک گل جلو بیفت، برنده شو!
+
+☑️ با قابلیت جدید «یک گل جلو» در بری بت، لازم نیست تا سوت پایان منتظر بمونی!
+
+🧭🆗 کافیه روی بازی‌های فوتبال لیگ‌های منتخب، قبل از شروع مسابقه شرط تکی یا میکس ببندی. اگه تیم انتخابی‌ات حتی برای یک لحظه یک گل جلو بیفته، شرطت برنده می‌شه! 🔝
+
+👍🔥 از لیگ برتر انگلیس تا لالیگا، سری آ و لیگ قهرمانان اروپا؛ هیجان برد زودهنگام رو تجربه کن!
+
+🎁 بری بت؛ یک گل تا برد فاصله داری!
+
+🌐 ورود به سایت 👇
+⭐️ https://hkowkdix.shop/fa/affiliates/?btag=914641_l303106
+
+🌐 کانال رسمی ما در تلگرام 👇🅰7
+⭐️ https://t.me/BerryBetOfficial
+</div>
+
+## tasiyanc — post 11590
+
+<div align="center"><img src="files/post_11590_tasiyanc_11590.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+قیمت هر دلار 🇺🇸 302000 تومان
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11589
 
@@ -236,53 +276,5 @@ https://t.me/+6L9plEThEMk5YTJk
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g6🅰 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11569
-
-<div align="center"><img src="files/post_11569_tasiyanc_11569.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-تبانی لو رفته از لیگ برتر ایران🇮🇷
-
-🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
-5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g6🅰
-https://t.me/+Kj9X7ZcvJe02NTVk
-https://t.me/+Kj9X7ZcvJe02NTVk
-</div>
-
-## tasiyanc — post 11568
-
-<div align="center"><video src="files/post_11568_tasiyanc_11568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11568_tasiyanc_11568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امکانات و خدمات عجیب یه اسنپ برای مسافراش ، که شبیه هتل سیار شده ، شرط می‌بندم پسر جماعت به همین اسنپ سلام کنه جوابشو نمی‌ده و مخصوص دختراس .
-+ ک*صکش هول راس میگی پسر سوار کن
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11567
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵مجموعه 15 کانفیگ وایرگارد «مخصوص گیم و دانلود » اختصاصی پرسرعت برای اندروید و آیفون برنامه WG TUNNEL & Windscribe
-
-تست شده با تمام اپراتورها و وای‌فای 🛜🛜🛜🛜
-با وارد کردن فایل zip داخل برنامه 15 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید .
-حجم و کاربر نامحدود 🟢
-
-تست شده با تمام اپراتورها
-
-دانلود 🍏 Android 🏳️ iOS
-
-آموزش اتصال با WgTunnel
-
-آموزش اتصال با فیلترشکن Windscribe
-
-
-
-💋 @Tasiyanc
 </div>
 

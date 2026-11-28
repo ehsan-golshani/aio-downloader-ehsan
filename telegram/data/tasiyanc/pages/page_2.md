@@ -1,8 +1,56 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/09/07 21:31
+📅 آخرین بروزرسانی: 1405/09/08 03:21
 
 ---
+
+## tasiyanc — post 11569
+
+<div align="center"><img src="files/post_11569_tasiyanc_11569.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷
+
+🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅
+5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇g6🅰
+https://t.me/+Kj9X7ZcvJe02NTVk
+https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
+
+## tasiyanc — post 11568
+
+<div align="center"><video src="files/post_11568_tasiyanc_11568.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11568_tasiyanc_11568.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امکانات و خدمات عجیب یه اسنپ برای مسافراش ، که شبیه هتل سیار شده ، شرط می‌بندم پسر جماعت به همین اسنپ سلام کنه جوابشو نمی‌ده و مخصوص دختراس .
++ ک*صکش هول راس میگی پسر سوار کن
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11567
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵مجموعه 15 کانفیگ وایرگارد «مخصوص گیم و دانلود » اختصاصی پرسرعت برای اندروید و آیفون برنامه WG TUNNEL & Windscribe
+
+تست شده با تمام اپراتورها و وای‌فای 🛜🛜🛜🛜
+با وارد کردن فایل zip داخل برنامه 15 کانفیگ جدید داخل برنامه اضافه میشود , کانفیگ های قبلی که کار نمی‌کنند پاک کنید .
+حجم و کاربر نامحدود 🟢
+
+تست شده با تمام اپراتورها
+
+دانلود 🍏 Android 🏳️ iOS
+
+آموزش اتصال با WgTunnel
+
+آموزش اتصال با فیلترشکن Windscribe
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11566
 
@@ -229,43 +277,5 @@ https://jhet0n.online/fa/?btag=2786270
 
 اما چیزی که خیلی آزارم داد، واکنش این جیندا خانم بود؛ به‌جای اینکه بابت خیانت و پنهان‌کاری خودش توضیح بده، طلبکارانه به مرد اعتراض میکنه که چرا با جعل هویت فریبش داده!
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11549
-
-<div align="center"><video src="files/post_11549_tasiyanc_11549.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11549_tasiyanc_11549.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵پشـم‌ریزون‌ترین اتفاق تاریخ ف‍ـوتبال؛ داور سوری✌️ بازی مست کرده بود! 😂
-
-داور دیدار گل‌گهر و الجزیره، بین دو نیمه تعویض شد و داور چهارم جاش رو گرفت!
-گفته می‌شه ناظر بازی بین دو نیمه متوجه وضعیت غیرعادی داور شده؛ جالب‌تر اینکه مهدی رحمتی، سرمربی گل‌گهر هم اواخر نیمه اول رو به نیمکت تیمش گفته بود: «داور مسته!»
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11548
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+Qej4hrwIZsU0NmQ0 https://t.me/+Qej4hrwIZsU0NmQ0 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11547
-
-<div align="center"><img src="files/post_11547_tasiyanc_11547.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+Qej4hrwIZsU0NmQ0
-https://t.me/+Qej4hrwIZsU0NmQ0
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰4
 </div>
 
