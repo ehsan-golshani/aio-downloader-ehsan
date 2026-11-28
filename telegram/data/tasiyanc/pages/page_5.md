@@ -1,8 +1,111 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/07 05:25
+📅 آخرین بروزرسانی: 1405/09/07 13:12
 
 ---
+
+## tasiyanc — post 11500
+
+<div align="center"><video src="files/post_11500_tasiyanc_11500.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11500_tasiyanc_11500.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از حرکات دیدنی و خارج از تصور منصور بهرامی،تنیسور ایرانی🇮🇷 که با سبک بازی متفاوتش تماشاگرها رو غافلگیر می‌کنه؛ حرکاتی که بیشتر از یه مسابقه تنیس، شبیه اجرای زنده و نمایش هنریه!
+
+فقط یه ایرانی می‌تونه اینقدر کسخل و باحال باشه😂😂
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11499
+
+<div align="center"><video src="files/post_11499_tasiyanc_11499.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11499_tasiyanc_11499.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه دلقکی رفته 15 ساعت پشت هم با لوسیا تو GTA 6 بدنسازی کار کرده , لوسیارو تبدیل کرده به رونی کولمن با جیسون داره دمبل میزنه 🤣
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11498
+
+<div align="center"><img src="files/post_11498_tasiyanc_11498.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵۱۰ سال انتظار برای انتقام قتل خواهر؛ بهرام ۱۲ نفر از اعضای خانواده‌اش را کشت!
+
+بهرام، معلم جوان ۲۲ ساله اهل فاریاب کرمان، پس از قتل خواهرش توسط پدر، برادرهای بزرگ‌تر و چند نفر از بستگان، به‌دلیل صحبت کردن او با یک پسر، ۱۰ سال با این ماجرا زندگی کرد تا سرانجام دست به انتقام زد.
+او در اقدامی خونین، پدر، برادرهایش و دیگر افراد دخیل در قتل خواهرش را با کلا*شنیکف هدف قرار داد
+در مجموع ۱۲ نفر کشته شدن. بهرام هم در جریان دستگیری و درگیری با پلیس کشته شد.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11497
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖 🎖️معتبرترین سایت روسی فعال در ایران🎖️ ⛔شارژ از طریق کارت بانکی،ارز،ووچر ⛔تسویه حساب سریع و امن بدون احرازهویت 💎هدایا سایت جهانی ژتون بت: ➕واریز اول 100% بونوس😍 ➕15% فری بت هدیه برای شارژ بانکی ➕15%  شارژ اضافی برای شارژ ارزی ➕100…
+</div>
+
+## tasiyanc — post 11496
+
+<div align="center"><img src="files/post_11496_tasiyanc_11496.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+💖سایت بین المللی ژتون بت💖
+
+🎖️معتبرترین سایت روسی فعال در ایران🎖️
+
+⛔شارژ از طریق کارت بانکی،ارز،ووچر
+⛔تسویه حساب سریع و امن بدون احرازهویت
+
+💎هدایا سایت جهانی ژتون بت:
+➕واریز اول 100% بونوس😍
+➕15% فری بت هدیه برای شارژ بانکی
+➕15%  شارژ اضافی برای شارژ ارزی
+➕100 اسپین رایگان هفتگی
+➕20% برگشت باخت روزانه برای بازی های کازینویی
+➕20% برگشت باخت هفتگی برای شرط بندی ورزشی
+
+🤩دنیای هدایا بی نظیر در ژتون بت
+
+🖥️ادرس ورود به سایت:🅰g1
+https://jhet0n.online/fa/?btag=2786270
+🔖فیلترشکن خود را روشن کنید و روی کشور مناسب قرار دهید مانند المان،کانادا،ترکیه،سنگاپور،فنلاند و..
+💖کانال اطلاع رسانی:👇
+🔔https://t.me/+wZXhBXGTHmsxMTk0
+</div>
+
+## tasiyanc — post 11495
+
+<div align="center"><video src="files/post_11495_tasiyanc_11495.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11495_tasiyanc_11495.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشماتون بریزه از واقعی‌سازی‌های راکستار!
+
+​یه گیمر آمریکایی وسط بازی GTA 6 سرش رو از مانیتور می‌گیره بالا و می‌بینه جیسون دقیقاً توی بالکن خونه‌ش وایساده بود!
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11494
+
+<div align="center"><video src="files/post_11494_tasiyanc_11494.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11494_tasiyanc_11494.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فیلم دلهره‌آور از سونامی کامچاتکا پس از زمین‌لرزه ۸.۸ ریشتری
+
+​در پی زلزله شدید ۸.۸ ریشتری در شبه‌جزیره کامچاتکا، مرد روسی 🇷🇺 به همراه سگش روی تپه‌ای نزدیک ساحل ایستاد و لحظه رسیدن سونامی را ثبت کرد؛ صحنه‌ای که تضاد میان آرامش تماشاگران و قدرت سهمگین دریا را برجسته می‌کند.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11493
 
@@ -165,116 +268,5 @@ https://t.me/+4iOoNe8EvMNkY2Vk
 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g30
 https://t.me/+yuNWNQ9zSYFhMWJk
 https://t.me/+yuNWNQ9zSYFhMWJk
-</div>
-
-## tasiyanc — post 11479
-
-<div align="center"><video src="files/post_11479_tasiyanc_11479.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11479_tasiyanc_11479.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 چهره‌ای از دل تاریخ؛ ویدیویی شگفت‌انگیز از احیای چهره «بانو رای»، پرستار سلطنتی فرعون در مصر باستان!
-
-بانو رای حدود ۳۵۰۰ سال پیش زندگی می‌کرد و وظیفه نگهداری و مراقبت از کودکان خاندان سلطنتی مصر رو برعهده داشت.
-مومیایی او در مقبره DB320 در دیرالبحری کشف شد؛ نکته جالب اینکه موهای این زن پس از گذشت هزاران سال همچنان در وضعیت نسبتاً خوبی باقی مونده!
-بازسازی چهره او به کمک بقایای مومیایی، تصویری شگفت‌انگیز از زنی ارائه می‌ده که بیش از سه هزار سال پیش زندگی می‌کرده.
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11478
-
-<div align="center"><video src="files/post_11478_tasiyanc_11478.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11478_tasiyanc_11478.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 ترامپ برای بار اِنُم دستگیر شد؛ این‌بار در مشهد!
-
-نیروهای جان‌فدا طی یک عملیات ضربتی، دونالد جی. ترامپ رو وسط خیابون‌های مشهد، بازداشت کردن و براش دادگاه تشکیل دادن:
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11477
-
-<div align="center"><video src="files/post_11477_tasiyanc_11477.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11477_tasiyanc_11477.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پشماتون بریزه؛ دیگه حتی برای بازی کردن GTA هم لازم نیست دست داشته باشی!
-
-یکی از شرکت‌کننده‌های آزمایش نورالینک ایلان ماسک، با کمک تراشه مغزی تونسته بدون لمس کنترلر توی GTA VI قایق برونه، هواپیما هدایت کنه و حتی وارد مبارزه بشه!
-این تراشه سیگنال‌های مغز رو به فرمان‌های بازی تبدیل می‌کنه؛ یعنی فقط با فکر کردن به حرکت، شخصیت بازی هم همون کار رو انجام می‌ده. تکنولوژی‌ای که می‌تونه برای افراد دارای معلولیت، دنیای گیم رو متحول کنه.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11476
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
-</div>
-
-## tasiyanc — post 11475
-
-<div align="center"><img src="files/post_11475_tasiyanc_11475.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-✅دربی‌بت؛ جایی که پیش‌بینی فقط حدس نیست، شروعِ بردهای واقعیه!
-✅با لایسنس بین‌المللی معتبر، وارد زمینی شو که حرفه‌ای‌ها بازی می‌کنن!
-
-✅آفرهای خفن ثبت‌نام در دربی‌بت؛ فرصت‌هایی که تکرار نمی‌شن:
-
-⬅️ ۱۰۰٪ بونوس اولین واریز؛ شروع انفجاری مثل قهرمان‌ها
-⬅️ پشتیبانی کامل از همه ارزهای دیجیتال
-⬅️ درگاه ریالی و تومنی امن، سریع و بی‌دردسر
-⬅️ برداشت‌های آنی و بدون معطلی
-⬅️ پشتیبانی حرفه‌ای ۲۴ ساعته، همیشه پشتت هستیم
-_ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
-✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰29
-✅ https://DerbyBet.com
-📩 @Derbybet
-</div>
-
-## tasiyanc — post 11474
-
-<div align="center"><img src="files/post_11474_tasiyanc_11474.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 پایان دوران بازیگری در صنعت پ*ورن برای یکی دیگر از معروف‌ترین چهره‌ی ژاپنی!
-
-بانو ری لیل بلک (Rae Lil Black)، بازیگر فیلم‌های پ*ورن که ۷ سال در این صنعت فعالیت داشت، از مسلمان‌شدن خودش خبر داده و نام «نورای استقلال» رو انتخاب کرده!
-اون می‌گه آشنایی با قرآن و شرکت در یک سمینار سه‌ساعته باعث شد تصمیم بگیره مسیر زندگیش رو تغییر بده.
-نکته جالب اینکه این تصمیم براش بدون هزینه نبوده؛ صدها هزار نفر از فالوئرهاش رو از دست داده، اما می‌گه حاضر نیست به خاطر حفظ مخاطب‌هاش از تصمیمش برگرده.
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11473
-
-<div align="center"><video src="files/post_11473_tasiyanc_11473.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11473_tasiyanc_11473.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚠️ هشدار اسپویل GTA 6
-
-
-اسپید «یوتوبر معرف» بعد از 56 ساعت بازی کردن، بالاخره GTA 6 رو به پایان رسوند؛
-
-لوسیا و جیسون توسط پلیس کشته می‌شن و اسپید هم بعد از دیدن پایان تلخ داستان، اشکش درمیاد!
-
-
-🔵 اگه قصد داری GTA 6 رو بازی کنی، مراقب باش؛ با باز کردن این ویدیو و کپشن ممکنه بخش مهمی از داستان و پایان بازی برات لو بره.
-
-
-💋 @Tasiyanc
 </div>
 
