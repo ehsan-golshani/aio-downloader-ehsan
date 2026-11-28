@@ -1,8 +1,47 @@
 # آرشیو کانال ProxyMTProto - صفحه 14
 
-📅 آخرین بروزرسانی: 1405/09/06 22:17
+📅 آخرین بروزرسانی: 1405/09/07 05:23
 
 ---
+
+## ProxyMTProto — post 53289
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: rimira82.ashwren.xyz
+Port: 443
+Secret: eed9f17e3daed2eba291d36ea30d9aded862726f777365722e79616e6465782e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53288
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: — YOUR PROXY HERE —
+Port: 443
+Secret: reserve your spot ↓
+@ProxyMTProto
+
+👆 This is where your proxy could sit — a dedicated post at the time you pick.
+🎁 First slot 50% off.
+</div>
+
+## ProxyMTProto — post 53287
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: dd519fde42027f143e4fc82a97e59baff8
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53286
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir.rdenham.co.uk
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53285
 
@@ -143,42 +182,6 @@ Secret: eeec15a78c3842e866c302c8526175a68c7975672d6c696e6b2e7275
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 Server: speed.runserver.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53269
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: mobile.prxtg.top
-Port: 443
-Secret: ee8ae40a2aa7554a058f3340b6449e4e666d6f62696c652e70727874672e746f70
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53268
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53267
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: opal.velvetwindow.cc
-Port: 443
-Secret: eed09fb30e9ba945e3eb272875413c8c946f70616c2e76656c76657477696e646f772e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53266
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
 Port: 8443
 Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto

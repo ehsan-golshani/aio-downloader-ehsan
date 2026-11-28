@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 7
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11452
+
+<div align="center"><video src="files/post_11452_tasiyanc_11452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11452_tasiyanc_11452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵رپ خوندن این دختر ایرانی فضای مجازی رو ترکونده! این ویدئو توی ۲۴ ساعت نزدیک یک میلیون لایک گرفته و حسابی وایرال شده!
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11451
+
+<div align="center"><video src="files/post_11451_tasiyanc_11451.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11451_tasiyanc_11451.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ما هم خیلی دلمون می‌خواد بریم دبی، ولی متأسفانه اونجا کسی ما رو نمی‌کنه.
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11450
 
@@ -324,31 +352,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 ✅ دربی‌بت؛ بازی کن، ببر، لذت ببر!🅰r27
 ✅ https://DerbyBet.com
 📩 @Derbybet
-</div>
-
-## tasiyanc — post 11432
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵نتایج نهایی کنکور سراسری ۱۴۰۵ اعلام شد.
-
-برای دیدن نتایج میتونید به سایت سنجش مراجعه کنید.
-
-http://my.sanjesh.org/
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11431
-
-<div align="center"><img src="files/post_11431_tasiyanc_11431.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵سوپرسل هم ایران رو تحریم کرد!
-
-کاربرای ایرانی با محدودیت‌های جدیدی برای دسترسی به سرویس‌های سوپرسل مواجه شدن؛ از جمله بازی‌های محبوبی مثل کلش آف کلنز، کلش رویال و براول استارز.
-این محدودیت‌ها در حالی اعمال می‌شن که سوپرسل پیش‌تر هم دسترسی کاربران داخل ایران رو به‌دلیل قوانین تحریمی محدود کرده بود.
-
-💋 @Tasiyanc
 </div>
 

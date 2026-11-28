@@ -1,8 +1,31 @@
 # آرشیو کانال tasiyanc - صفحه 6
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11472
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
+</div>
+
+## tasiyanc — post 11471
+
+<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+.
+
+🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
+
+📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
+
+https://t.me/+4iOoNe8EvMNkY2Vk
+https://t.me/+4iOoNe8EvMNkY2Vk
+
+🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
+</div>
 
 ## tasiyanc — post 11470
 
@@ -265,34 +288,6 @@ https://t.me/+QfLVEylr-2c2YzQ0
 + خبر رسمی نشده. جزییات خبر در صورت رسمی شدن به اشتراک میزارم
 
 🚨تکذیب شد
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11452
-
-<div align="center"><video src="files/post_11452_tasiyanc_11452.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11452_tasiyanc_11452.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵رپ خوندن این دختر ایرانی فضای مجازی رو ترکونده! این ویدئو توی ۲۴ ساعت نزدیک یک میلیون لایک گرفته و حسابی وایرال شده!
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11451
-
-<div align="center"><video src="files/post_11451_tasiyanc_11451.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11451_tasiyanc_11451.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵ما هم خیلی دلمون می‌خواد بریم دبی، ولی متأسفانه اونجا کسی ما رو نمی‌کنه.
-
 
 
 💋 @Tasiyanc

@@ -1,8 +1,61 @@
 # آرشیو کانال tasiyanc - صفحه 26
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 10991
+
+<div align="center"><video src="files/post_10991_tasiyanc_10991.webm" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10991_tasiyanc_10991.webm" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+نبرد بزرگ بارسلونا
+🏴 و رئال مادرید
+🏴 رو با آپشن های تخصصی در wepari پیشبینی کنید! 
+🔥
+
+
+🆕 واریز اول و دوم 2 برابر شارژ شوید
+🎁
+
+
+🔥شنبه بونوس 100%
+
+🔥 دوشنبه بونوس 50%
+
+
+🤖دانلود اپلیکیشن بدون فیلتر 
+🚀
+
+
+🎁 کد هدیه 100 دلاری: Top100
+
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+🌐 آدرس ورود به سایت پیش بینی وی پاری
+
+بازپرداخت شرط میکس در صورت تک باخت شدن پیش‌بینی ها 
+💸🅰g3
+</div>
+
+## tasiyanc — post 10990
+
+<div align="center"><video src="files/post_10990_tasiyanc_10990.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10990_tasiyanc_10990.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 دکتر فاطمه آژیر درباره ترکیبات مایع منی و بلعیدن آن که می‌تونه بد باشه یا خوب توضیح داد ؛
+
+به گفته‌ی او، مایع منی سمی یا کثیف نیست و بخش عمده‌ش از آب تشکیل شده؛ در کنار پروتئین‌ها، آنزیم‌ها و ترکیبات دیگه‌ای مثل PH قلیایی‌ه‍ که باعث بوی خاصش می‌شه.
+به گفته‌ی دکتر آژیر، بلعیدن مایع منی در صورت مشخص بودن وضعیت عفونت‌های مقاربتی شریک جنسی، لزوماً خطرناک نیست؛ بااین‌حال، احتمال انتقال عفونت از طریق رابطه دهانی همچنان وجود داره.
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10989
 
@@ -265,40 +318,5 @@
 
 
 ⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10971
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.r2🅰
-✅ ورود به اپلیکیشن بدون فیلترشکن
-</div>
-
-## tasiyanc — post 10970
-
-<div align="center"><img src="files/post_10970_tasiyanc_10970.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-▶️ دیدار فوووق جذااااب آرسنال و اورتون رو با آپشن های تخصصی در MelBet پیشبینی کنید! 🔥
-
-💵 امکان شارژ کارت بکارت و هات ووچر
-🎁 قرعه کشی و آفر های جذاب با جوایز ویژه
-🌐 دانلود مستقیم اپلیکیشن اندروید
-🤝 اسپانسر رسمی لالیگا
-🇮🇷 پشتیبانی از زبان فارسی
-✍️ حرفه ای، مطمئن و در کلاس جهانی پیشبینی کنید!
-
-برای ورود به سایت فیلترشکن خود را خاموش کنید!
-‌💯 Link 🔜 MelBet1.net
-🆕‌ Link 🔜 MelBet1.net
 </div>
 

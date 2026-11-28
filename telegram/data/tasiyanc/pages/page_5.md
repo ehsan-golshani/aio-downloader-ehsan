@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 5
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11493
+
+<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
+
+این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11492
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+📲 اپلیکشن رسمی سایت دربی بت
+
+🌐 DerbyBet.com
+
+💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
+
+🆔 @DerbyBet
+</div>
 
 ## tasiyanc — post 11491
 
@@ -250,28 +276,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11472
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. 🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐 📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇 https://t.me/+4iOoNe8EvMNkY2Vk https://t.me/+4iOoNe8EvMNkY2Vk 🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
-</div>
-
-## tasiyanc — post 11471
-
-<div align="center"><img src="files/post_11471_tasiyanc_11471.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-
-🔞رک بگم، بیشترتون اصلاً شرط‌بندی بلد نیستید!😐
-
-📊 آنالیزهای سیاوش رو ببین، بعد متوجه میشی داستان چیه.⭐👇
-
-https://t.me/+4iOoNe8EvMNkY2Vk
-https://t.me/+4iOoNe8EvMNkY2Vk
-
-🎯سود 3 ملیونی ما از میکس لیگ عربستان ⚽️💵🅰29
 </div>
 

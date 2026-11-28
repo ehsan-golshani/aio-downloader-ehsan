@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 22
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11071
+
+<div align="center"><video src="files/post_11071_tasiyanc_11071.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11071_tasiyanc_11071.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵آخوند شجاعی:
+
+بعد از فوت پیامبر، حضرت زهرا ۳ ماه تمام گریه میکرد!
+تا اینکه خدا به جبرئیل دستور داد که به حضرت زهرا خبر انقلاب اسلامی ایران رو بده و ایشون آروم شدن.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11070
+
+<div align="center"><video src="files/post_11070_tasiyanc_11070.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11070_tasiyanc_11070.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 ویدیو وایرال شده ۲۴ ساعت اخیر با ۱۱ میلیون ویو از دانشگاه آزاد مشهد
+
+⚡ @Tasiyanc
+</div>
 
 ## tasiyanc — post 11069
 
@@ -234,33 +261,5 @@
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11051
-
-<div align="center"><img src="files/post_11051_tasiyanc_11051.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵 کراش جدید آوردم براتون بانو « ریـحانه فـلاح » هستن مجری اینترنشنال
-
-
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11050
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🆕 اپلیکیشن MelBet 🔄
-
-🎁 کد هدیه 100 دلاری: Sport100
-
-🤝 اسپانسر رسمی جام جهانی
-🚨 کاملترین برنامه موبایل
-☄️ صرافی معتبر
-🤖 ربات راهنما
-
-🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r7
-✅ ورود به اپلیکیشن بدون فیلترشکن
 </div>
 

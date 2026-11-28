@@ -1,8 +1,47 @@
 # آرشیو کانال ProxyMTProto - صفحه 9
 
-📅 آخرین بروزرسانی: 1405/09/06 22:17
+📅 آخرین بروزرسانی: 1405/09/07 05:23
 
 ---
+
+## ProxyMTProto — post 53389
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Bezan-Ke.Khob-Mizani.manege-desktop-for.co.im.
+Port: 4443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53388
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: deny72.ashwren.xyz
+Port: 443
+Secret: eea642c4bcbaceb5aa415464da57a03a37706574726f766963682e7275
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53387
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: — YOUR PROXY HERE —
+Port: 443
+Secret: reserve your spot ↓
+@ProxyMTProto
+
+👆 This is where your proxy could sit — a dedicated post at the time you pick.
+🎁 First slot 50% off.
+</div>
+
+## ProxyMTProto — post 53386
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: eeee677bf5d2356b3744e1208cc35d70887777772e676f6f676c652e636f6d
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53385
 
@@ -145,42 +184,6 @@ Secret: ddf0eeb0bd9adc4fd4a93994ee3b2a216b
 Server: harborwinter.velvetwindow.cc
 Port: 443
 Secret: eed09fb30e9ba945e3eb272875413c8c94686172626f7277696e7465722e76656c76657477696e646f772e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53369
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ving.mozitop.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53368
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: irl.firemedia.digital
-Port: 443
-Secret: eeadd144b0531c1a9f5947e3cb29dc4fd569726c2e666972656d656469612e6469676974616c
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53367
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ir-ir-ir.grumpyoldmen.info
-Port: 8443
-Secret: EERighJJvXrFGRMCIMjdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53366
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: matrixxx.vip
-Port: 443
-Secret: eed0c83b444210a4302be4b1fe17714d4e6d617472697878782e766970
 @ProxyMTProto
 </div>
 

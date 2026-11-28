@@ -1,8 +1,44 @@
 # آرشیو کانال ProxyMTProto - صفحه 10
 
-📅 آخرین بروزرسانی: 1405/09/06 22:17
+📅 آخرین بروزرسانی: 1405/09/07 05:23
 
 ---
+
+## ProxyMTProto — post 53369
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ving.mozitop.co.uk
+Port: 8443
+Secret: eeNEgYdJvXrFGRMCIMJdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53368
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: irl.firemedia.digital
+Port: 443
+Secret: eeadd144b0531c1a9f5947e3cb29dc4fd569726c2e666972656d656469612e6469676974616c
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53367
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: ir-ir-ir.grumpyoldmen.info
+Port: 8443
+Secret: EERighJJvXrFGRMCIMjdCQ
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53366
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: matrixxx.vip
+Port: 443
+Secret: eed0c83b444210a4302be4b1fe17714d4e6d617472697878782e766970
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53365
 
@@ -149,42 +185,6 @@ Secret: ee47865459ee8e60d17b7374b5c7b53d086d6170792e636f6d
 Server: 91.107.180.53
 Port: 443
 Secret: 3XnnAQIAAQAH8AMDhuJMOt0
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53349
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: matrixxx.vip
-Port: 443
-Secret: eed0c83b444210a4302be4b1fe17714d4e6d617472697878782e766970
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53348
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 4455
-Secret: dd104462821249bd7ac519130220c25d09
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53347
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 443
-Secret: eed80703ad02e82988a4b6b4d437fe2c9c76616c656e6b692e6b656d65726f766f2e6f6e6c696e65
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53346
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: Unknown
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
 @ProxyMTProto
 </div>
 

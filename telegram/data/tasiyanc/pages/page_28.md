@@ -1,8 +1,35 @@
 # آرشیو کانال tasiyanc - صفحه 28
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 10951
+
+<div align="center"><img src="files/post_10951_tasiyanc_10951.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🚨🚨🚨🚨فوری ‼️ تصویری منتسب به کانال سید مجتبی خامنه‌ای با اشاره به گزینه‌های احتمالی در صورت حمله آمریکا و اسرائیل
+
+در این تصویر، پهپاد، موشک، تنگه هرمز و جنگ منطقه‌ای تیک خورده‌اند. در کنار این موارد، نماد یک تأسیسات هسته‌ای هم دیده می‌شه که گمانه‌زنی‌هایی درباره گزینه بمب هسته‌ای رو مطرح کرده؛ با این حال، نمی‌شه این تصویر رو به‌تنهایی نشونه تهدید به استفاده از بمب اتم دونست.
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 10950
+
+<div align="center"><video src="files/post_10950_tasiyanc_10950.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_10950_tasiyanc_10950.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵فورررررری / سیستم «دست مرده روسی» برای جمهوری اسلامی فعال میشه؟!
+
+سیستم «دست مرده» به سازوکاری گفته می‌شه که در صورت کشته شدن فرماندهان کشور مورد حمله قرار گرفته که از پیش تعیین شده به چند کشور متخاصم بمب هسته‌ای میزنه. این سیستم بیشتر با روسیه شناخته می‌شه که در صورت کشته شدن فرماندهان روسی ۴۰۰۰ بمب هسته ای به سراسر پایتخت های اروپا و آمریکا ( NATO ) شلیک می‌شود ☠؛ اما فعال شدنش در ایران هنوز تأیید نشده و با توجه به توییت یکی از خبرنگاران حکومتی مطرح شده !
+بنظرتون ایران بمب اتم داره؟
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 10949
 
@@ -265,25 +292,5 @@ G29🅰
 
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 10930
-
-<div align="center"><video src="files/post_10930_tasiyanc_10930.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_10930_tasiyanc_10930.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵یه نفر به چند پیرمرد ماچا می‌ده و ازشون می‌پرسه به نظرتون این چیه؛ جواب‌هاشون حسابی سوژه شده
-
-یه نفرم جای ماچا میکروفون رو میخواست بخوره
-
-⚡ @Tasiyanc
-</div>
-
-## tasiyanc — post 10929
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-⚡ بری بت | BerryBet 🔥 مسابقات امروز 👍 ⚽️ کومو - منچستر یونایند 🌎 ساعت ۲۰:۱۵ ⚽️ لیل - گالاتاسرای 🌎 ساعت ۲۰:۱۵ ﻿ 💸 ضرایب ویژه و رقابتی ⚡ پیش‌بینی سریع، تسویه آسان و پخش زنده مسابقات 🎯 همین حالا شانس خودت رو امتحان کن و هیجان فوتبال رو چند برابر کن! ✅۱۰٪…
 </div>
 

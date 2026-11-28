@@ -1,8 +1,34 @@
 # آرشیو کانال tasiyanc - صفحه 8
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11432
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵نتایج نهایی کنکور سراسری ۱۴۰۵ اعلام شد.
+
+برای دیدن نتایج میتونید به سایت سنجش مراجعه کنید.
+
+http://my.sanjesh.org/
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11431
+
+<div align="center"><img src="files/post_11431_tasiyanc_11431.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵سوپرسل هم ایران رو تحریم کرد!
+
+کاربرای ایرانی با محدودیت‌های جدیدی برای دسترسی به سرویس‌های سوپرسل مواجه شدن؛ از جمله بازی‌های محبوبی مثل کلش آف کلنز، کلش رویال و براول استارز.
+این محدودیت‌ها در حالی اعمال می‌شن که سوپرسل پیش‌تر هم دسترسی کاربران داخل ایران رو به‌دلیل قوانین تحریمی محدود کرده بود.
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11430
 
@@ -261,29 +287,5 @@ https://t.me/+gYDRnUG5OX03MWJk
 
 
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11410
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+yVBxmxCAtms5ZjBk https://t.me/+yVBxmxCAtms5ZjBk 🅰g25 🎯نمونه…
-</div>
-
-## tasiyanc — post 11409
-
-<div align="center"><img src="files/post_11409_tasiyanc_11409.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+yVBxmxCAtms5ZjBk
-https://t.me/+yVBxmxCAtms5ZjBk
-🅰g25
-🎯نمونه سود 5 ملیونی ما از فوتبال اروپا💵
 </div>
 

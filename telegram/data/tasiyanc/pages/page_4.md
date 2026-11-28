@@ -1,8 +1,30 @@
 # آرشیو کانال tasiyanc - صفحه 4
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11513
+
+<div align="center"><img src="files/post_11513_tasiyanc_11513.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+⛔️ هشدار جدی؛ جان‌تان را با مشروبات تقلبی به خطر نیندازید!
+
+​در ۴۸ ساعت گذشته، فاجعه‌ای تلخ در سراسر کشور رخ داده:
+▪️ بیش از ۱۵ نفر فوتی
+▪️ بیش از ۵۰۰ نفر مسمومیت شدید، نابینایی و مرگ مغزی
+​
+لحظاتی پیش ۸ ساقی که این مشروبات مرگبار را پخش می‌کردند دستگیر شدند، اما هنوز ممکن است بخشی از این محموله‌ها در بازار باشد.
+لطفاً این پیام را برای دوستان و آشنایان خود بفرستید تا جلوی قربانی شدن افراد بیشتر گرفته شود.
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+تبانی لو رفته از لیگ برتر ایران🇮🇷 🚀نتیجه دقیق صد درصدی از منبع معتبر که لیمیت داشت 5.7 دلار خودم 10 بار این شرطو ثبت کردم✅ 5 میل خریدم بصورت رایگان براتون آپلود کردم تو کانال زیر👇🅰g2 https://t.me/+Kj9X7ZcvJe02NTVk https://t.me/+Kj9X7ZcvJe02NTVk
+</div>
 
 ## tasiyanc — post 11511
 
@@ -245,31 +267,5 @@ https://jhet0n.online/fa/?btag=2786270
 ​در پی زلزله شدید ۸.۸ ریشتری در شبه‌جزیره کامچاتکا، مرد روسی 🇷🇺 به همراه سگش روی تپه‌ای نزدیک ساحل ایستاد و لحظه رسیدن سونامی را ثبت کرد؛ صحنه‌ای که تضاد میان آرامش تماشاگران و قدرت سهمگین دریا را برجسته می‌کند.
 
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11493
-
-<div align="center"><video src="files/post_11493_tasiyanc_11493.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11493_tasiyanc_11493.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔵امروز 22 November؛ روز جهانی پارتنر خوب ، همراه خوب (Good Spouses Day)
-
-این روز بهونه‌ی قشنگیه تا به کسی که قراره لحظه‌های زیادی از آینده رو کنارش بسازی، یادآوری کنی چقدر حضورش توی زندگیت باارزشه 🔵
-
-💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکشن رسمی سایت دربی بت
-
-🌐 DerbyBet.com
-
-💰 امکان شارژ ریالی ، ووچر ، کریپتو در کمترین زمان ممکن 🔥
-
-🆔 @DerbyBet
 </div>
 

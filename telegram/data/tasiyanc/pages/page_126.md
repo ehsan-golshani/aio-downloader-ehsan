@@ -1,8 +1,20 @@
 # آرشیو کانال tasiyanc - صفحه 126
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 8451
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+اوه اوه اسپانیا از کون اورد
+</div>
+
+## tasiyanc — post 8450
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+یه گل صحیح اسپانیا هم آفساید گرفته شد
+</div>
 
 ## tasiyanc — post 8449
 
@@ -132,17 +144,5 @@
 
 <div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
 تموم شد بریم بازی کسشر رو ببینیم
-</div>
-
-## tasiyanc — post 8429
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-بانوووووو شکیرا اومد
-</div>
-
-## tasiyanc — post 8428
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-این بیژن مرتضوی ما چی شد
 </div>
 

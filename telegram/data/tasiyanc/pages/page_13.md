@@ -1,8 +1,32 @@
 # آرشیو کانال tasiyanc - صفحه 13
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11322
+
+<div align="center"><video src="files/post_11322_tasiyanc_11322.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11322_tasiyanc_11322.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از فائزه مرادنسب «بلاگر» با انتشار ویدیویی مدعی شد چادر هیچ محدودیتی برای فعالیت‌های روزمره ایجاد نمی‌کنه؛ بعد هم با چادر شیرجه زد توی دریا و شروع به غواصی کرد!
+
+💋@Tasiyanc
+</div>
+
+## tasiyanc — post 11321
+
+<div align="center"><video src="files/post_11321_tasiyanc_11321.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11321_tasiyanc_11321.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵ویدیو وایرال شده از اعتراضات فرانسه یه معترض با ماشین آب‌پاش یه طوری آبکش شد که احتمالاً تا چند دقیقه یادش نبود اصلاً برای چی اومده بود اعتراض کنه! 🤣
+اما نکته جالب‌تر اینکه اکانت رسمی ترامپ هم این ویدیو رو لایک کرده؛ ظاهراً این صحنه توجه ترامپ رو هم جلب کرده!
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11320
 
@@ -253,29 +277,5 @@ Fill this room with what you know about me
 اما ظاهراً نمی‌دونست قراره چه بلایی سرش بیاد!
 چند لحظه بعد، هوادارها ریختن وسط رینگ و تا رختکن حسابی از خجالتش دراومدن!
 💋@Tasiyanc
-</div>
-
-## tasiyanc — post 11297
-
-<div align="center"><video src="files/post_11297_tasiyanc_11297.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
-
-<div align="center"><a href="files/post_11297_tasiyanc_11297.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-ویدیوی زیبا از برف پاییزی در سوباتانِ تالش، گیلان🌨️
-
-سوباتان یکی از زیباترین ییلاقات شمال ایران که با دشت‌های سرسبز، کلبه‌های چوبی و چشم‌اندازهای کوهستانی‌اش به بهشت طبیعت‌گردها معروفه.
-💋﻿@Tasiyanc
-</div>
-
-## tasiyanc — post 11296
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-📲 اپلیکیشن اندروید سایت ریتزوبت 🔥
-
-🚀 وقتی شرط ‌هاتون رو توی ریتزوبت ثبت کنین ، علاوه بر ضرایب بالا ، هفتگی با کد های هدیه کسب درآمد میکنید 🤑
-#شرطبندی
-♦️ آموزش شارژ حساب با کریپتو
-♦️ آموزش شارژ حساب ریالی در ریتزوبت
 </div>
 

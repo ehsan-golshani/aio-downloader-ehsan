@@ -1,8 +1,36 @@
 # آرشیو کانال tasiyanc - صفحه 23
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11051
+
+<div align="center"><img src="files/post_11051_tasiyanc_11051.jpg" alt="Photo"></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵 کراش جدید آوردم براتون بانو « ریـحانه فـلاح » هستن مجری اینترنشنال
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11050
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🆕 اپلیکیشن MelBet 🔄
+
+🎁 کد هدیه 100 دلاری: Sport100
+
+🤝 اسپانسر رسمی جام جهانی
+🚨 کاملترین برنامه موبایل
+☄️ صرافی معتبر
+🤖 ربات راهنما
+
+🇮🇷 برای تغییر زبان برنامه، زبان موبایل خود را تغییر دهید.🅰r7
+✅ ورود به اپلیکیشن بدون فیلترشکن
+</div>
 
 ## tasiyanc — post 11049
 
@@ -244,35 +272,5 @@ https://t.me/+VmekrTukXnphNmU0
 
 📱 اپلیکیشن را روی موبایل اندروید خود
 نصب کنید و بدون نیاز به 🔤🔤🔤 وارد سایت شوید💬
-</div>
-
-## tasiyanc — post 11031
-
-<div align="center"><img src="files/post_11031_tasiyanc_11031.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-🔣از اولین شارژ تا هر واریز بعدی،
-انواع بونوس‌ها و هدایای ورود🔣
-
-🆕 بونوس🔣0️⃣0️⃣2️⃣ خوش‌آمدگویی برای شروعی قدرتمند
-💯 بونوس 🔤0️⃣0️⃣1️⃣روی هر واریز
-🎰 بونوس 🔤0️⃣0️⃣1️⃣مخصوص کازینو
-🔑 کد هدیه0️⃣2️⃣🔠🔠 بعد از واریز
-
-📈 امتیاز وفاداری و هدایای نقدی روزانه برای کاربران فعال
-💱 کش‌بک🔤0️⃣3️⃣ هفتگی
-💳 شارژ و برداشت با کارت‌به‌کارت آنلاین و ارز دیجیتال💵🅰5
-
-🔠🔠🔠🔠🔠🔠🔠
-
-📱@lenzbet_official
-
-📱 https://www.lenz89bet.online
-</div>
-
-## tasiyanc — post 11030
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-طبق برخی گزارشات رسانه های اسراییل بی‌بی نتانیاهو از آیزنکوت پیشی گرفته
 </div>
 

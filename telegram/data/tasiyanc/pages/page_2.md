@@ -1,8 +1,37 @@
 # آرشیو کانال tasiyanc - صفحه 2
 
-📅 آخرین بروزرسانی: 1405/09/06 22:19
+📅 آخرین بروزرسانی: 1405/09/07 05:25
 
 ---
+
+## tasiyanc — post 11554
+
+<div align="center"><video src="files/post_11554_tasiyanc_11554.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11554_tasiyanc_11554.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵«ویدیو وایرال شده» از بدل نتانیاهو آقای « علیاهو» که رفته مراسم تشییع زنده‌یاد نیکخواه ، مردم بازیگرا و ... ول کردن ریختن سرش باهاش عکس میگیرن :
+
+
+
+💋 @Tasiyanc
+</div>
+
+## tasiyanc — post 11553
+
+<div align="center"><video src="files/post_11553_tasiyanc_11553.mp4" controls style="max-width:100%; border-radius:12px;"></video></div>
+
+<div align="center"><a href="files/post_11553_tasiyanc_11553.mp4" target="_blank" style="color:#2ea4d9;">🎬 دانلود ویدیو</a></div>
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+🔵پشـماتون بـریزه ، یه نـفر از خـانواده این دخـترخانم کلاهـبرداری میکنه، اینا بعد چند سال رفتن تو دادگـاه، بالاخره حکم جـلبش رو میگیرن و با پـلیس میرن سراغ کلاهبرداره که بگیرنش؛
+پلـیس از این دخترخانـم خوشش میاد و همون‌جا ازش خواستگاری می‌کنه که بابای دختره جواب منفی میده، پلیسه هم متهمو ول‌میکنه فرار کنه
+
+
+
+💋 @Tasiyanc
+</div>
 
 ## tasiyanc — post 11552
 
@@ -241,29 +270,5 @@ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _ _
 هر خطایی، تأکید می‌کنم هر خطایی که از یک دختر سر بزنه، مجوز کشتن اون نیست. کاش قبل از بچه‌دار شدن، بعضی آدم‌ها از نظر روانی و صلاحیت فرزندپروری بررسی می‌شدن تا ما و بقیه ادمین‌ها مجبور نبودیم هر روز خبر این جنایت‌های دردناک رو منتشر کنیم.
 خدا می‌دونه فردا قراره خبر قتل کدوم دختر رو به شما مخابره کنیم. این وضعیت واقعاً دردناک و فاجعه‌باره و هیچ توجیهی نداره. تا وقتی قانون تغییر نکنه، برخورد جدی با قاتلان صورت نگیره و امنیت دختران تضمین نشه، این چرخه لعنتی ادامه پیدا می‌کنه.
 💋 @Tasiyanc
-</div>
-
-## tasiyanc — post 11534
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-. ⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐 اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦 📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇 https://t.me/+Qej4hrwIZsU0NmQ0 https://t.me/+Qej4hrwIZsU0NmQ0 🎯نمونه سود…
-</div>
-
-## tasiyanc — post 11533
-
-<div align="center"><img src="files/post_11533_tasiyanc_11533.jpg" alt="Photo"></div>
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-.
-⭕️ بسه دیگه؛ این‌قدر پولتونو دو دستی تقدیم سایتای شرطبندی نکنید!😐
-
-اگه میخای مثه من با پول شرطبندی جوجه بازی کنی 😞🔞💦
-
-📊 حرف اضافه نداریم؛ بیا پیش عمو سیاوش، کارو از نزدیک ببین⭐👇
-
-https://t.me/+Qej4hrwIZsU0NmQ0
-https://t.me/+Qej4hrwIZsU0NmQ0
-
-🎯نمونه سود 5 ملیونی ما از میکس فوتبال اروپا💵🅰3
 </div>
 

@@ -1,8 +1,48 @@
 # آرشیو کانال ProxyMTProto - صفحه 3
 
-📅 آخرین بروزرسانی: 1405/09/06 22:17
+📅 آخرین بروزرسانی: 1405/09/07 05:23
 
 ---
+
+## ProxyMTProto — post 53512
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: love.piglio.online/c1c7b0001f2c
+Port: 443
+Secret: dd8fbaa0a0124101a02dde083cd3613e09
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53511
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+😁 Бесплатные прокси опять отвалились?
+
+Они живут сутки и ими пользуются тысячи людей. Свой MTProto-прокси — только ваш ключ, подключение в одно нажатие.
+
+💥 Чёрная пятница: −30% на 3 месяца — от 85⭐
+⚡ −15% на месяц · проба 6 часов — 5⭐
+
+⏳ Скидка скоро закончится.
+</div>
+
+## ProxyMTProto — post 53510
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: 135.181.74.183
+Port: 443
+Secret: 3XnnAQIAAQAH8AMDhuJMOt0
+@ProxyMTProto
+</div>
+
+## ProxyMTProto — post 53509
+
+<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
+Server: Unknown
+Port: 443
+Secret: 7tCfsw6bqUXj6ycodUE8jJRjaXRydXMudmVsdmV0d2luZG93LmNj
+@ProxyMTProto
+</div>
 
 ## ProxyMTProto — post 53508
 
@@ -145,42 +185,6 @@ Secret: eee9a4f23b1d768c04a8d7f39120ca5b6e626973636f7474692e79656b74616e65742e63
 Server: birch.velvetwindow.cc
 Port: 443
 Secret: eed09fb30e9ba945e3eb272875413c8c9462697263682e76656c76657477696e646f772e6363
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53492
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: dns.speed-benz.co.uk
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53491
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: ultraproxy.shop
-Port: 443
-Secret: eeec15a78c3842e866c302c8526175a68c7975672d6c696e6b2e7275
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53490
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: e3fand.fesgheli.co.uk.
-Port: 8443
-Secret: eeNEgYdJvXrFGRMCIMJdCQ
-@ProxyMTProto
-</div>
-
-## ProxyMTProto — post 53489
-
-<div dir="rtl" style="font-family: Vazirmatn, Tahoma, sans-serif;">
-Server: sage.velvetwindow.cc
-Port: 443
-Secret: eed09fb30e9ba945e3eb272875413c8c94736167652e76656c76657477696e646f772e6363
 @ProxyMTProto
 </div>
 
